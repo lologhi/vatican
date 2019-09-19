@@ -1,10 +1,5 @@
-ENCYCLIQUE
-
-" HAURIETIS AQUAS IN GAUDIO "
-
+# Encyclique « Haurietis Aquas In Gaudio »
 du Vénérable pape Pie XII
-
- 
 
 I. «Vous puiserez des eaux avec joie aux sources du Sauveur. " Par ces mots, le prophète Isaïe, en se servant d'images expressives, prédisait ces dons de Dieu multiples et surabondants que l'ère chrétienne allait apporter. Ces mots, disons‑Nous, Nous viennent spontanément à l'esprit, au moment de célébrer le centenaire du jour où Notre Prédécesseur d'immortelle mémoire, Pie IX, condescendant volontiers aux vœux qui affluaient de tout le monde catholique, ordonna de célébrer la fête du Sacré-Cœur de Jésus dans l'Église universelle.
 
@@ -22,7 +17,7 @@ Il n'en manque pas en effet qui, parce qu'ils confondent et mettent sur le même
 
 Il n'en manque pas enfin qui, bien loin de voir dans ce culte une aide efficace pour rénover et réformer honnêtement les mœurs chrétiennes, tant dans la vie privée des individus que dans les familles, y voient plutôt une piété plus nourrie de sensibilité que d'esprit et de cœur, et pour cela plutôt digne des femmes ; car ils y voient quelque chose qui ne convient guère à des hommes cultivés.
 
-7. Il y en a encore, d'autre part qui, du fait qu'ils considèrent que ce culte fait appel surtout à la pénitence, à l'expiation et aux autres vertus qu'on déclare " passives " parce que privées apparemment de fruits extérieurs, ne l'estiment pas propre à ranimer la spiritualité de notre époque à qui incombe le devoir d'entreprendre une action franche et d'envergure pour le triomphe de la foi catholique et la défense vigoureuse des mœurs chrétiennes. Car ces mœurs, de nos jours, comme tout le monde le sait, se trouvent facilement entachées des erreurs de ceux qui pratiquent l'indifférence pour toute forme de religion, sans que leur esprit distingue le vrai du faux, et sont malheureusement pénétrés des principes du matérialisme athée et du laïcisme. 
+7. Il y en a encore, d'autre part qui, du fait qu'ils considèrent que ce culte fait appel surtout à la pénitence, à l'expiation et aux autres vertus qu'on déclare " passives " parce que privées apparemment de fruits extérieurs, ne l'estiment pas propre à ranimer la spiritualité de notre époque à qui incombe le devoir d'entreprendre une action franche et d'envergure pour le triomphe de la foi catholique et la défense vigoureuse des mœurs chrétiennes. Car ces mœurs, de nos jours, comme tout le monde le sait, se trouvent facilement entachées des erreurs de ceux qui pratiquent l'indifférence pour toute forme de religion, sans que leur esprit distingue le vrai du faux, et sont malheureusement pénétrés des principes du matérialisme athée et du laïcisme.
 
 8. Qui ne voit, Vénérables Frères, que de telles manières de penser sont en totale opposition avec les déclarations qu'ont faites solennellement de cette chaire de vérité Nos Prédécesseurs, en approuvant le culte du Sacré-Cœur de Jésus ?
 
@@ -96,7 +91,7 @@ Aussi, le Cœur de Jésus‑Christ, uni hypostatiquement à la divine Personne d
 
 24. Aussi, les saints Pères, témoins véridiques de la doctrine divinement révélée, ont parfaitement compris ce que l'apôtre Paul avait déjà affirmé très clairement, que le mystère de l'amour divin était comme le principe et le couronnement, tant de l'Incarnation que de la Rédemption.
 
- 
+	 
 
 On lit souvent et clairement dans leurs écrits que Jésus‑Christ a pris une nature humaine parfaite, avec un corps fragile et périssable comme le nôtre, pour entreprendre notre salut éternel, et nous manifester et nous dévoiler, de la manière la plus évidente, son amour infini aussi bien que sensible.
 
@@ -144,7 +139,7 @@ Saint Augustin a écrit à ce sujet : " Elle est la Mère des membres du Sauveur
 
 38. Au don non sanglant de lui‑même, sous les espèces du pain et du vin, notre Sauveur Jésus‑Christ a voulu ajouter comme témoignage principal de son intime et infini amour, le sacrifice cruel de la croix. Il a ainsi donné un exemple de cette charité suprême qu'il a proposée à ses disciples comme le plus haut point d'amour, lorsqu'il leur a dit : " Nul ne peut avoir d'amour plus grand que de donner sa vie pour ses amis. " C'est pourquoi l'amour de Jésus‑Christ, Fils de Dieu, par le sacrifice du Golgotha, révèle excellemment et d'une façon significative l'amour de Dieu lui‑même : " À ceci nous avons connu l'amour, c'est que lui a donné sa vie pour nous. Nous aussi, nous devons donner notre vie pour nos frères. " C'est pourquoi notre Rédempteur a été cloué sur la croix par ses bourreaux plus par amour que par force ; et son sacrifice volontaire est le don suprême qu'il a fait à tous les hommes, selon cette phrase concise de l'Apôtre : " Il m'a aimé et il s'est livré lui‑même pour moi. "
 
-39. Il ne peut y avoir aucun doute que le Cœur très sacré de Jésus, puisqu'il participe intimement à la vie du Verbe incarné et que par là il est devenu comme un instrument de la divinité, non moins que les autres membres de la nature humaine, pour accomplir les œuvres de la grâce et de la toute‑puissance divine, est le symbole légitime de cette immense charité dont était animé notre Sauveur en contractant son union mystique avec l'Église par son sang : " Il a souffert par amour, pour faire de l'Église son épouse. " C'est donc du Cœur blessé de notre Rédempteur qu'est née l'Église, comme dispensatrice du sang de la Rédemption, et c'est aussi de lui que coule avec abondance la grâce des sacrements où les fils de l'Église puisent la vie suprême, comme nous le lisons dans la sainte liturgie ; " C'est du Cœur transpercé que l'Église, épouse du Christ, prend naissance..., qui de ton Cœur donne la grâce. " 
+39. Il ne peut y avoir aucun doute que le Cœur très sacré de Jésus, puisqu'il participe intimement à la vie du Verbe incarné et que par là il est devenu comme un instrument de la divinité, non moins que les autres membres de la nature humaine, pour accomplir les œuvres de la grâce et de la toute‑puissance divine, est le symbole légitime de cette immense charité dont était animé notre Sauveur en contractant son union mystique avec l'Église par son sang : " Il a souffert par amour, pour faire de l'Église son épouse. " C'est donc du Cœur blessé de notre Rédempteur qu'est née l'Église, comme dispensatrice du sang de la Rédemption, et c'est aussi de lui que coule avec abondance la grâce des sacrements où les fils de l'Église puisent la vie suprême, comme nous le lisons dans la sainte liturgie ; " C'est du Cœur transpercé que l'Église, épouse du Christ, prend naissance..., qui de ton Cœur donne la grâce. "
 
 De ce symbole, qui n'était pas inconnu des anciens Pères de l'Église et des anciens auteurs, le Docteur commun écrit, comme faisant écho à leurs voix : " Du côté du Christ a coulé l'eau pour nous laver, le sang pour nous racheter. C'est pourquoi le sang concerne le sacrement de l'Eucharistie, et l'eau le sacrement du Baptême ; lequel cependant, a le pouvoir de laver par la vertu du sang du Christ. " Ce qui est écrit ici du côté du Christ, ouvert par le soldat, doit également être dit de son Cœur qui a été atteint par le coup de lance donné par lui pour s'assurer de la mort de Jésus‑Christ crucifié. C'est pourquoi la blessure du Cœur très sacré de Jésus, qu'avait déjà quitté cette vie mortelle, restera pendant le cours des siècles l'image vivante de cet amour, manifesté de plein gré, par lequel Dieu a donné son Fils unique pour racheter les hommes ; amour dont le Christ nous a tous aimés si fortement qu'il s'est immolé pour nous sur le calvaire en hostie sanglante : " Le Christ nous a aimés et s'est livré lui‑même à Dieu, pour nous, comme une oblation et un sacrifice d'agréable odeur. "
 
@@ -212,7 +207,7 @@ Nous ne prétendons pas qu'il faille penser que dans le Cœur de Jésus l'on doi
 
 63. Il ne fait ainsi aucun doute que les fidèles qui rendent hommage au Cœur très sacré du Rédempteur satisfont à l'obligation très importante qu'ils ont de servir Dieu, de consacrer au Créateur et Rédempteur leurs personnes, leurs sentiments intimes et leurs activités, et ils obéissent par là au commandement divin : " Tu aimeras le Seigneur ton Dieu de tout ton cœur, de toute ton âme, de tout ton esprit et de toute ta force. " Ils ont de plus la ferme certitude que ce ne sont pas des avantages personnels, corporels ou spirituels, temporels ou éternels, qui sont leur principal motif de servir Dieu, mais la bonté de Dieu lui‑même auquel ils cherchent à rendre hommage en l'aimant, en l'adorant et en lui rendant les grâces qui lui sont dues.
 
- 
+	 
 
 S'il n'en était pas ainsi, le culte au Cœur très sacré de Jésus ne répondrait pas au caractère authentique de la religion chrétienne, car alors l'homme n'aurait pas en vue dans ce culte avant tout l'amour divin ; ce serait alors à bon droit que l'on parlerait de l'excès d'amour ou de sollicitude pour soi‑même que manifestent quelquefois ceux qui comprennent ou pratiquent mal cette très noble dévotion. Tous doivent donc avoir la ferme persuasion que le culte très auguste du Cœur de Jésus ne consiste pas avant tout dans des manifestations extérieures de piété, ni principalement dans la demande d'avantages dont le Christ Notre‑Seigneur a parlé dans des promesses privées pour que les hommes s'acquittent avec plus de ferveur des principales obligations de la religion catholique, l'amour et l'expiation, et par là pourvoient au mieux à leurs avantages spirituels.
 
@@ -234,7 +229,7 @@ Il y a encore plus. Si Nous éprouvons une douleur amère à voir la foi languis
 
 71. C'est Notre vif désir que tous ceux qui se glorifient du nom de chrétiens et qui luttent activement pour établir le Royaume du Christ dans le monde trouvent dans la dévotion au Cœur de Jésus comme un étendard et une source d'unité, de salut et de paix. Cependant, personne ne doit penser que ce culte porte préjudice aux autres formes de dévotion dont le peuple chrétien, sous la conduite de l'Église, honore le divin Rédempteur. Au contraire, une dévotion fervente envers le Cœur de Jésus alimentera et accroîtra sans aucun doute, particulièrement, le culte de la sainte croix et l'amour envers le très auguste Sacrement de l'autel.
 
- 
+	 
 
 Nous pouvons en effet affirmer ‑ ce qui est merveilleusement illustré par les révélations faites par Jésus‑Christ à sainte Gertrude et à sainte Marguerite‑Marie ‑ que nul ne peut vraiment bien comprendre Jésus crucifié s'il n'a d'abord pénétré dans le mystérieux sanctuaire de son Cœur. Et on ne saisira bien la force de l'amour qui poussa le Christ à se donner à nous comme aliment spirituel, qu'en honorant d'un culte particulier le Cœur eucharistique de Jésus, qui a pour but de nous rappeler, selon les termes de Notre prédécesseur d'heureuse mémoire Léon XIII, " l'acte d'amour suprême par lequel notre Rédempteur, répandant toutes les richesses de son Cœur, afin de demeurer avec nous jusqu'à la fin des siècles, institua l'adorable Sacrement de l'Eucharistie ". Et certes " ce n'est pas une part minime de son Cœur que l'Eucharistie, qu'il a tirée pour nous de la si grande charité de son Cœur ".
 
