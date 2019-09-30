@@ -1,17 +1,10 @@
-VOYAGE APOSTOLIQUE 
-DU PAPE BENOÎT XVI
-AU CAMEROUN ET EN ANGOLA
-(17-23 MARS 2009)
+# Voyage apostolique du Pape Benoît XVI au Cameroun et en Angola (17-23 Mars 2009)
+Célébration Eucharistique à l’occasion de la publication de l’Instrumentum Laboris
 
-CÉLÉBRATION EUCHARISTIQUE 
-À L'OCCASION DE LA PUBLICATION
-DE L’INSTRUMENTUM LABORIS
-
-HOMÉLIE DU PAPE BENOÎT XVI
+Homélie Du Pape Benoît XVI
 
 Stade Amadou Ahidjo de Yaoundé
 Jeudi 19 mars 2009
-
  
 
 Chers Frères dans l’Episcopat,
