@@ -1,0 +1,25 @@
+VISITE AUX ENFANTS HOSPITALISÉS DANS LES SERVICES DE PÉDIATRIE DE L'HÔPITAL “AGOSTINO GEMELLI” DE ROME
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+*Mercredi 5 janvier 201* *1*
+
+*Monsieur le cardinal,*
+
+*chers prêtres,*
+
+*autorités académiques, dirigeants,*
+
+*personnel médical et paramédical,*
+
+*chers enfants, parents et amis!*
+
+Pourquoi suis-je venu ici, parmi vous, aujourd’hui, jour où nous commençons à célébrer la solennité de l’Epiphanie? Tout d’abord pour remercier. Merci à vous les enfants qui m’avez accueilli: je veux vous dire que je vous aime et que je suis proche de vous à travers ma prière et mon affection, également pour vous donner la force d’affronter la maladie. Je voudrais ensuite remercier vos parents, les familles, les dirigeants et tout le personnel de la polyclinique, qui avec compétence et charité prennent soin de la souffrance humaine; je voudrais en particulier remercier l’équipe de ce service de pédiatrie et du Centre pour la thérapie des enfants affectés de *spina bifida*. Je bénis les personnes, l’engagement et les milieux dans lesquels on exerce de manière concrète l’amour envers les plus petits et ceux qui en ont le plus besoin.
+
+Chers enfants et jeunes, j’ai voulu venir vous voir également pour faire un peu comme les Mages, comme vous l’avez fait vous-mêmes: les Mages apportèrent à Jésus des dons — or, encens et myrrhe — pour lui manifester leur adoration et leur affection. Aujourd’hui, je vous ai apporté moi aussi quelques cadeaux, pour que vous sentiez, à travers un petit signe, la sympathie, la proximité, l’affection du Pape. Mais je voudrais que tous, adultes et enfants, en ce temps de Noël, nous nous rappelions que le plus grand cadeau, c’est Dieu qui l’a fait à chacun de nous.
+
+Tournons-nous vers la grotte de Bethléem, vers la crèche, qui voyons-nous? Qui rencontrons-nous? Il y a Marie, il y a Joseph, mais il y a surtout un enfant, petit, qui a besoin d’attention, de soin, d’amour: cet enfant est Jésus, cet enfant est Dieu lui-même qui a voulu venir sur la terre pour nous montrer qu’il nous aime, c’est Dieu qui s’est fait comme vous, un enfant, pour vous dire qu’il est toujours à vos côtés et pour dire à chacun de nous que chaque enfant porte son visage.
+
+A présent, avant de conclure, je ne peux qu’adresser un salut cordial à tout le personnel et à toutes les personnes hospitalisées dans ce grand hôpital. J’encourage les diverses initiatives de bien et de volontariat, ainsi que les institutions qui valorisent l’engagement au service de la vie, je pense en particulier, en cette circonstance, à l’Institut scientifique international «Paul VI», dont le but est de promouvoir la procréation responsable.
+
+Merci encore à tous! Le Pape vous aime!

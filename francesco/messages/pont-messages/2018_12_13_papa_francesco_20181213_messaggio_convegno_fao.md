@@ -1,0 +1,25 @@
+***MESSAGE DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS À LA JOURNÉE D'ÉTUDE SUR LE THÈME*« EAU, AGRICULTURE ET ALIMENTATION. CONSTRUISONS LE LENDEMAIN »**
+
+\[Université polytechnique de Madrid, 13 décembre 2018\]
+
+Je vous remercie de m’avoir invité à vous adresser quelques mots au début de la journée «Eau, agriculture et alimentation. Construisons demain», organisée par diverses institutions académiques, sociales et ecclésiales, avec la participation des organismes des Nations unies pour l’alimentation et l’agriculture dont le siège est à Rome.
+
+Le thème qui vous a réunis m’a rappelé le psalmiste, qui reconnaît avec gratitude que «Le Seigneur donnera ses bienfaits, et notre terre donnera son fruit» (Ps 85, 13). A un autre moment, le prophète Isaïe compare la parole de Dieu à l’eau de la pluie qui mouille la terre, en la faisant germer «pour donner une semence au semeur et du pain à celui qui mange» (55, 10).
+
+La pluie, la récolte, la nourriture. La sagesse biblique voyait un lien étroit entre ces éléments et les interprétait dans l’optique de l’action de grâce, et jamais de l’avidité ou de l’exploitation. La foi et l’expérience des personnes croyantes les conduit à cette reconnaissance, qui se transforme pour nous en un appel pressant à la responsabilité, à ne pas rester piégés dans des calculs mesquins qui empêchent d’aider les moins favorisés, qui sont privés du strict nécessaire. A cet égard, le sous-titre que vous avez voulu donner à vos réflexions est source d’inspiration, car le mot «construire» renferme un sens de positivité, l’apport d’un bénéfice, l’ouverture à l’autre, la réciprocité et la collaboration. Vous ne devez pas oublier ces clés, car les lendemains que nous voulons tous ne peuvent être que le fruit d’une coopération loyale, solidaire et généreuse.
+
+En effet, les défis de l’humanité sont si complexes à l’heure actuelle qu’ils nécessitent la somme des idées, l’unité des efforts, la complémentarité des perspectives, et dans le même temps la renonciation à l’égoïsme qui exclut et au protagonisme pernicieux. De cette manière, on prendra des décisions correctes et on jettera des bases solides pour édifier une société juste et inclusive, où personne ne soit laissé pour compte. Une société qui place la personne humaine et ses droits fondamentaux au centre, sans se laisser entraîner par des intérêts discutables qui n’enrichissent que certains, malheureusement toujours les mêmes. Ce sera également la voie pour faire en sorte que les générations futures trouvent un monde harmonieux et sans litiges, avec les ressources nécessaires pour mener une vie digne et en plénitude.
+
+Bien que la terre dispose de ressources pour tous, aussi bien en quantité qu’en qualité, une foule immense souffre de la faim et est cruellement frappée par la pauvreté. Pour éradiquer ces fléaux, il suffirait d’éliminer les injustices et les iniquités et de mettre à leur place des politiques prévoyantes et ambitieuses, des mesures efficaces et coordonnées, afin que personne ne manque de pain quotidien, ni des moyens nécessaires pour vivre. Parmi ceux-ci, l’eau est essentielle et, malheureusement, tout le monde n’y a pas accès; il est donc indispensable qu’elle soit mieux distribuée et gérée de manière durable et rationnelle. De même que sont également incontournables le soin et la protection de l’environnement, en protégeant sa beauté, en préservant la grande variété des écosystèmes, en cultivant les champs avec précaution, sans avidité, sans leur causer de dommages irréversibles.
+
+La terre doit être traitée avec tendresse pour ne pas lui provoquer de blessures, pour ne pas gâcher l’œuvre issue des mains du Créateur. Lorsque cela n’est pas fait, la terre cesse d’être une source de vie pour la famille humaine. Et c’est ce qui se passe dans de nombreuses régions de notre planète, où l’eau est contaminée, les ordures s’accumulent, la déforestation progresse, l’air est vicié et le sol acidifié. Tout cela engendre une accumulation néfaste de maux et de misères, que nous constatons également lorsque la nourriture est gaspillée et non partagée. Il est donc essentiel d’éduquer les enfants et les jeunes à se nourrir sainement, pas simplement à manger. Se nourrir correctement implique de connaître la valeur de la nourriture, en se libérant du consumérisme frénétique et compulsif, et de faire de la table un lieu de rencontre et de fraternité, et pas seulement un espace pour l’ostentation, le gaspillage et les caprices.
+
+Je demande à Dieu le Père que vous tous qui participez à cette journée importante, en sortiez avec un désir renouvelé de faire de la terre la maison commune qui nous accueille tous, une maison aux portes ouvertes, un lieu de communion et de coexistence bénéfique. De cette façon, l’avenir sera plein de lumière et pourra être affronté par tous avec confiance et enthousiasme, comme le fruit mûr d’un présent serein et riche de semences de vertu et d’espérance.
+
+Je vous présente mes meilleurs vœux pour votre travail, je vous donne avec plaisir ma Bénédiction apostolique et je vous demande, s’il vous plaît, de prier pour moi.
+
+*Vatican, le 13 décembre 2018.*
+
+**François**

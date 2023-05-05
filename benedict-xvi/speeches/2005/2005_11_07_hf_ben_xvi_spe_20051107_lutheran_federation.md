@@ -1,0 +1,21 @@
+***DISCOURS*** ***DU PAPE BENOÎT XVI* *AU PRÉSIDENT DE LA FÉDÉRATION LUTHÉRIENNE MONDIALE***
+
+*Lundi 7 novembre 2005*
+
+*Cher Evêque Hanson,*
+
+*Chers amis luthériens,*
+
+C'est avec une grande joie que je vous souhaite la bienvenue, représentants de la Fédération luthérienne mondiale, à l'occasion de votre visite officielle à Rome. Je me rappelle avec gratitude de la présence de votre délégation aux funérailles du Pape Jean-Paul II et à [l'inauguration solennelle de mon ministère d'Evêque de Rome](/content/benedict-xvi/fr/homilies/2005/documents/hf_ben-xvi_hom_20050424_inizio-pontificato.html).
+
+Depuis de nombreuses années, l'Eglise catholique et la Fédération luthérienne mondiale entretiennent des relations étroites et participent à un intense dialogue oecuménique. Cet échange d'idées a été extrêmement fécond et prometteur. En effet, l'un des résultats de ce dialogue fécond a été la *[Déclaration commune sur la Doctrine de la Justification](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/documents/rc_pc_chrstuni_doc_31101999_cath-luth-joint-declaration_fr.html)*, qui constitue une pierre milliaire importante sur notre chemin commun vers l'unité pleine et visible. Il s'agit d'un résultat important. Pour construire à partir de celui-ci, nous devons accepter que des différences demeurent en ce qui concerne la question centrale de la justification; celles-ci doivent être affrontées, ainsi que les façons dont la grâce de Dieu est transmise dans l'Eglise et à travers celle-ci.
+
+Comme je l'ai affirmé au cours de ma récente visite à Cologne, j'espère qu'à l'avenir, le progrès de notre dialogue sur ces questions ne sera pas seulement placé dans un contexte de questions "institutionnelles", mais prendra en considération la source authentique de tout le ministère dans l'Eglise. En effet, la mission de l'Eglise consiste à témoigner la vérité de Jésus Christ, le Verbe incarné. Parole et témoignage vont de pair:  la Parole demande et façonne le témoignage. Le témoignage tire sa propre authenticité de la fidélité totale à la Parole, telle qu'elle est exprimée et vécue dans la communauté apostolique de foi sous la direction de l'Esprit Saint.
+
+La Commission internationale luthérienne romaine catholique sur l'Unité conclura bientôt sa quatrième phase de dialogue et publiera ses résultats dans un document sur l'apostolicité de l'Eglise. Nous sommes tous conscients du fait que notre dialogue fraternel doit non seulement affronter la nécessité de vérifier l'accueil de ces formulations communes de la doctrine dans nos communions respectives, mais plus encore aujourd'hui, celui d'un climat général d'incertitude relatif à la vérité et aux principes éthiques chrétiens, qui auparavant n'étaient pas mis en doute. Dans certains cas, ce patrimoine commun est miné par des approches herméneutiques transformées.
+
+Notre chemin oecuménique commun continuera à rencontrer des difficultés et exigera un dialogue patient. Toutefois, un profond encouragement nous vient de la solide tradition d'étude et d'échange sérieux qui a caractérisé les rapports entre les luthériens et les catholiques au cours des années. Nous sommes réconfortés par le fait que notre recherche d'unité est guidée par la présence du Seigneur Ressuscité et par l'inépuisable force de son Esprit:  "le vent souffle où il veut" ( *Jn* 3, 8). En nous préparant à célébrer le cinq centième anniversaire des événements de 1517, nous devrions intensifier nos efforts pour comprendre plus profondément ce que nous avons en commun et ce qui nous divise, ainsi que les dons que nous pouvons nous offrir réciproquement. En persévérant le long de cette voie, nous prions pour que le visage du Christ puisse resplendir avec toujours plus de luminosité parmi ses disciples, afin que nous soyons tous une seule chose pour que le monde croie (cf. *Jn* 17, 21).
+
+Nous rendons grâce à Dieu pour tout ce qui a été obtenu jusqu'à présent dans les relations entre luthériens et catholiques et nous prions afin que nous puissions continuer à avancer ensemble vers l'unité voulue par le Seigneur.
+
+© Copyright 2005 - Libreria Editrice Vaticana

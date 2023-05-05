@@ -1,0 +1,27 @@
+***LETTRE DU PAPE BENOÎT XVI***
+
+***AU*** ***CARDINAL KURT KOCH, PRÉSIDENT DU [CONSEIL PONTIFICAL \***
+***\***
+***POUR LA PROMOTION DE L'UNITÉ DES CHRÉTIENS](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/index_fr.htm),***
+
+***À L'OCCASION DU XIIe SYMPOSIUM INTERCHRÉTIEN*\[THESSALONIQUE, 30 AOÛT- 2 SEPTEMBRE 2011\]**
+
+*A mon vénéré frère*
+
+*le cardinal Kurt Koch* *président du Conseil pontifical pour la promotion de l’unité des chrétiens*
+
+1\. A l’occasion du XIIe symposium inter-chrétien, sur le thème: «Le témoignage de l’Eglise dans le monde contemporain», qui se déroule à Thessalonique du 30 août au 2 septembre 2011, je désire exprimer à travers vous, vénéré frère, ma vive satisfaction pour cette initiative louable, promue par l’institut franciscain de spiritualité de l’université pontificale Antonianum et par le département de théologie de la faculté de théologie orthodoxe de l’université *Aristoteles* de Thessalonique.
+
+2\. Le thème qui sera traité au cours du symposium est d’une grande actualité et il est au cœur de mes préoccupations et prières, comme je l’ai déjà affirmé dans la Lettre apostolique *[Ubicumque et semper](/content/benedict-xvi/fr/apost_letters/documents/hf_ben-xvi_apl_20100921_ubicumque-et-semper.html)*, par laquelle j’ai institué le [Conseil pontifical pour la nouvelle évangélisation](http://www.vatican.va/roman_curia/pontifical_councils/new-evangelization/index_fr.htm). Au cours des siècles, l’Eglise n’a jamais cessé de proclamer le mystère salvifique de la mort et de la résurrection de Jésus Christ, mais cette même annonce a besoin aujourd’hui d’une vigueur renouvelée dans un grand nombre des régions qui en accueillirent en premier la lumière, et qui ressentent les effets d’une sécularisation capable d’appauvrir l’homme dans sa dimension la plus profonde. En réalité, nous assistons, dans le monde contemporain, à des phénomènes contradictoires: d’un côté, on enregistre un manque d’intérêt général ou même un manque de sensibilité à l’égard de la transcendance; de l’autre, il existe de nombreux signes qui attestent la permanence, dans le cœur de nombreuses personnes, d’une profonde nostalgie de Dieu, qui se manifeste de différentes façons et qui place un grand nombre d’hommes et de femmes dans une attitude de sincère recherche.
+
+3\. Les situations sociales et économiques actuelles lancent les même défis aux catholiques et aux orthodoxes. La réflexion qui se développera au cours du symposium aura donc une grande importance œcuménique. Les interventions permettront de tracer un cadre complet des problématiques communes et de présenter les particularités des différentes approches, en favorisant l’échange de réflexions et d’expériences dans un climat de charité fraternelle. La connaissance réciproque de nos traditions et l’amitié sincère apportent déjà en soi une contribution à la cause de l’unité des chrétiens. Je voudrais rappeler ici les paroles de mon vénéré prédécesseur, le serviteur de Dieu [Paul VI](/content/paul-vi/fr.html), lorsque, à propos de l’évangélisation, il affirma: «Evangélisateurs, nous devons offrir aux fidèles du Christ, non pas l’image d’hommes divisés et séparés par des litiges qui n’édifient point, mais celle de personnes mûries dans la foi, capables de se rencontrer au delà des tensions réelles grâce à la recherche commune, sincère et désintéressée de la vérité. Oui, le sort de l’évangélisation est certainement lié au témoignage d’unité donné par l’Eglise. Voilà une source de responsabilité mais aussi de réconfort» (cf. Ex. apostolique *[Evangelii nuntiandi](/content/paul-vi/fr/apost_exhortations/documents/hf_p-vi_exh_19751208_evangelii-nuntiandi.html),* n. 77).
+
+4\. Le succès des travaux sera certainement également assuré par l’intercession de saint Paul, dont le souvenir est particulièrement vivant dans la ville de Thessalonique, dans laquelle l’Apôtre prêcha en premier l’Evangile et à laquelle il demeura lié par une affection particulière. En vue d’une annonce renouvelée de l’Evangile dans le monde contemporain, il faut des évangélisateurs qui soient animés par le même zèle apostolique que Paul.
+
+5\. A tous ceux qui ont contribué à l’organisation du symposium, aux rapporteurs et à tous les participants, j’adresse mon salut cordial ainsi que mes vœux de plein succès pour cette initiative. J’accompagne les travaux de mes prières et de ma Bénédiction apostolique.
+
+*De Castel Gandolfo, le 6 août 2011*
+
+**BENEDICTUS PP XVI**
+
+© Copyright 2011 - Libreria Editrice Vaticana

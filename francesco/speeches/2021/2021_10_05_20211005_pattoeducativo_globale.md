@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS À LA RECONTRE "RELIGIONS ET ÉDUCATION"***
+
+*Salle Clémentine*
+
+*Mardl 5 octobre 2021*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/10/5/pattoeducativo-globale.html)\]**
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+*Chers frères et sœurs !*
+
+Je suis heureux de vous accueillir à cette rencontre importante pour promouvoir un Pacte Educatif Mondial. A l’occasion de la Journée Mondiale des Enseignants instituée par l’UNESCO, en tant que Représentants des religions, nous voulons aujourd’hui exprimer notre proximité et notre gratitude à tous les enseignants et, en même temps, affirmer notre attention pour l’éducation.
+
+Il y a deux ans – le 12 septembre 2019 – j’ai lancé un appel à tous ceux qui œuvrent à divers titres dans le domaine de l’éducation, à « dialoguer sur la façon dont nous construisons l’avenir de la planète et sur la nécessité d’investir les talents de chacun ; chaque changement nécessite, en effet, un parcours éducatif pour faire mûrir une nouvelle solidarité universelle et une société plus accueillante » ( *[Message à l’occasion du lancement du Pacte Educatif](https://www.vatican.va/content/francesco/fr/messages/pont-messages/2019/documents/papa-francesco_20190912_messaggio-patto-educativo.html)*).
+
+A cet effet, j’ai lancé l’initiative d’un *Pacte Educatif Mondial*, « pour raviver l’engagement pour et avec les jeunes générations, en renouvelant la passion d’une éducation plus ouverte et plus inclusive, capable d’une écoute patiente, d’un dialogue constructif et d’une compréhension mutuelle », et en invitant chacun à « unir ses efforts dans une vaste alliance éducative pour former des personnes mûres, capables de surmonter les morcellements et les oppositions, et recoudre le tissu des relations en vue d’une humanité plus fraternelle ».
+
+Si nous voulons un monde plus fraternel, nous devons éduquer les nouvelles générations à « reconnaître, valoriser et aimer chaque personne indépendamment de la proximité physique, peu importe où elle est née ou habite » (Enc. *[Fratelli tutti](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html#1)*, n. 1). Le principe fondamental du “connais-toi toi-même” a toujours guidé l’éducation, mais il ne faut pas négliger d’autres principes essentiels : “connais ton frère”, afin d’éduquer à l’accueil de l’autre (cf. Enc. *[Fratelli tutti](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html) ;* *[Document sur la fraternité humaine](https://www.vatican.va/content/francesco/fr/travels/2019/outside/documents/papa-francesco_20190204_documento-fratellanza-umana.html)*, Abou Dhabi, le 4 février 2019) ; « Connais la création », pour éduquer au soin de la maison commune (cf. Enc. *[Laudato si’](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*) et « connais le Transcendant », pour éduquer au grand mystère de la vie. Nous nous soucions d’une formation intégrale qui se résume dans la connaissance de soi, de son frère, de la création et du Transcendant. Nous ne pouvons pas taire aux nouvelles générations les vérités qui donnent son sens à la vie.
+
+Les religions ont toujours entretenu une relation étroite avec l’éducation, en associant les activités religieuses avec des activités éducatives, scolaires et académiques. Comme par le passé, aujourd’hui encore, avec la sagesse et l’humanité de nos traditions religieuses, nous voulons être un stimulant pour une action éducative renouvelée qui puisse faire grandir la fraternité universelle dans le monde.
+
+Si, par le passé, des différences nous séparaient, nous voyons aujourd’hui en elles la richesse de différentes voies pour atteindre Dieu et pour éduquer les nouvelles générations à la coexistence pacifique dans le respect mutuel. Dès lors, l’éducation nous engage à ne jamais utiliser le nom de Dieu pour justifier la violence et la haine envers les autres traditions religieuses, à condamner toutes les formes de fanatisme et de fondamentalisme et à défendre le droit de chacun de choisir et d’agir selon sa propre conscience.
+
+Si par le passé, même au nom de la religion, les minorités ethniques, culturelles, politiques ou autres ont été discriminées, nous voulons aujourd’hui être les défenseurs de l’identité et de la dignité de chaque personne et enseigner aux nouvelles générations à accueillir chacun sans discrimination. L’éducation nous engage donc à accueillir l’autre comme il est, non pas comme je voudrais qu’il soit, comme il est, et sans juger ni condamner personne.
+
+Si par le passé les droits des femmes, des mineurs et des plus faibles n’ont pas toujours été respectés, nous nous engageons aujourd’hui fermement à défendre ces droits et à enseigner aux nouvelles générations à être la voix des sans-voix. Dès lors, l’éducation nous engage à rejeter et à dénoncer toute atteinte à l’intégrité physique et morale de chacun. Et l’éducation doit nous amener à comprendre que l’homme et la femme sont égaux en dignité : il ne doit pas y avoir de discrimination.
+
+Si nous avons autrefois toléré l’exploitation et le pillage de notre maison commune, aujourd’hui, plus conscients de notre rôle de gardiens de la création que Dieu nous a confiée, nous voulons être la voix de la nature qui crie pour sa survie et nous former, ainsi que les nouvelles générations, à un style de vie plus sobre et durable. Hier, le témoignage d’un des scientifiques m’a touché lors de notre rencontre. Il a dit : “ma nièce qui vient de naître, avant 50 ans devra vivre dans un monde inhabitable si les choses continuent ainsi”. Par conséquent, l’éducation nous engage à aimer *notre mère la terre* et à éviter de gaspiller la nourriture et les ressources, ainsi qu’à partager davantage les biens que Dieu nous a donnés pour la vie de tous. Il me vient à l’esprit ce que disait un sage, non catholique : Dieu pardonne toujours. Nous pardonnons, une fois oui, une fois non. La nature ne pardonne jamais.
+
+Aujourd’hui, nous voulons que nos traditions religieuses, qui ont toujours été protagonistes de l’alphabétisation jusqu’à l’enseignement supérieur, renforcent leur mission d’éduquer chaque personne dans son intégralité, c’est à dire sa tête, ses mains, son cœur et son âme. De sorte que l’on pense ce que l’on sent et ce que l’on fait ; que l’on sente ce que l’on pense et ce que l’on fait ; que l’on fasse ce que l’on sent et ce que l’on pense. L’harmonie de l’intégrité humaine, c’est-à-dire toute la beauté de cette harmonie.
+
+Chers frères et sœurs, je vous remercie de votre participation et je remercie également tous ceux qui, en raison de la pandémie, n’ont pas pu être ici aujourd’hui. Je vous invite maintenant à un petit moment de silence pour demander à Dieu d’éclairer nos esprits, afin que notre dialogue soit fructueux et puisse nous aider à suivre avec courage les voies de nouveaux horizons éducatifs.

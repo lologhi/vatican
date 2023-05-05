@@ -1,0 +1,31 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Place Saint-Pierre*
+
+*Mercredi 7 octobre 2015*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/10/7/udienzagenerale.html)\]**
+
+* * *
+
+*Chers frères et sœurs, bonjour !*
+
+Depuis quelques jours a commencé le synode des évêques sur le thème : « La vocation et la mission de la famille dans l’Église et dans le monde contemporain ». La famille qui marche sur la voie du Seigneur est fondamentale dans le témoignage de l’amour de Dieu et mérite donc tout l’engagement dont l’Église est capable. Le synode est appelé à interpréter, pour le temps présent, cette sollicitude et ce soin de l’Église. Accompagnons tout le parcours synodal avant tout par notre prière et notre attention. Et, au cours de cette période, les catéchèses seront des réflexions inspirées par certains aspects de la relation — que nous pouvons véritablement qualifier d’indissoluble ! — entre l’Église et la famille, avec l’horizon ouvert au bien de la communauté humaine tout entière.
+
+Un regard attentif à la vie quotidienne des hommes et des femmes d’aujourd’hui montre immédiatement le besoin qui existe partout d’une bonne dose d’ *esprit familial*. En effet, le style des relations — civiles, économiques, juridiques, professionnelles, entre citoyens — apparaît très rationnel, formel, organisé, mais également très « déshydraté », aride, anonyme. Il devient parfois insupportable. Bien que voulant être inclusif dans toutes ses formes, dans la réalité, il abandonne à la solitude et au rebut un nombre toujours plus élevé de personnes.
+
+Voilà pourquoi la famille ouvre pour la société tout entière une perspective bien plus humaine: elle ouvre les yeux des enfants sur la vie — et pas seulement le regard, mais également tous les autres sens — en représentant une vision de la relation humaine édifiée sur la libre alliance d’amour. La famille introduit au besoin des liens de fidélité, sincérité, confiance, coopération, respect; elle encourage à projeter un monde habitable et à croire dans les rapports de confiance, même dans des conditions difficiles ; elle enseigne à honorer la parole donnée, le respect des personnes, le partage des limites personnelles et des autres. Et nous sommes tous conscients de l’attention familiale irremplaçable pour les membres les plus petits, les plus vulnérables, les plus blessés, et même les plus brisés dans les conduites de leur vie. Dans la société, ceux qui pratiquent ces attitudes, les ont apprises de l’esprit familial, et certainement pas de la compétition et du désir de réalisation de soi.
+
+Or, bien que sachant tout cela, on ne donne pas à la famille l’importance qui lui est due — ni la reconnaissance, ni le soutien — dans l’organisation politique et économique de la société contemporaine. Je voudrais dire plus: non seulement la famille n’a pas une reconnaissance adaptée, mais elle n’engendre plus l’apprentissage. On aurait parfois envie de dire que, avec toute sa science, sa technique, la société moderne n’est pas encore en mesure de traduire ces connaissances en formes meilleures de coexistence civile. Non seulement l’organisation de la vie commune se heurte toujours plus à une bureaucratie totalement étrangère aux liens humains fondamentaux, mais les comportements sociaux et politiques révèlent même souvent des signes de dégradation — agressivité, vulgarité, mépris... — qui sont bien en deçà du niveau ne serait-ce que minimum d’éducation familiale. Dans ces conditions, les extrêmes opposés de cet avilissement des rapports — c’est-à-dire la technocratie obtuse et le « familisme amoral » — se rencontrent et s’alimentent réciproquement. Cela est un paradoxe.
+
+L’Église identifie aujourd’hui dans ce point précis le sens historique de sa mission à l’égard de la famille et de l’authentique esprit familial: en commençant par une révision attentive de vie, qui la concerne elle-même. On pourrait dire que l’« esprit familial » est une charte constitutionnelle pour l’Église : c’est ainsi que le christianisme doit apparaître, et c’est ainsi qu’il doit être. Cela est écrit clairement : « Vous qui étiez loin — dit saint Paul — \[...\] vous n’êtes plus des étrangers ni des hôtes ; vous êtes concitoyens des saints, vous êtes de la maison de Dieu » ( *Ep* 2, 19). L’Église est et doit être la famille de Dieu.
+
+Jésus, lorsqu’il appela Pierre à le suivre, lui dit qu’il aurait fait de lui un « pêcheur d’hommes », et pour cela, il faut un nouveau type de filets. Nous pourrions dire qu’aujourd’hui, les familles sont l’un des filets les plus importants pour la mission de Pierre et de l’Église. Ce n’est pas un filet qui fait des prisonniers, celui-ci ! Au contraire, il libère des eaux mauvaises de l’abandon et de l’indifférence, qui engloutissent de nombreux êtres humains dans la mer de la solitude et de l’indifférence. Les familles savent bien ce qu’est la dignité de se sentir enfants et non esclaves, ou étrangers, ou uniquement un numéro de carte d’identité.
+
+C’est de là, de la famille, que Jésus recommence son passage parmi les êtres humains pour les persuader que Dieu ne les a pas oubliés. C’est de là que Pierre puise la vigueur pour son ministère. C’est de là que l’Église, obéissant à la parole du Maître, sort pêcher au large, certaine que, si cela a lieu, la pêche sera miraculeuse. Puisse l’enthousiasme des pères synodaux, animés par l’Esprit Saint, attiser l’élan d’une Église qui abandonne ses vieux filets et se remet à pêcher en ayant confiance dans la parole de son Seigneur. Prions intensément pour cela! Le Christ, par ailleurs, a promis et nous réconforte : si même les mauvais pères ne refusent pas le pain à leurs enfants affamés, combien plus Dieu donnera-t-il l’Esprit à ceux qui — bien qu’imparfaits — le demandent avec une insistance passionnée (cf. *Lc* 11, 9-13) !
+
+* * *
+
+Je suis heureux d’accueillir les pèlerins de langue française venant de France et de Suisse. Je salue chaleureusement toutes les familles, particulièrement les familles de réfugiés venant d’Irak, présentes à cette audience. Je vous invite à accompagner de votre prière et de votre attention les travaux du synode ! Que Dieu vous bénisse !

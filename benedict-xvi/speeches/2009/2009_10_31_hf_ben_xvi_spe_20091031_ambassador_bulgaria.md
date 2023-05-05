@@ -1,0 +1,33 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À S.E. M. NIKOLA IVANOV KADULOV,***
+
+***NOUVEL AMBASSADEUR DE BULGARIE PRÈS LE SAINT-SIÈGE\****
+
+*Samedi 31 octobre 2009*
+
+*Monsieur l'Ambassadeur,*
+
+Je suis heureux d'accueillir Votre Excellence en cette circonstance solennelle de la présentation des Lettres qui L'accréditent en qualité d'Ambassadeur extraordinaire et plénipotentiaire de la République de Bulgarie près le Saint-Siège. Je vous remercie, Monsieur l’Ambassadeur, pour les paroles aimables que vous m’avez adressées. En retour, je vous saurai gré de bien vouloir exprimer au Président de la République, Monsieur Georgi Parvanov, mes vœux cordiaux pour sa personne ainsi que pour le bonheur et la réussite du peuple bulgare.
+
+Je me félicite, à mon tour, des bonnes relations qu’entretiennent la Bulgarie et le Saint-Siège, dans la dynamique créée par [le voyage de mon prédécesseur le Pape Jean-Paul II dans votre pays en 2002](/content/john-paul-ii/fr/travels/sub_index/trav_azerbaijan-bulgaria-2002.html). Ces rapports méritent d’être intensifiés encore et je me réjouis d’entendre votre souhait d’œuvrer avec ardeur pour les renforcer et en élargir le champ.
+
+En cet automne, nous célébrons le vingtième anniversaire de la chute du mur de Berlin qui a permis à la Bulgarie de faire le choix de la démocratie et de retrouver des relations libres et autonomes avec l’ensemble du Continent européen. Je sais que votre pays consent aujourd'hui des efforts importants en vue d’une intégration encore plus forte dans l’Union européenne dont il fait partie depuis le 1er janvier 2007. Il est important que dans ce processus de la construction européenne chaque peuple ne fasse pas le sacrifice de sa propre identité culturelle, mais trouve au contraire les moyens de lui faire porter de bons fruits qui viendront enrichir l’ensemble communautaire. En raison de sa situation géographique et culturelle, il est particulièrement heureux, comme vous venez de l’exprimer, que votre Nation n’ait pas seulement le souci de sa propre destinée, mais qu’elle manifeste une grande attention aux pays qui sont ses voisins et travaille à favoriser leurs liens avec l’Union européenne. La Bulgarie a ainsi indubitablement un rôle important à jouer dans la construction de relations apaisées entre les pays qui l’environnent, ainsi que dans la défense et la promotion des droits de l’homme.
+
+Comme vous l’avez également souligné à l’instant, cette préoccupation pour le bien commun des peuples ne peut se limiter aux frontières du Continent, il est aussi nécessaire d’être attentif à créer les conditions d’une mondialisation réussie. Pour que celle-ci puisse être vécue positivement, il faut en effet qu’elle puisse servir « tout l’homme et tous les hommes ». C’est ce principe que j’ai voulu souligner avec force dans ma récente Encyclique *[Caritas in Veritate](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html)*. Il est essentiel en effet que le développement légitimement recherché ne concerne pas le seul domaine économique, mais prenne en compte l’intégralité de la personne humaine. La mesure de l’homme ne réside pas dans son avoir, mais dans l’épanouissement de son être selon toutes les potentialités que sa nature recèle. Ce principe trouve sa raison ultime dans l’amour créateur de Dieu, que révèle pleinement la Parole divine. En ce sens, pour que le développement de l’homme et de la société puisse être authentique, il doit nécessairement comporter une dimension spirituelle (nn. [76](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html#76.)- [77](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html#77.)). Il réclame aussi de la part de tous les responsables publics une grande exigence morale vis-à-vis d’eux-mêmes afin de pouvoir gérer la part d’autorité qui leur est confiée, de manière efficace et désintéressée. La culture chrétienne qui imprègne profondément votre peuple n’est pas uniquement un trésor du passé à conserver, mais tout autant le gage d’un avenir vraiment prometteur en ce qu’il protège l’homme des tentations qui menacent toujours de lui faire oublier sa propre grandeur ainsi que l’unité du genre humain et les exigences de solidarité qu’elle implique.
+
+C’est animé de cette intention que la communauté catholique en Bulgarie désire œuvrer à la réussite de toute la population. Ce souci partagé du bien commun constitue l’un des éléments qui devrait faciliter le dialogue entre les diverses et nombreuses communautés religieuses qui composent le paysage culturel de votre antique Nation. Ce dialogue, afin d’être sincère et constructif, requiert une connaissance et une estime réciproque que les pouvoirs publics peuvent grandement favoriser par la considération qu’ils portent eux-mêmes aux différentes familles spirituelles. Pour sa part, la communauté catholique exprime le souhait d’être généreusement ouverte à tous et de travailler avec tous ; elle le démontre concrètement à travers ses œuvres sociales dont elle ne veut pas réserver le bénéfice à ses seuls membres.
+
+C’est de façon chaleureuse que, par votre intermédiaire, Monsieur l'Ambassadeur, je souhaite saluer les évêques, les prêtres, les diacres et tous les fidèles qui forment la communauté catholique de votre Pays. Je les invite à considérer les grandes richesses que Dieu, dans l’étendue de sa miséricorde, a mises dans leurs cœurs de croyants et, pour cette raison, à s’engager avec audace, à travers une coopération aussi étroite que possible avec tous les citoyens de bonne volonté, à témoigner sur tous les plans de la dignité que Dieu a inscrite dans l’être de l’homme.
+
+Au moment où Votre Excellence inaugure officiellement ses fonctions auprès du Saint-Siège, je forme les souhaits les meilleurs pour l’heureux accomplissement de sa mission. Soyez sûr, Monsieur l'Ambassadeur, de toujours trouver auprès de mes collaborateurs l’attention et la compréhension cordiales que mérite votre haute fonction ainsi que l’affection du Successeur de Pierre pour votre pays. En invoquant l’intercession de la Vierge Marie et des saints Cyrille et Méthode, je prie le Seigneur de répandre de généreuses bénédictions sur vous-même, sur votre famille et sur vos collaborateurs, ainsi que sur le peuple bulgare et sur ses dirigeants.
+
+* * *
+
+\* *Insegnamenti di Benedetto XVI*, vol. V, 2 p.463-466.
+
+*L'Osservatore Romano* 1.11.2009 p.2.
+
+*L'Osservatore Romano. Edition hebdomadaire en langue française* n°45 p.7.
+
+© Copyright 2009 - Libreria Editrice Vaticana

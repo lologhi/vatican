@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AU MOUVEMENT POUR LA VIE ITALIEN***
+
+*Salle Clémentine*
+
+*Vendredi 11 avril 2014*
+
+*Chers frères et sœurs,*
+
+Quand je suis entré, j’ai pensé m’être trompé de porte, d’être entré dans un jardin d’enfants... Excusez-moi !
+
+Je souhaite une cordiale bienvenue à chacun de vous. Je salue M. le député, Carlo Casini, et je le remercie de ses paroles, mais je lui exprime surtout ma reconnaissance pour tout le travail qu’il a accompli pendant tant d’années au sein du Mouvement pour la vie. Je forme le vœu que, quand le Seigneur l’appellera, ce soient des enfants qui lui ouvrent la porte d’En-haut ! Je salue les présidents des centres d’aide à la vie et les responsables des divers services, en particulier du « Progetto Gemma », qui au cours de ces vingt années a permis, à travers une forme particulière de solidarité concrète, la naissance de tant d’enfants qui autrement n’auraient pas vu le jour. Je vous remercie du témoignage que vous apportez en promouvant et en défendant la vie humaine dès sa conception ! Nous le savons, la vie humaine est sacrée et inviolable. Tout droit civil repose sur la reconnaissance du premier droit fondamental, le droit à la vie, qui n’est subordonné à aucune condition, ni qualitative ni économique, et encore moins idéologique. « De même que le commandement de “ne pas tuer” pose une limite claire pour assurer la valeur de la vie humaine, aujourd’hui, nous devons dire “non à une économie de l’exclusion et de la disparité sociale”. Une telle économie tue... On considère l’être humain en lui-même comme un bien de consommation, qu’on peut utiliser et ensuite jeter. Nous avons mis en route la culture du “déchet” qui est même promue» (Exhort. apost. *[Evangelii gaudium](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html)*, n. 53). Et ainsi, la vie elle aussi est mise au rebut.
+
+Un des risques les plus graves auxquels notre époque est exposée, est le divorce entre l’économie et la morale, entre les possibilités offertes par un marché pourvu de toutes les nouveautés technologiques et les normes éthiques élémentaires de la nature humaine, toujours plus négligées. Il faut donc réaffirmer la plus ferme opposition à tout attentat dirigé contre la vie, en particulier innocente et sans défense, et l’enfant à naître dans le sein de sa mère est l’innocent par antonomase. Rappelons les paroles du Concile Vaticanii : « La vie doit donc être sauvegardée avec un soin extrême dès la conception : l’avortement et l’infanticide sont des crimes abominables » (Const. *[Gaudium et spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, n. 51). Je me souviens d’une fois, il y a très longtemps, à l’occasion d’une conférence avec des médecins. Après la conférence, j’ai salué les médecins — cela a eu lieu il y a très longtemps. Je saluais les médecins, je parlais avec eux, et l’un d’eux m’a pris à part. Il tenait un paquet et il m’a dit : « Père, je veux vous laisser cela. Ce sont les instruments que j’ai utilisés pour faire avorter. J’ai rencontré le Seigneur, je me suis repenti, et à présent je lutte pour la vie ». Il m’a remis tous ses instruments. Priez pour ce brave homme !
+
+Le témoignage évangélique suivant revient toujours à celui qui est chrétien : Protéger la vie avec courage et amour à toutes ses phases. Je vous encourage à toujours le faire selon le style de la présence, de la proximité : que chaque femme se sente considérée comme une personne, écoutée, accueillie, accompagnée.
+
+Nous avons parlé des enfants : il y en a beaucoup ! Mais je voudrais également parler des grands-parents, l’autre côté de la vie ! Car nous devons également avoir soin des grands-parents, parce que les enfants et les grands-parents sont l’espérance d’un peuple. Les enfants, les jeunes parce qu’ils le conduiront de l’avant, ils conduiront ce peuple de l’avant ; et les grands-parents parce qu’ils possèdent la sagesse de l’histoire, ils sont la mémoire d’un peuple. Conserver la vie à une époque où les enfants et les grands-parents entrent dans cette culture du déchet et sont considérés comme du matériel jetable. Non ! Les enfants et les grands-parents sont l’espérance d’un peuple !
+
+Chers frères et sœurs, que le Seigneur soutienne l’action que vous accomplirez en tant que Centres d’aide à la vie et Mouvement pour la vie, en particulier le projet « L’un d’entre nous ». Je vous confie à l’intercession céleste de la Vierge Marie et je vous bénis de tout cœur, ainsi que vos familles, vos enfants, vos grands-parents, et priez pour moi qui en ai besoin !
+
+Quand on parle de vie, le souvenir de la mère vient immédiatement à l’esprit. Adressons-nous à notre Mère, pour qu’elle nous protège tous. Je vous salue Marie...
+
+Une dernière chose. Quand les enfants pleurent, quand les enfants se plaignent, quand ils crient, c’est une très belle musique pour moi. Mais certains enfants pleurent parce qu’ils ont faim. S’il vous plaît, donnez-leur à manger ici tranquillement !

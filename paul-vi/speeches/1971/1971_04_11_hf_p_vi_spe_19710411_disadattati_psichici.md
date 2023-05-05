@@ -1,0 +1,27 @@
+***MESSAGE DU PAPE PAUL VI***
+
+***AU PÈLERINAGE INTERNATIONAL***
+
+***DES HANDICAPÉS MENTAUX À LOURDES***
+
+*Dimanche de Pâques, 11 avril 1971*
+
+Jamais encore, chers amis handicapés dans votre esprit et parfois blessés dans votre cœur, vous n’aviez connu un tel rassemblement d’amitié et de prière, autour de vous, pour vous, tout près de la grotte où Notre-Dame a bien voulu converser avec la jeune Bernadette.
+
+Cette attention humaine qui vous entoure aujourd’hui, c’est le signe du grand Amour que Dieu, notre Père des cieux, vous réserve, et que Jésus, son Fils bien-Aimé et votre Frère, n’a cessé de manifester d’abord aux handicapés de toute sorte, aux faibles, aux prisonniers, aux humbles: «Bienheureux, vous les pauvres, car le Royaume de Dieu est à vous» ( *Luc*. 6, 20). Il vous suffit de le regarder avec confiance, de l’accueillir avec amour. Et Dieu le Père fait de vous son enfant. Le Christ vous prend avec lui, comme l’un des membres de son Corps sacré. L’Esprit de Dieu habite en vous.
+
+Bien sûr, vous continuez à ressentir des limites, qui vous font tant souffrir, pour étudier, pour travailler, pour entrer en rapport avec les autres. Les savants, les médecins, les éducateurs, vos proches font tout ce qui est en leur pouvoir pour y remédier. Mais tous les hommes portent eux aussi en eux des faiblesses, des handicaps, parfois secrets. Et, vous l’avez vu ces jours-ci, Jésus lui-même, tout Fils de Dieu qu’il était, s’est trouvé un moment dépouillé de toute gloire, de toute puissance. Il a porté sa Croix avec amour. Il est ressuscité dans la Gloire. Il nous montre le chemin. Saint Paul nous l’explique: notre corps a été semé dans la misère, il ressuscitera dans la gloire; il a été semé dans la faiblesse, il ressuscitera dans la force (Cfr. *1 Cor*. 15, 43). Voilà chers Fils, la Bonne Nouvelle que Nous vous répétons de Rome en ce matin de Pâques, au nom du Seigneur Jésus.
+
+Et dès maintenant, vous prenez part à cette Vie nouvelle de Jésus, en regrettant vos péchés, en recevant le baptême, en communiant au Corps du Christ, en aimant vos frères. Oui, dès maintenant, réjouissez- vous d’être ainsi aimés de Dieu.
+
+Soyez-en sûrs: vous avez votre place dans la société. Au milieu des hommes, souvent grisés par le rendement et l’efficacité, vous êtes là, avec votre simplicité et votre joie, avec votre regard qui quête un amour gratuit, avec votre capacité merveilleuse de comprendre les signes de cet amour et d’y répondre avec délicatesse. Et dans l’Eglise, qui est avant tout une Maison de prière, vous avez plus encore un rôle de choix: pour comprendre les secrets de Dieu qui restent cachés souvent aux sages et aux habiles ( *Luc*. 10, 21); pour demander aussi à Dieu tout ce dont ont besoin vos parents, vos amis, les prêtres, les missions, toute l’Eglise, les peuples où l’on manque de pain, de paix, d’amour. Nous savons que le Christ vous écoute de façon privilégiée, que notre Mère la Vierge Marie lui présente vos prières, comme à Cana.
+
+Et vous, chers parents, Nous sommes de tout cœur avec vous. Oh! Nous devinons la blessure profonde qui vous a atteints, et qui demeure peut-être toujours ouverte. Nous Nous inclinons devant le courage patient avec lequel vous avez su y faire face, et devant l’amour privilégié dont vous vous êtes alors attachés à votre enfant. Mystérieuse souffrance des innocents, qui ne prend son sens, pour les croyants, que devant la Passion du Christ, chargée, comme elle, de la présence muette du Dieu d’amour, et promise, comme elle, à la transfiguration pascale! Oui, regardez votre enfant avec tendresse comme Dieu lui-même. Et puisse votre épreuve, avec la grâce de Dieu, vous unir au mystère du Christ, stimuler votre recherche d’un progrès humain, si ténu soit-il, fortifier votre solidarité à l’intérieur de votre foyer, et vous ouvrir à tous les autres parents d’handicapés, que vous comprenez tellement mieux que les autres! Cette foi, ce soutien, cette solidarité élargie que vous éprouvez aujourd’hui, ne sont-ils pas déjà un commencement de salut?
+
+Enfin, c’est à toute la société que Nous lançons un appel pressant. Amis et voisins, n’ayez pas de réticence pour visiter et accueillir avec égard ces frères que vous côtoyez; intégrez-les en toute simplicité, dans vos relations. Et vous, médecins, psychologues, éducateurs, enseignants, travailleurs sociaux, voués au service des handicapés mentaux, Nous vous félicitons du soin et de l’espérance que vous apportez à ces pauvres. Nous encourageons l’acharnement avec lequel vous essayez d’épanouir leurs facultés entravées. Nous souhaitons que votre témoignage ébranle dans son matérialisme l’indifférence d’une société qui ne sait plus toujours respecter la vie, qui ferme trop volontiers les yeux sur ce qui n’est pas confort, puissance, efficacité. Que les responsables de l’économie, du pouvoir, n’oublient pas d’intégrer dans leurs plans ces déshérités de leurs pays, comme ceux du Tiers-Monde! Pour Nous, c’est là le test de cet humanisme véritable, dont on veut tant se prévaloir. Et que tous les pasteurs de l’Eglise sachent entourer ces démunis, comme Jésus, de leur prédilection! Que ce pèlerinage laisse, pour tous, un sillage de foi et de lumière!
+
+Sur chacun de vous, chers fils handicapés, sur vos parents et amis, Nous implorons de grand coeur, en gage d’espérance, la Bénédiction du Sauveur, mort et ressuscité pour nous.
+
+*Du Vatican, en la fête de Pâques. 11 avril 1971.*
+
+**PAULUS PP. VI**

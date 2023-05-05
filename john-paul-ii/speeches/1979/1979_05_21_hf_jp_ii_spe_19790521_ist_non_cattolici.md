@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***À DES SUPÉRIEURS D'INSTITUTS RELIGIEUX NON CATHOLIQUES***
+
+*21 mai 1979*
+
+*Chers frères et soeurs, bien-aimés dans le Christ,*
+
+Je vous souhaite, en tant qu'Evêque de Rome, la bienvenue en ce Siège Apostolique. Il m'est particulièrement agréable de savoir que vous êtes venus ici pour une consultation œcuménique sur la vie religieuse. Votre visite offre donc une occasion propice pour réfléchir un moment ensemble sur ce thème et, grâce à cette réflexion, pour goûter la joie d'une adhésion commune aux si nobles idéaux de la vie religieuse.
+
+Parmi ces idéaux il y a le concept de la vie religieuse considérée comme une consécration spéciale à notre Seigneur Jésus-Christ, comme un moyen d'adhésion totale à sa personne divine et d'accomplissement de toutes les exigences du Baptême dans le Christ. La vie religieuse est la recherche radicale des Béatitudes ; la reconnaissance pratique de la primauté absolue du Christ dans l'Eglise et dans le monde. C'est une réponse spontanée de disciples à l'invitation du Seigneur Jésus : "Demeurez en mon amour" ( *Jn* 15, 9).
+
+Le Concile Vatican II considère que la vie religieuse a été voulue pour la plus grande sainteté de l'Eglise, pour la plus grande gloire de la Sainte Trinité qui, dans le Christ et par le Christ, est la source et l'origine de toute sainteté (cf. *[Lumen Gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)* n. 47). Il estime également que la fécondité du service ecclésial du religieux dérive de son union intime avec le Christ ( *[Perfectae Caritatis](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651028_perfectae-caritatis_fr.html)*, n. 8).
+
+Tout examen des divers aspects, nouveaux ou spéciaux, de la vie religieuse en tant qu'accomplissement de l'appel universel à la sainteté du peuple de Dieu conduit en plus, par la force des choses, à l'aspect ecclésial de la vie religieuse. Tout au long de l'histoire de l'Eglise les autorités ecclésiastiques ont protégé l'authenticité de cette vie, et cette vie a constamment été considérée dans sa relation avec tout le Corps du Christ, dans lequel les activités de chaque membre et des communautés avantagent tout le Corps en vertu du principe de l'union dynamique avec le Christ, sa Tête.
+
+Je suis convaincu qu'avec la grâce divine, vos consultations œcuméniques sur des thèmes si importants porteront des fruits qui resteront. Je prie le Saint-Esprit pour qu'il veuille éclairer de ses lumières votre réflexion sur la vie religieuse, spécialement en ce qui concerne la question de l'unité de l'Eglise — la parfaite unité que le Christ a voulue.
+
+Qui plus que le religieux pourrait ressentir dans sa prière la nécessité urgente non seulement de manifester l'unité mais aussi de la vivre dans toute sa plénitude de vérité et de charité. Et si nous avons le sentiment de cette urgence, — un sentiment qui lui-même est un don de Dieu — ne sentons-nous pas également le besoin de cette croissante purification, de cette conversion toujours accrue des cœurs que Dieu semble exiger de nous comme première condition de l'union collective de tous les chrétiens ? Et cette paix spirituelle que le religieux s'efforce d'acquérir par son adhésion totale au Seigneur, ne l'engage-t-elle pas toujours plus étroitement, par amour, à suivre jusqu'au bout la volonté de Dieu pour son Eglise ? Le religieux n'est-il pas tout particulièrement appelé à se faire le porte-parole des chrétiens qui désirent ardemment que les dialogues œcuméniques — qui, par nature sont temporaires aboutissent — finalement à cette pleine unité ecclésiale "qui est avec le Père et avec son Fils Jésus-Christ" (1 *Jn* 1, 3) ? Le religieux ne doit-il pas être le premier à se consacrer avec toute sa générosité à la réalisation du plan salvifique de Dieu, en demandant avec saint Paul "Que dois-je faire Seigneur ?" ( *Ac* 22, 10) ?
+
+Chers frères et sœurs, ceci est un moment de joie, né, non pas de la satisfaction, mais de l'humble et repentant désir d'accomplir la volonté de Dieu. Et, simultanément, c'est un moment de confiance en "Jésus-Christ, qui, de par Dieu, est devenu pour nous sagesse, justice et sanctification, rédemption" (1 *Co* 1, 30). C'est vers Lui que nous tournons nos cœurs quand nous invoquons la puissance de ses mérites pour nous soutenir lorsque nous attendons, avec nos généreux sacrifices, la pleine révélation de son Royaume, la consommation de notre unité dans le Christ : "Le Royaume vient ; il sera fait".
+
+Je voudrais vous prier de transmettre à vos communautés mes salutations et mes encouragements à vivre profondément "dans la foi au Fils de Dieu" ( *Ga* 2, 20). Avec l'expression de mon amitié et de mon estime, je vous donne l'assurance de mon amour en le Christ Jésus Notre Seigneur.
+
+© Copyright 1979 - Libreria Editrice Vaticana

@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX MEMBRES DU MOUVEMENT « FOI ET LUMIÈRE INTERNATIONAL »***
+
+*Salle Clémentine*
+
+*Samedi 2 octobre 2021*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/10/2/movimento-foi-et-lumiere.html)\]**
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Chers frères et sœurs, bonjour !
+
+Je vous souhaite la bienvenue et je remercie Monsieur Raúl Izquierdo Garcia, votre Assistant spirituel, pour ses mots d’introduction. Vous célébrez votre Jubilé : c’est une belle occasion de rendre grâce, de reconnaître les dons que le Seigneur vous a donnés durant ces années de cheminement, et pour lui exprimer votre gratitude. Et en même temps ce Jubilé devient aussi une occasion de regarder l’avenir, la tâche que l’Esprit Saint vous confie encore avec les fruits que l’Eglise attend encore de *Foi et Lumière*, de par la vocation et la mission reçues du Seigneur.
+
+Cinquante ans se sont écoulés depuis ce pèlerinage à Lourdes, à Pâques 1971, auquel étaient conviées des personnes handicapées mentales, leurs familles et de nombreux amis. A partir de ce moment, sous le regard d’amour de Marie, l’expérience de *Foi et Lumière* a commencé : l’Esprit Saint a suggéré la naissance d’une chose que personne n’avait prévue, c’est-à-dire vos communautés où vous célébrez la joie, la réconciliation et la communion réciproque. Ainsi la lumière et la force du Seigneur ressuscité ont donné de l’espérance à de nombreuses personnes qui se sentaient exclues et refusées, parfois aussi dans l’Eglise.
+
+A partir de ce moment, l’Esprit Saint a accompagné le cheminement de votre Mouvement et de nombreuses communautés “Foi et Lumière” sont nées dans de nombreux pays des cinq continents, portant un message d’amour et d’accueil. Ce message est le cœur de l’Evangile ! Il nous rappelle que toute personne, même et surtout la plus petite et la plus fragile, est aimée de Dieu et a sa place dans l’Eglise et dans le monde. C’est l’“Evangile de la petitesse”, comme nous le rappelle saint Paul lorsqu’il écrit aux Corinthiens : « Frères, vous qui avez été appelés par Dieu, regardez bien : parmi vous, il n’y a pas beaucoup de sages aux yeux des hommes, ni de gens puissants ou de haute naissance. Au contraire, ce qu’il y a de fou dans le monde, voilà ce que Dieu a choisi, pour couvrir de confusion les sages ; ce qu’il y a de faible dans le monde, voilà ce que Dieu a choisi, pour couvrir de confusion ce qui est fort ; ce qui est d’origine modeste, méprisé dans le monde, ce qui n’est pas, voilà ce que Dieu a choisi, pour réduire à rien ce qui est ; ainsi aucun être de chair ne pourra s’enorgueillir devant Dieu » (1 *Co* 1, 26-29).
+
+La présence de *Foi et Lumière* a été et est une prophétie parce que les personnes les plus fragiles sont souvent rejetées, considérées comme inutiles. Et votre prophétie est encore plus importante aujourd’hui, pour combattre la culture du rejet et pour rappeler à tous que la diversité est une richesse et ne doit jamais devenir un motif d’exclusion et de discrimination.
+
+Nous pouvons voir ces cinquante années de *Foi et Lumière* comme un grand pèlerinage, comme une continuation idéale du premier pèlerinage. Et c’est aussi un cheminement œcuménique, car des personnes de différentes confessions chrétiennes se rencontrent dans vos communautés : catholiques, protestants, anglicans, orthodoxes… Un signe de communion, une semence concrète d’unité.Ce sont précisément les personnes les plus fragiles qui deviennent source de réconciliation, car elles nous appellent tous à un chemin de conversion.
+
+Le chemin que vous avez parcouru est long et plein de fruits, mais aujourd’hui encore dans l’Eglise et dans le monde, nombreux sont ceux qui, dans la petitesse et la fragilité, sont oubliés et exclus.C’est pourquoi je vous encourage à poursuivre votre présence accueillante avec la puissance du Saint-Esprit ; que vos communautés soient toujours des lieux de rencontre, de promotion humaine et de fête pour tous ceux qui se sentent encore marginalisés et abandonnés.Pour les familles qui vivent l’expérience de la naissance d’un enfant handicapé, puissiez-vous être un signe d’espérance, afin que personne ne se replie sur soi-même, dans la tristesse et le désespoir.
+
+Au sein des communautés chrétiennes, je vous invite à avoir le style évangélique du levain : ne pas s’isoler ni s’enfermer, mais participer à la vie de l’Eglise dans les paroisses et dans les quartiers, apporter votre expérience et témoigner du choix de Dieu pour les derniers, les petits, les exclus. Que l’esprit de communion et d’amitié, qui fait partie de votre charisme, fasse toujours de vous des instruments de réconciliation et de paix, surtout là où il y a des conflits et des divisions.
+
+L’emblème qui représente votre expérience, votre “logo”, est une barque sur une mer agitée, tandis que le soleil se lève au-dessus des nuages après la tempête.Au cours de cette pandémie, j’ai rappelé à plusieurs reprises, en pensant à l’épisode évangélique des disciples dans la tempête, que nous sommes tous dans la même barque ; et je vous confirme donc dans votre engagement : être, dans les tempêtes que vivent les personnes et les familles, une petite barque sur laquelle tout le monde peut trouver une place, dans la certitude que le Seigneur Jésus est sur cette barque.Que le soleil de la foi et de l’espérance, qui se lève au-dessus des nuages de nos peurs et de nos insécurités, vous accompagne toujours sur le chemin qui vous attend encore. Que le Seigneur vous bénisse et que la Vierge Marie vous garde. Et s’il vous plaît, n’oubliez pas de prier pour moi. Merci !

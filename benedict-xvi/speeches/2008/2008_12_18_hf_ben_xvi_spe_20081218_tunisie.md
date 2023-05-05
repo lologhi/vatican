@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE BENOÎT XVI**À S.E. Mme RAFIÂA LIMAM BAOUENDI,**NOUVEL AMBASSADEUR DE TUNISIE***
+
+***PRÈS LE SAINT-SIÈGE***
+
+*Salle Clémentine*
+
+*Jeudi 18 décembre 2008*
+
+*Madame l’Ambassadeur,*
+
+Je vous accueille avec plaisir au moment où vous présentez les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de Tunisie auprès du Saint-Siège. Je vous remercie des aimables paroles que vous m’avez adressées ainsi que des salutations de Son Excellence Monsieur Zine El Abidine Ben Ali, Président de la République. Je vous saurais gré de bien vouloir lui transmettre mes remerciements ainsi que mes vœux cordiaux pour Sa personne ainsi que pour le peuple tunisien tout entier.
+
+Le progrès économique et social est une nécessité pour permettre à chaque personne comme à chaque famille de jouir du bien-être nécessaire à son plein développement. Je me réjouis donc de savoir qu’au cours des dernières années votre pays a connu une progression sensible dans ces domaines. Dans la difficile situation économique que connaît actuellement le monde, il est nécessaire qu’une authentique solidarité se mette en place aussi bien à l’intérieur de chaque pays qu’entre les nations, afin que les plus pauvres ne soient pas encore plus pénalisés. En effet, une croissance économique obtenue au détriment des êtres humains, de peuples entiers et de groupes sociaux, condamnés à l’indigence et à l’exclusion, n’est pas acceptable (cf. *[Compendium de la doctrine sociale de l’Église, n. 332](http://www.vatican.va/roman_curia/pontifical_councils/justpeace/documents/rc_pc_justpeace_doc_20060526_compendio-dott-soc_fr.html#II.%20MORALE%20ET%20%C3%89CONOMIE))*.
+
+Par ailleurs, le progrès économique doit aller de pair avec le développement de la formation humaine et spirituelle des personnes. En effet, la vie de l’homme ne peut être réduite à une dimension matérielle. Je salue les efforts accomplis par la Tunisie pour l’éducation de la jeunesse. Face aux difficultés et aux incertitudes de la vie, ou encore parfois devant un certain effacement des repères qui donnent sens à l’existence, il est nécessaire que les jeunes générations reçoivent une solide éducation pour les aider à affronter les rapides transformations des sociétés. Une attention particulière aux diversités culturelles et religieuses, leur permettra de mieux s’intégrer dans un monde qui se caractérise de plus en plus par un brassage des cultures et des religions, ainsi que de contribuer à l’édification d’un monde plus fraternel et plus solidaire.
+
+En effet, le dialogue entre les cultures et entre les religions est de nos jours une nécessité incontournable, afin de pouvoir agir ensemble pour la paix et la stabilité du monde ainsi que pour promouvoir le respect authentique de la personne et des droits fondamentaux de l’homme. D’ailleurs, la reconnaissance de la place centrale de la personne et de la dignité de chaque être humain, ainsi que le respect de la vie qui est un don de Dieu et qui est donc sacrée, sont une base commune pour construire un monde plus harmonieux et plus accueillant aux légitimes diversités. L’édification d’une société où chacun est reconnu dans sa dignité implique aussi le respect de la liberté de conscience et de la liberté de religion pour chacun. Car l’expression des convictions religieuses authentiques est la manifestation la plus vraie de la liberté humaine.
+
+La position qu’occupe la Tunisie au Maghreb l’invite à jouer un rôle important au niveau international, particulièrement en Méditerranée et en Afrique. L’établissement de relations de bon voisinage entre les nations ne peut que contribuer à une prise de conscience plus claire de l’appartenance commune à l’unique famille humaine. La coopération et les échanges entre les nations sont donc à encourager non seulement pour garantir à tous le droit au développement, mais aussi pour établir une authentique communauté de frères et de sœurs, appelés à former une grande famille. Pour cela, au-dessus de la logique étroite de relations de marché, la vie sociale doit s’appuyer sur le fondement solide de valeurs spirituelles et éthiques communes pour répondre aux exigences du bien commun et préserver les droits des plus faibles.
+
+Madame l’Ambassadeur, l’Église catholique manifeste sa présence dans la société tunisienne notamment par ses institutions éducatives ou encore dans le domaine de la santé ou de l’attention aux personnes handicapées. Par ses engagements au service de la population, sans distinction d’origine ou de religion, elle entend contribuer, à sa manière, au bien commun. Le respect et la bienveillance manifestés à l’égard de ces institutions ecclésiales sont un signe de la confiance dont elles jouissent de la part des Autorités et de la population. Je ne peux que m’en réjouir.
+
+En effet, vous le savez, la communauté catholique de Tunisie, que je vous saurais gré de saluer chaleureusement de ma part, se rattache à une antique tradition qui a marqué la vie culturelle et spirituelle de votre pays. Des saints et des saintes comme Cyprien, Perpétue et Félicité et tant d’autres y ont témoigné du Dieu unique jusqu’au don de leur vie. J’invite donc les catholiques, en communion profonde avec leur Évêque, à manifester ardemment autour d’eux, à l’image de leurs Pères dans la foi, l’amour de Dieu qui les anime et à être des témoins rayonnants de l’espérance qu’ils portent en eux.
+
+Alors que vous inaugurez votre mission auprès du Saint-Siège, je vous offre, Madame l’Ambassadeur, mes vœux cordiaux pour son heureux accomplissement, afin que se poursuivent et se développent des relations harmonieuses entre le Saint-Siège et la Tunisie, et je vous assure que vous trouverez toujours un accueil attentif auprès de mes collaborateurs.
+
+Sur Votre Excellence, sur sa famille et sur ses collaborateurs, ainsi que sur les Responsables et sur tous les habitants de la Tunisie, j’invoque de grand cœur l’abondance des Bénédictions du Tout-Puissant.
+
+*Au Vatican, le 18 décembre 2008.*
+
+© Copyright 2008 - Libreria Editrice Vaticana

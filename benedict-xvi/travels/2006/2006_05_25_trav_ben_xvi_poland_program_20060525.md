@@ -1,0 +1,1 @@
+Transfert en voiture panoramique de la nonciature apostolique à la Place Piłsudski de Varsovie

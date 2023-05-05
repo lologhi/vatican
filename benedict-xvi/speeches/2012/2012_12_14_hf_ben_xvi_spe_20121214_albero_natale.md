@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À LA DÉLÉGATION DE LA COMMUNE ITALIENNE DE PESCOPENNATARO (MOLISE),***
+
+***EN REMERCIEMENT DU SAPIN DE NOËL*** ***PLACE SAINT-PIERRE***
+
+*Salle Clémentine*
+
+*Vendredi 14 décembre 2012*
+
+*Chers frères et sœurs !*
+
+Je suis heureux de vous accueillir le jour où est présenté l’arbre de Noël de la place Saint-Pierre, un sapin qui cette année provient de Pescopennataro, dans la province d’Isernia, dans le Molise. Je pense que tout le village est ici présent aujourd’hui ! J’adresse à chacun mes salutations cordiales, à commencer par le maire, M. Pompilio Sciulli, que je remercie des paroles qu’il vient de m’adresser au nom des personnes présentes. Je salue en outre les autres autorités civiles, avec une pensée particulière pour le président de la région. Je suis heureux de saluer avec une affection fraternelle l’évêque de Trivento, Mgr Domenico Scotti, et le curé de Pescopennataro.
+
+Ce soir, au terme de la cérémonie de remise officielle, les lumières qui ornent l’arbre seront allumées. Celui-ci restera à côté de la crèche jusqu’à la fin des festivités de Noël et sera admiré par les nombreux pèlerins, provenant de toutes les parties du monde. Merci pour ce pieu hommage, ainsi que pour les autres arbres plus petits destinés au Palais apostolique et aux salles du Vatican ! Le sapin blanc que vous avez voulu me donner, chers habitants de Pescopennataro et de toute la région du Molise, manifeste également la foi et la générosité du peuple molisan, qui à travers les siècles, a conservé un important trésor spirituel exprimé à travers la culture, l’art et les traditions locales. La tâche de chacun d’entre vous et de vos compatriotes est de puiser constamment à ce patrimoine et de le développer, pour pouvoir affronter les nouvelles urgences sociales et les défis culturels actuels, dans le sillage de la fidélité au christianisme consolidée et féconde.
+
+Je souhaite de tout cœur à vous tous ici présents, à vos concitoyens et à tous les habitants de votre région, de passer avec sérénité et intensité le Noël du Seigneur. Selon le célèbre oracle du prophète Isaïe, il est apparu comme une grande lumière pour le peuple qui marchait dans les ténèbres (cf. *Is* 9, 1). Dieu s’est fait homme et il est venu habiter parmi nous pour dissiper les ténèbres de l’erreur et du péché, apportant à l’humanité sa lumière divine. Cette lumière très haute, dont l’arbre de Noël est le signe et le rappel, non seulement n’a pas diminué d’intensité au fil des siècles et des millénaires, mais elle continue à resplendir sur nous et à illuminer chaque homme qui vient au monde, en particulier quand nous devons traverser des moments d’incertitude et de difficulté. Jésus lui-même dira à propos de lui : « Je suis la lumière du monde. Celui qui me suit ne marchera pas dans les ténèbres, il aura la lumière de la vie » ( *Jn* 8, 12).
+
+Et lorsqu’à différentes époques, on a tenté d’éteindre la lumière de Dieu, pour allumer des flammes illusoires et trompeuses, des saisons marquées par de tragiques violences sur l’homme sont apparues. Car lorsque l’on cherche à effacer le nom de Dieu sur les pages de l’histoire, le résultat est que l’on trace des lignes tordues, où même les paroles les plus belles et les plus nobles perdent leur véritable signification. Pensons à des termes comme « liberté », « bien commun », « justice » : privés de l’enracinement en Dieu et dans son amour, dans le Dieu qui a montré son visage en Jésus Christ, ces réalités restent très souvent en proie aux intérêts humains, en perdant leur lien avec les exigences de vérité et de responsabilité civile.
+
+Chers amis, je vous remercie encore de tout cœur pour le geste que vous avez accompli. Votre arbre est celui de l’ *Année de la foi*: que le Seigneur veuille récompenser votre don, en renforçant la foi en vous et dans vos communautés ! Je le demande par l’intercession de la Vierge Marie, Celle qui la première a accueilli et suivi le Verbe de Dieu fait homme, alors que je donne de tout cœur à vous et à vos familles ma Bénédiction apostolique.

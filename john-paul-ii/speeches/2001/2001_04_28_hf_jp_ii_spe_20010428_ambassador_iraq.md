@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***LORS DE LA PRÉSENTATION DES LETTRES DE CRÉANCE***
+
+***DU NOUVEL AMBASSADEUR D'IRAK\****
+
+*Samedi 28 avril 2001*
+
+*Monsieur l'Ambassadeur,*
+
+Je suis heureux de vous accueillir au Vatican et d'accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République d'Irak près le Saint-Siège. Je désire vous assurer de mon estime pour le peuple irakien, que je rappelle tous les jours dans mes prières, en particulier à la lumière des difficultés continuelles auxquelles il doit faire face. Tandis que l'embargo dans votre pays continue de provoquer des victimes, je renouvelle mon appel à la Communauté internationale afin qu'elle évite que des personnes innocentes ne paient les conséquences d'une guerre destructrice, dont les effets sont encore ressentis par ceux qui sont les plus faibles et les plus vulnérables.
+
+Monsieur l'Ambassadeur, vous avez mentionné la présence du Saint-Siège au sein de la Communauté internationale, ainsi que ses efforts au service de la famille humaine partout dans le monde. En effet, le Saint-Siège recherche une "saine coopération" (Constitution pastorale sur l'Eglise dans le monde de ce temps *Gaudium et spes*, n. 76) entre l'Eglise et la communauté politique, qui serve les personnes, les peuples, les nations et le monde tout entier. En effet, le monde d'aujourd'hui, bien que tristement frappé dans de nombreuses régions du monde par les tensions, la violence et les conflits armés, recherche une plus grande égalité et stabilité afin que toute la famille humaine puisse vivre dans la véritable justice et une paix durable. Il ne s'agit pas de concepts abstraits ou d'idéaux lointains, mais de valeurs qui habitent le coeur de chaque individu et nation, et auxquelles tous les peuples ont droit. C'est précisément la poursuite de cette justice et de cette paix qui est la force motrice de toute l'activité du Saint-Siège dans le domaine de la diplomatie internationale. Alors que la situation mondiale actuelle - avec les maladies, la pauvreté, les injustices et la guerre qui provoquent encore de nombreuses souffrances et difficultés - pourrait faire douter de la capacité de la Communauté internationale à guérir les maux du monde, le Saint-Siège croit fermement, comme j'ai eu l'occasion de le souligner au début de cette année, que, "sans la solidarité sociale ou le recours aux droits et aux instruments de la diplomatie, ces terribles situations seraient encore plus dramatiques et pourraient même devenir insolubles" ( *Discours au Corps diplomatique accrédité près le Saint-Siège*, 13 janvier 2001, n. 1; cf. ORLF n. 3 du 16 janvier 2001).
+
+Des milliers d'années d'histoire humaine ont clairement montré que l'humanité a toujours été tentée d'édifier un monde de "fermeture de l'homme sur lui-même dans une attitude de suffisance, de domination, de puissance et d'orgueil" ( *ibid*., n. 6). Le Saint-Siège considère donc comme l'un de ses principaux devoirs de rappeler à l'opinion publique qu'"aucune autorité, aucun programme politique, aucune idéologie n'est habilité à réduire l'homme à ce qu'il est capable de faire ou de produire" (ibid., n. 7). Les droits inaliénables et la dignité personnelle de chaque être humain doivent être soutenus,  la dimension transcendantale de la personne humaine doit être défendue. "Même si certains répugnent à évoquer la dimension religieuse de l'homme et de son histoire, même si d'autres voudraient réduire la religion à la sphère du privé, même si d'autres encore persécutent les communautés de croyants, les chrétiens continueront de proclamer que l'expérience religieuse fait partie de l'expérience humaine. Elle est un élément vital pour la construction de la personne et de la société à laquelle les hommes appartiennent" ( *Ibid*.).
+
+Dans ce contexte, mes pensées se tournent naturellement vers les membres de la communauté catholique irakienne. Avec leurs concitoyens musulmans, les chrétiens irakiens veulent oeuvrer pour l'unité et l'harmonie. Leur foi chrétienne et leurs valeurs les invirent à cultiver un esprit de respect mutuel, avec un sens de fierté pour leur identité nationale et une préoccupation pour le progrès de leur pays. En Irak, comme dans le monde entier, le dialogue entre les chrétiens et les musulmans est plus nécessaire que jamais. A travers ce dialogue, les croyants pourront répondre de façon positive à l'appel au respect mutuel, au dépassement de toute forme de discrimination et au service du bien commun dans un esprit de fraternité et de compréhension. De la même façon, chaque gouvernement a l'obligation d'assurer que l'égalité de tous les citoyens devant la loi ne soit jamais violée pour des motifs religieux, que ce soit de façon ouverte ou insidieuse.
+
+Monsieur l'Ambassadeur, à travers votre longue expérience et vos hautes qualifications, je suis certain que votre mandat contribuera à renforcer considérablement les liens d'amitié entre votre gouvernement et le Saint-Siège. Je vous présente mes meilleurs voeux pour le succès de votre mission et je vous assure de toute l'assistance possible dans l'accomplissement de vos responsabilités. Sur vous, ainsi que sur le bien-aimé peuple irakien, j'invoque cordialement les nombreuses Bénédictions de Dieu tout-puissant.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n. 22 p.10
+
+.
+
+© Copyright 2001 - Libreria Editrice Vaticana

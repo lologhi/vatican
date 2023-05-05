@@ -1,0 +1,27 @@
+ILLUMINATION VIA INTERNET
+
+DU SAPIN DE NOËL DE GUBBIO (ITALIE)
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+*Salle des Foconi*
+
+*Mercredi 7 décembre 2011*
+
+*Chers habitants de Gubbio ! Chers amis !*
+
+C’est bien volontiers que j’ai accueilli l’invitation à allumer le grand arbre de Noël qui chaque année domine la ville de Gubbio. Je remercie le comité d’organisation et, en particulier, l’évêque Mgr Ceccobelli pour les paroles qu’il m’a adressées au nom de la ville et du diocèse de Gubbio. Un salut à vous tous, qui êtes rassemblés sur la place de Gubbio ou en liaison avec nous à travers la télévision !
+
+Avant d’allumer les lampes de l’arbre, je voudrais formuler un triple et simple vœu.
+
+Ce grand arbre de Noël est situé sur les pentes du Mont Ingino au sommet duquel, comme le rappelait l’évêque, se trouve également la basilique du patron de Gubbio, saint Ubaldo. En le contemplant, notre regard est attiré de façon naturelle vers le haut, vers le Ciel, vers le monde de Dieu.
+
+Ainsi, mon premier vœux est que notre regard, celui de l’esprit et du cœur, ne s’arrête pas seulement à l’horizon de notre monde, aux choses matérielles, mais qu’il soit un peu comme cet arbre, qu’il sache tendre vers le haut, qu’il sache s’adresser à Dieu. Lui ne nous oublie jamais, mais il demande que nous non plus, nous ne l’oublions pas !
+
+L’Evangile nous dit que pendant la nuit de Noël, une lumière enveloppa les pasteurs (cf. *Lc* 2, 9-11) leur annonçant une grande joie : la naissance de Jésus, de Celui qui vient apporter la lumière, ou mieux, de Celui qui est la véritable lumière qui illumine chaque homme (cf. *Jn* 1, 9). Le grand arbre que j’allumerai d’ici peu domine la ville de Gubbio et illuminera par sa lumière l’obscurité de la nuit.
+
+Le deuxième vœu est que celui-ci rappelle que nous avons nous aussi besoin d’une lumière qui illumine le chemin de notre vie et nous apporte l’espérance, en particulier à notre époque, où nous ressentons de manière particulière le poids des difficultés, des problèmes, des souffrances, et où un voile de ténèbres semble nous envelopper. Mais quelle lumière est capable d’illuminer véritablement notre cœur et de nous donner une espérance ferme, sûre ? C’est précisément l’Enfant que nous contemplons lors de Noël, dans une simple et pauvre grotte, car il est le Seigneur qui se fait proche de chacun de nous et qui demande que nous l’accueillions à nouveau dans notre vie, qui nous demande de l’aimer, d’avoir confiance en Lui, de sentir qu’il est présent, qu’il nous accompagne, qu’il nous soutient, qu’il nous aide.
+
+Mais ce grand arbre est formé par tant de lumières. Le dernier vœu que je voudrais formuler est que chacun de nous sache porter un peu de lumière dans les milieux dans lesquels il vit: en famille, au travail, dans son quartier, dans les villages, dans les villes. Que chacun soit une lumière pour celui qui est à ses côtés; qu’il sorte de l’égoïsme qui ferme souvent le cœur et incite à penser uniquement à soi-même; qu’il donne un peu d’attention à l’autre, un peu d’amour. Chaque petit geste de bonté est comme une lumière de ce grand arbre: avec les autres lumières, il est capable d’illuminer l’obscurité de la nuit, même la plus sombre.
+
+Je vous remercie donc, et que la lumière et la bénédiction du Seigneur descende sur tous.

@@ -1,0 +1,29 @@
+***DISCOURS DU  PAPE FRANÇOIS***
+
+***À LA DÉLÉGATION DE LA "GLOBAL FOUNDATION"***
+
+*Salle du Consistoire*
+
+*Samedi, 14 janvier 2017*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/1/14/delegazione-globalfoundation.html)\]**
+
+* * *
+
+*Chers amis,*
+
+Je suis heureux d’être avec vous pour cette nouvelle édition de la « Table Ronde » de Rome de la *Global Foundation,* autour de laquelle vous vous réunissez, inspirés par la devise de la fondation — « Ensemble nous nous engageons pour le bien commun global » (« *Together we strive for the global common good* ») —, afin d’identifier les voies justes, capables de conduire à une mondialisation « coopérative », c’est-à-dire positive, opposée à la mondialisation de l’indifférence. L’objectif est de garantir que la communauté globale, formée par les institutions, les entreprises et les représentants de la société civile, puisse atteindre effectivement les objectifs et les obligations internationales solennellement déclarés et pris, comme par exemple ceux de l’ *Agenda 2030* pour le développement durable et les *Objectifs de développement* durable.
+
+Je voudrais avant tout répéter qu’un système économique mondial qui met au rebut hommes, femmes et enfants, parce qu’ils semblent ne plus être utiles selon les critères de rentabilité des entreprises ou d’autres organisations, est inacceptable, parce qu’inhumain. Cette mise au rebut des personnes constitue précisément la régression et la déshumanisation de tout système politique et économique : ceux qui causent ou permettent le rejet des autres — réfugiés, enfants victimes d’abus ou esclavagisés, pauvres qui meurent dans la rue quand il fait froid — deviennent eux-mêmes des machines sans âme, acceptant implicitement le principe qu’eux aussi, tôt ou tard, seront écartés — cela est un boomerang! Mais c’est la vérité : tôt ou tard, il seront écartés — quand ils ne seront plus utiles à une société qui a mis au centre le dieu argent.
+
+En 1991, saint [Jean-Paul II](http://w2.vatican.va/content/john-paul-ii/fr.html), face à l’effondrement de systèmes politiques oppressifs et à l’intégration progressive des marchés que nous appelons désormais habituellement mondialisation, mettait en garde contre le risque que se répande partout l’idéologie capitaliste. Celle-ci aurait comporté une considération très faible ou nulle envers les phénomènes de la marginalisation, de l’exploitation et de l’aliénation humaine, ignorant les multitudes qui vivent encore dans des conditions de pauvreté matérielle et morale, et en confiait aveuglément la solution au seul libre développement des forces du marché. Mon prédécesseur, en se demandant si un tel système économique était le modèle à proposer à ceux qui cherchaient la voie du véritable progrès économique et social, parvint à une réponse clairement négative. Ce n’est pas la voie (cf. [*Centesimus annus*, 42](http://w2.vatican.va/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_01051991_centesimus-annus.html)).
+
+Malheureusement, les risques redoutés par saint Jean-Paul II se sont amplement réalisés. Cependant, dans le même temps, de nombreux efforts d’individus et d’institutions se sont développés pour apporter un remède au maux produits par une mondialisation irresponsable. Mère Teresa de Calcutta, que j’ai eu la joie de proclamer sainte il y a quelques mois et qui est un symbole et une icône de notre époque, représente et résume d’une certaine façon ces efforts. Elle s’est penchée sur les personnes épuisées, que l’on laissait mourir au bord de la route, reconnaissant en chacune d’elles la dignité donnée par Dieu. Elle a accueilli toute vie humaine, la vie non née et la vie abandonnée et rejetée, et elle a fait entendre sa voix aux puissants de la terre pour qu’ils reconnaissent les crimes de la pauvreté qu’ils avaient eux-mêmes créée (cf. *[Homélie lors de la canonisation de Mère Teresa de Calcutta](http://w2.vatican.va/content/francesco/fr/homilies/2016/documents/papa-francesco_20160904_omelia-canonizzazione-madre-teresa.html)*, 4 septembre 2016).
+
+Telle est la première attitude qui peut conduire à une mondialisation solidaire et coopérative. Il faut, avant tout, que chacun, personnellement, ne soit pas indifférent aux blessures des pauvres, mais apprenne à com-patir avec ceux qui souffrent à cause des persécutions, de la solitude, du déplacement forcé ou de la séparation d’avec leur famille ; avec ceux qui n’ont pas accès aux soins de santé ; avec ceux qui souffrent de la faim, du froid ou de la chaleur.
+
+Cette compassion aidera les agents économiques et politiques à utiliser leur intelligence et leurs ressources non seulement pour contrôler et surveiller les effets de la mondialisation, mais aussi pour aider les responsables dans les différentes domaines politiques — régionaux, nationaux et internationaux — à en *corriger l’orientation* chaque fois que cela est nécessaire. La politique et l’économie, en effet, devraient comporter l’exercice de la vertu de la prudence.
+
+L’Église est toujours confiante, parce qu’elle connaît les grands potentiels de l’intelligence humaine qui se laisse aider et guider par Dieu, ainsi que la bonne volonté des petits et des grands, des pauvres et des riches, des entrepreneurs et des travailleurs. C’est pourquoi je vous encourage à poursuivre votre engagement, toujours guidés par la doctrine sociale de l’Église, en promouvant une globalisation coopérative avec tous les acteurs concernés — société civile, gouvernements, organismes internationaux, communautés académiques et scientifiques et autres — et je souhaite le succès à votre travail.
+
+Je vous remercie de votre attention et je vous assure de ma prière ; et je vous prie de transmettre mon salut personnel, ainsi que ma bénédiction, à vos familles et à vos collaborateurs. Merci.

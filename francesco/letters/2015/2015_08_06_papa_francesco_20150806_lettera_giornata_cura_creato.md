@@ -1,0 +1,29 @@
+***LETTRE DU PAPE FRANÇOIS*** ***POUR L'INSTITUTION DE LA "JOURNÉE MONDIALE***
+
+***DE PRIÈRE POUR LA SAUVEGARDE DE LA CRÉATION"*\[1er SEPTEMBRE\]**
+
+*A mes Vénérables Frères*
+
+**le** **Cardinal Peter Kodwo Appiah TURKSON**
+
+*Président du Conseil pontifical ‘‘Justice et Paix’’*
+
+**et le Cardinal Kurt KOCH** *Président du Conseil pontifical pour la Promotion de l’Unité des Chrétiens*
+
+Partageant avec mon frère bien-aimé le Patriarche Œcuménique Bartholomée la même inquiétude pour l’avenir de la création (cf Lett. Enc. *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, 7-9), et accueillant la suggestion de son représentant, le Métropolite Jean de Pergame, qui est intervenu à la présentation de l’Encyclique *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)* sur la sauvegarde de notre maison commune, je souhaite vous communiquer ma décision d’instituer également dans l’Eglise catholique une “Journée Mondiale de Prière pour la Sauvegarde de la Création”. A partir de cette année, cette journée sera célébrée le 1er septembre, comme cela se fait déjà au sein de l’Eglise orthodoxe.
+
+En tant que chrétiens, nous souhaitons offrir notre contribution à la résolution de la crise écologique à laquelle l’humanité est actuellement confrontée. Pour cela nous devons avant tout puiser dans notre riche patrimoine spirituel les motivations qui nourrissent la passion pour la sauvegarde de la création, en n’oubliant jamais que pour les croyants en Jésus Christ, Verbe de Dieu qui s’est fait homme pour nous, « la spiritualité n’est déconnectée ni de notre propre corps, ni de la nature, ni des réalités de ce monde ; \[elle\] se vit plutôt avec celles-ci et en elles, en communion avec tout ce qui nous entoure » ( *ibid*., 216) . La crise écologique nous appelle donc à une conversion spirituelle profonde : les chrétiens sont appelés à une « c *onversion écologique*, qui implique de laisser jaillir toutes les conséquences de leur rencontre avec Jésus-Christ sur les relations avec le monde qui les entoure » ( *ibid*., 217). En effet, « Vivre la vocation de protecteurs de l’œuvre de Dieu est une part essentielle d’une existence vertueuse ; cela n’est pas quelque chose d’optionnel ni un aspect secondaire dans l’expérience chrétienne » ( *ibid*).
+
+La Journée Mondiale annuelle de Prière pour la Sauvegarde de la Création offrira à chacun des croyants et aux communautés la précieuse opportunité de renouveler leur adhésion personnelle à leur vocation de gardiens de la création, en rendant grâce à Dieu pour l’œuvre merveilleuse qu’Il a confiée à nos soins et en invoquant son aide pour la protection de la création et sa miséricorde pour les péchés commis contre le monde dans lequel nous vivons. La célébration de cette Journée à la même date que l’Eglise orthodoxe sera une occasion propice pour témoigner de notre communion croissante avec nos frères orthodoxes. Nous vivons à une époque où tous les chrétiens sont confrontés à des défis identiques et importants, auxquels nous devons apporter des réponses communes pour être plus crédibles et efficaces. C’est pourquoi je souhaite que cette Journée puisse impliquer également, d’une manière ou d’une autre, d’autres Eglises et Communautés ecclésiales et qu’elle soit célébrée en consonance avec les initiatives que le Conseil Œcuménique des Eglises organise sur ce thème.
+
+A vous, Cardinal Turkson, Président du [Conseil pontifical ‘‘Justice et Paix’’](http://www.vatican.va/roman_curia/pontifical_councils/justpeace/index_fr.htm), je demande d’informer les Commissions Justice et Paix des Conférences Episcopales ainsi que les Organisations nationales et internationales engagées dans le domaine écologique, de l’institution de la Journée Mondiale de Prière pour la Sauvegarde de la Création, afin qu’en harmonie avec les exigences et les situations locales, la célébration soit organisée comme il se doit avec la participation de tout le Peuple de Dieu : prêtres, religieux, religieuses et fidèles laïcs. A cet effet, le Dicastère veillera avec empressement, en collaboration avec les Conférences Episcopales, à mettre en place des initiatives opportunes de promotion et d’animation, afin que cette célébration annuelle soit un temps fort de prière, de réflexion, de conversion et d’adoption d’un style de vie cohérent.
+
+A vous, Cardinal Koch, Président du [Conseil pontifical pour la Promotion de l’Unité des Chrétiens](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/index_fr.htm), je demande de prendre les contacts nécessaires avec le Patriarcat Œcuménique et avec les autres instances œcuméniques afin que cette Journée Mondiale puisse devenir signe d’un chemin parcouru ensemble par tous les croyants en Jésus Christ. En outre, le Dicastère s’empressera d’assurer la coordination avec les initiatives similaires entreprises par le Conseil Œcuménique des Eglises.
+
+Alors que je souhaite la plus vaste collaboration pour le meilleur lancement et développement de la Journée Mondiale de Prière pour la Sauvegarde de la Création, j’invoque l’intercession de la Mère de Dieu, la Très Sainte Vierge Marie, et de saint François d’Assise dont le *Cantique des Créatures* inspire tant d’hommes et de femmes de bonne volonté à vivre dans la louange du Créateur et le respect de la Création. Je confirme ces vœux par la Bénédiction Apostolique que je vous donne de tout cœur, Messieurs les Cardinaux, ainsi qu’à tous ceux qui collaborent avec votre ministère.
+
+*Du Vatican, le 6 août 2015*
+
+*Fête de la Transfiguration du Seigneur*
+
+**FRANCISCUS**

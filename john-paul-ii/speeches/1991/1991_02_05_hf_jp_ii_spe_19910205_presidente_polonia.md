@@ -1,0 +1,83 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AU PRESIDENT DE LA REPUBLIQUE DE POLOGNE,***
+
+***S.E. M. LECH WALESA\****
+
+*5 février 1991*
+
+*Monsieur le Président*,
+
+1\. Je souhaite une cordiale bienvenue dans cette maison pontificale à mon compatriote, le président de la troisième République polonaise. J'adresse mes salutations à son épouse, à Monsieur le ministre des Affaires étrangères, et à toutes les personnes de la suite présidentielle. Il serait impossible d'exprimer ici, même en un très long discours, ce que je ressens et ce que je voudrais dire en ce moment, à vous-même et, par votre intermédiaire, à tout mon pays. Je souhaite donc ardemment que l'on garde en mémoire en toile de fond de ce discours, tout ce que j'ai dit à la Pologne et de la Pologne pendant mes douze ans de pontificat, et aussi tout ce que, comme prêtre et comme évêque, j'ai dit et écrit avant d'être appelé au Siège romain de Pierre. Je voudrais que l'arrière plan de ce discours soit tout ce que, au cours des siècles, le Siège apostolique a dit et fait, ce qu'a dit et fait l’Eglise en Pologne. Il ne s'agit pas ici, en effet, de rhétorique mais de l’existence de la nation, qui a connu des périodes de splendeur mais aussi de condamnation à mort de la part des pays voisins, non sans qu'il y ait eu parfois une faute de sa part. Il s'agit de l’existence d'une nation qui, grâce à sa foi au Christ et au sens de sa dignité et de son identité, non seulement a survécu mais s'est inscrite de manière durable dans l’œuvre de la formation de la culture et de la civilisation du monde d'aujourd'hui.
+
+2\. Monsieur le président, ce moment est historique, votre visite est historique, comme le fut votre visite au Vatican en janvier 1981, lorsque je vous accueillais en tant que président du syndicat indépendant et autonome «Solidarnosc», alors à la tête des travailleurs et de tous ceux qui avaient à cœur leur propre dignité, la dignité de l'homme et de la nation, et aussi la liberté et la souveraineté de la patrie. Ce courage, cette détermination, ce souhait et, disons-le clairement, cette prière, ont produit leurs fruits.
+
+Vous êtes aujourd'hui en visite au Vatican en tant que président de la nouvelle République polonaise.
+
+Il faut ici rappeler le souvenir de tous ceux qui ont lutté pour cette cause, qui ont souffert, qui ont donné leur vie pour elle, partout et en quelque circonstance que ce soit. Que le Christ les accueille et que nos contemporains n'oublient pas leur sang et leurs sacrifices !
+
+3\. Comme représentant de trente-huit millions de vos compatriotes, élu pour la première fois depuis bien longtemps lors d'élections libres et démocratiques, vous avez voulu diriger vos premiers pas «à l'étranger» vers la tombe de saint Pierre et son successeur. En un certain sens, c'est donc le pèlerinage du président d'une nation chrétienne depuis le commencement de son histoire.
+
+J'ajouterai encore que la visite de ce jour, au début de la mission que la nation vous a confiée, est aussi la première visite d'un président de la Pologne depuis l'époque où celle-ci a recouvré son indépendance en 1918.
+
+Nous nous trouvons donc dans le sillage des processus les plus profonds qui ont formé notre nation et se sont trouvés à la base de son histoire. Cette journée historique correspond à toute la logique de l'histoire de la Pologne, depuis l'aube de ses origines jusqu'à nos jours. Les faits sont connus et consignés dans de nombreux documents et livres. Mais, avant tout, ils vivent et produisent des faits dans l'homme d'aujourd'hui et dans la société contemporaine. Notre génération n'est pas seulement le témoin mais avant tout le sujet de son histoire.
+
+4\. Dès ses commencements, la Pologne s'est étroitement liée au Siège de Pierre. Le Prince Mieszko Ier après s'être décidé en 966 au baptême de la nation inséra notre histoire dans le courant de l'histoire du salut et unit le pays des «Polan» à la culture chrétienne occidentale, en faisant en même temps un membre de la grande communauté de l'Eglise catholique. Après plus de dix ans, ce souverain mit ses sujets et les terres de la principauté, en même temps que sa capitale de Gniezno et les lieux environnants, sous la protection de saint Pierre. C'est ce dont nous parle le mystérieux document « *Dagome iudex*». Et le souverain d'alors de la Pologne le fit en considération des valeurs chrétiennes dans lesquelles il voyait une garantie pour la naissance de l'État et le sort futur de notre patrie. Le lien avec le Siège apostolique, lequel devint le défenseur de la couronne royale des Piast, a été un soutien moral irremplaçable pour notre nation dans les vicissitudes successives. Il signifie en effet que la Pologne se laissera guider par des principes d'ordre spirituel et moral qui imprégneront notre histoire et seront les garants de son unité et de sa fidélité tout au long du temps.
+
+La Pologne qui, à l'aube de son histoire, cherche à Rome la lumière de l'Évangile, deviendra vite sujet de l'évangélisation et le défenseur du christianisme de l'Europe et de sa culture contre l'invasion des peuples étrangers. Cela lui vaudra le titre d'honneur de «rempart du christianisme», « *antemurale christianitatis*».
+
+Sur ce fond, il ne faut pas s'étonner du geste prophétique du roi Jean Casimir, qui mit notre nation et le pays sous la protection de la Mère de Dieu, qu'il proclama Reine de la Pologne. Son exemple et l'intuition de la foi ont porté des fruits particuliers à notre époque.
+
+Nos pères abusèrent souvent du sens de la liberté qui dégénérait en licence et menait à l'esclavage. On en arriva ainsi à la partition de la Pologne. Mais, alors encore, les reliques de saint Stanislas dans la cathédrale du Wawel parlaient de l'unité et de la Pologne. Ce sont elles qui ont fait que nous n'avons pas oublié le passé, que nous n'avons jamais cessé de penser à un avenir digne.
+
+N'oublions pas non plus que la Pologne recouvra son indépendance en novembre 1918 et que le Pape envoya son représentant en Pologne dès le mois de mars. Dans ce contexte, il vaut sans doute la peine de mentionner que l'on trouve un représentant permanent du Siège apostolique en Pologne dès 1555 et que la nonciature en Pologne est une des plus anciennes d'Europe.
+
+Je rappellerai encore les souffrances et la tragédie de la Deuxième Guerre mondiale, ainsi que ses conséquences.
+
+Notre pays fut dévasté et l'on tenta de détruire la nation, de la priver de son esprit, de sa foi et de son identité, de la réduire en esclavage. Cette tragédie a pourtant montré quelle était la détermination, sans précédent, de millions de citoyens de la République dans la lutte pour leur dignité et leur liberté, pour la célèbre «liberté, la vôtre et la nôtre».
+
+J'ai écrit dans mon message à la Conférence épiscopale polonaise à l'occasion du 50e anniversaire du commencement de la Deuxième Guerre mondiale: «Cette volonté de défendre l'indépendance de l'État a animé les fils et les filles de notre nation non seulement dans notre pays occupé, mais encore sur tous les fronts du monde, où les Polonais se sont battus pour leur liberté et celle des autres... Au cours de la guerre qui prit très vite l'allure d'une défense impérative de l'Europe et de sa civilisation face à la violence totalitaire, le peuple polonais a rempli pleinement on pourrait même dire très largement ses engagements d'allié» (n. 2) (1).
+
+La Pologne n'a jamais trahi l'Europe ! Elle s'est sentie responsable de la communauté européenne des nations. Elle a attendu son aide, mais elle a su aussi mourir pour elle.
+
+5\. Et voici qu'après cette terrible tragédie en survint une autre – et ce devait être le fondement de l'ordre dans l'Europe d'après – guerre , la décision de la Conférence de Yalta, que l'on a pu à juste titre qualifier d'«anéantissement de la victoire». La Pologne et d'autres pays ont ressenti d'une manière très douloureuse les décisions de cette Conférence: la nation ne se réconcilia jamais avec elle et ne succomba pas à l'idéologie et au totalitarisme qui lui étaient imposés.
+
+Le Pape Pie XII a exprimé en ces termes sa douleur devant cela, dans un célèbre discours à la radio: «L'inévitable conséquence d'un tel état de choses est la scission de l'humanité en groupes puissants et opposés, dont la loi suprême de vie et d'action est une défiance fondamentale et invincible, qui est en même temps le tragique paradoxe et la malédiction de notre temps... Et voici que, par le fait même, une gigantesque muraille se dresse au point de rendre vain tout effort pour redonner à la famille humaine bouleversée les bienfaits d'une vraie paix» ( *Radio message du 24 décembre 1947*).
+
+En ces circonstances, notre nation a défendu à grand peine sa dignité et ses droits, et au prix de grands sacrifices qui, sur le fond des sacrifices de la guerre, acquéraient des dimensions encore plus effroyables. Rappelons ici les sacrifices et les larmes des Polonais et des Polonaises, de ceux qui ont lutté pour une Pologne libre: ouvriers, hommes de culture, prêtres, religieux et religieuses, c'est-à-dire ceux qui nourrissent et ceux qui défendent, tous. Le syndicat polonais «Solidarnosc», le P. Jerzy Popieluszko) et les croix de Gdansk, et vous aussi, Monsieur le président, resteront pour toujours leur symbole.
+
+Que le monde n'oublie pas que ce furent justement les ouvriers qui jouèrent le rôle principal pour renverser le système qui devait les défendre et s'identifier à leurs intérêts. Et tout cela s'est réalisé dans l'esprit de l'Évangile, sans violence ni arrogance, sans guerre ni révolution, dans le dialogue réciproque et avec le sens des responsabilités.
+
+C'est en Pologne que le visage de l'Europe nouvelle, maison commune européenne, a commencé à se former, grâce à «Solidarnosc», et aucun événement ne peut estomper ce fait.
+
+Un ordre nouveau est actuellement en train de se former dans notre patrie. Il se forme non sans difficultés et tensions, préjugés et différences d'opinion. Tous les citoyens sont affrontés à la tâche difficile de reconstruire tout ce qui a été détruit et de construire sur ce qui est resté de noble et de précieux.
+
+Tous les Polonais devraient maintenant s'unir en un élan commun autour de «ce jour qu'a fait pour eux le Seigneur» (cf Ps 117, 24), et oublier ce qui peut diviser, recherchant au contraire ce qui unit. La patrie a besoin aujourd'hui, comme en tant de moments dramatiques, d'une particulière unité et collaboration, du sens de la responsabilité et d'un dialogue créateur.
+
+Voici les paroles du poète: «Que chacun donne à la patrie son talent, comme un don dans une grande tirelire, secrètement, sans dire combien il a déposé. Viendra le temps où la tirelire sera pleine, et le Seigneur sait combien chacun a offert» (A. Mickiewicz, *Le livre de la nation et des pèlerins polonais*).
+
+Aujourd'hui, la Pologne a aussi besoin de la compréhension et de la coopération efficace des pays riches. Le problème de son endettement devrait également être traité dans l'esprit de la solidarité internationale et à la lumière de la doctrine sociale de l'Église, d'autant plus qu'il ne lui a pas été donné de bénéficier des aides dont ont bénéficié en majorité les sociétés occidentales.
+
+6\. Monsieur le président, la route de l'Eglise est toujours l'homme, «l'homme dans la pleine vérité de son existence, de son être personnel et en même temps de son être communautaire et social... Cet homme est la première route que l'Eglise doit parcourir dans l'accomplissement de sa mission: il est la route première et fondamentale de l'Église» ( *Redemptor hominis*, 14).
+
+C'est pour cela que l'Église a tant à cœur que les droits de l'homme soient respectés en tout pays et en toute société, ainsi que le droit à la vie dès le moment de la conception jusqu'à la mort naturelle et le droit au développement qui correspond à la dignité humaine. Dans l'homme, l'Eglise et l'État se rencontrent pour l'aider, par une collaboration concertée, à atteindre sa fin temporelle et transcendante. Cette collaboration peut avoir le caractère de contacts spontanés, mais elle ne peut aussi qu'être réglée par des actes juridiques déterminés d'un commun accord par les deux parties.
+
+Au cours de ces dernières années et de ces derniers mois, l'Église en Pologne a déjà donné de nombreuses preuves que, pour elle, les problèmes de la nation sont l'objet de sa plus intense sollicitude. L'Eglise a souffert avec la nation et a été la gardienne des valeurs morales suprêmes. Elle a annoncé l'Évangile, défendu les hommes, conservé la tradition de la nation. Elle a apporté à la vie quotidienne l'optimisme de la foi, elle a porté le souci de l'homme et de son avenir. Cette disponibilité de l'Église demeure toujours la même. L'Église continue à souhaiter, avec les forces communes, que l'on élimine les conséquences négatives de l'ancien système, elle désire appuyer et accroître tout ce qui est vrai, bon et beau dans la société polonaise, fortifier la solidarité humaine et imprégner de l'Évangile la vie quotidienne. Dans la lutte contre les difficultés et ce qui reste des temps passés, l’Eglise désire collaborer avec tous les hommes de bonne volonté.
+
+7\. Monsieur le président, vous vous trouvez devant une tâche immense et malaisée: celle de conduire la nation en ces temps qui ne sont pas faciles, avec le Parlement, le gouvernement, ses institutions et tous les habitants de la Pologne. Dans votre discours à l'occasion de la Nouvelle Année, vous avez dit qu'il vous avait suffi d'à peine quelques jours, après avoir assumé la charge de la présidence, pour sentir le poids de la fonction, mais vous avez ajouté: «Nous avons suffisamment de forces, suffisamment de foi et de possibilités, pour transformer la Pologne. Nous construirons ensemble un nouvel ordre économique... Nous sommes capables de beaucoup de choses... Que Dieu bénisse nos luttes». A vous est revenu la lourde tâche de la reconstruction, avec la nation polonaise, et ceci sous tant d'aspects, parce que la crise a frappé la morale, l'économie et la politique, a tout simplement frappé l'homme. Nous voyons aujourd'hui clairement que chaque génération doit résoudre, avec courage et sagesse, les problèmes de son temps, qu'elle ne peut les faire porter aux générations à venir.
+
+Les problèmes de la Pologne me tiennent extrêmement à cœur en ces temps de changements importants, et spécialement alors que s'approche mon quatrième pèlerinage apostolique en Pologne, dans la Pologne nouvelle et démocratique. Je l'exprime en toute occasion et particulièrement au cours des audiences du mercredi, quand je m'adresse à tous mes compatriotes, priant avec eux et pour eux, rappelant les principes évangéliques par lesquels tous devraient se laisser conduire pour assurer la prospérité de leur patrie.
+
+C'est dans cet esprit, Monsieur le président, que je vous confie mes souhaits pour toutes les Polonaises et tous les Polonais, quelles que soient leur confession et leur conception du monde. Je souhaite que la fidélité à Dieu et aux meilleures traditions, l'amour de la patrie, soient une lumière et une indication sur la route à suivre pour chaque décision. Et que la sollicitude portée au bien de la patrie libère de sages initiatives, que la nécessaire unité croisse noblement dans le pluralisme. Nous savons que ceci appartient aux bonnes traditions du passé. Les paroles du roi Sigismond Auguste demeurent toujours valables: «Je ne suis pas le maître de vos consciences», comme aussi les paroles écrites dans une des salles de l'université Jagellon: « *Plus ratio quam vis*». Ce serait une grande faute que quelqu'un, ou un groupe, recherche son intérêt propre, spécialement en ce moment où l'organisme de la République est tant affaibli. Que dans l’action, donc, tous les Polonais se laissent conduire par la sollicitude à l’égard du bien commun, que tous devraient rechercher dans un esprit de sacrifice et de sincérité, d’ouverture et de courage moral et politique, pour le plus grand bien de la patrie et de toute la famille humaine. En tant que président, appelé à cette charge par la nation, vous personnifiez d’une manière toute particulière ces problèmes. Certainement, vous ferez tout pour être le président de tous les Polonais. Il faut aussi que la Pologne fasse tout ce qui est possible pour montrer qu’elle est une patrie pour les fils et les filles qui, depuis longtemps déjà ou au cours des dernières années, se trouvent en dehors de ses frontières.
+
+Que Dieu vous aide, Monsieur le président !
+
+Que Dieu vous aide, vous et tous vos compatriotes !
+
+* * *
+
+\* *La Documentation catholique* n.2024 pp.268-270.
+
+*L'Osservatore Romano. Edition hebdomadaire en langue française* n. 6 pp. 6, 7.
+
+© Copyright 1991 - Libreria Editrice Vaticana

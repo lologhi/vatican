@@ -1,0 +1,49 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Salle Paul VI*
+
+*Mercredi 21 octobre 2020*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/10/21/udienzagenerale.html)\]**
+
+*** * ***
+
+***Catéchèse - 11. La prière des Psaumes*. 2**
+
+*Chers frères et sœurs, bonjour!*
+
+Aujourd'hui, nous devrons changer un peu la manière d'organiser cette audience en raison du coronavirus. Vous êtes séparés, également avec la protection du masque, et je suis un peu éloigné et je ne peux pas faire ce que je fais toujours, m'approcher de vous, car il arrive que chaque fois que je m'approche, vous venez tous ensemble et on perd la distance, le danger de la contagion existe alors pour vous. Je suis désolé de faire cela, mais c'est pour votre sécurité. Au lieu de venir près de vous et de serrer les mains et saluer, nous nous saluerons de loin, mais sachez que je suis proche de vous avec le cœur. J'espère que vous comprenez pourquoi je fais cela. Ensuite, alors que les lecteurs lisaient le passage biblique, mon attention a été attirée par ce petit garçon ou cette petite fille qui pleurait. Et je voyais sa mère qui caressait et allaitait l'enfant et j'ai pensé: «Dieu fait ainsi avec nous, comme cette mère». Avec combien de tendresse elle cherchait à déplacer l'enfant, à allaiter. Ce sont de très belles images. Et quand cela arrive à l'église, quand un enfant pleure, on sait que là, il y a la tendresse d'une mère, comme aujourd'hui, il y a la tendresse d'une mère qui est le symbole de la tendresse de Dieu avec nous. Il ne faut jamais faire taire un enfant qui pleure à l'église, jamais, car c'est la voix qui attire la tendresse de Dieu. Merci pour ton témoignage.
+
+Nous complétons aujourd'hui la catéchèse sur la *prière des Psaumes*. Nous remarquons tout d'abord que dans les Psaumes apparaît souvent une figure négative, celle de l'“impie”, c'est-à-dire celui ou celle qui vit comme si Dieu n'existait pas. C'est la personne sans aucune référence au transcendant, sans aucun frein à son arrogance, qui ne craint pas les jugements sur ce qu'elle pense et ce qu'elle fait.
+
+C'est pour cette raison que le Psautier présente la prière comme la réalité fondamentale de la vie. La référence à l'absolu et au transcendant – que les maîtres d'ascétique appellent la “sainte crainte de Dieu” – est ce qui nous rend pleinement humains, c'est la limite qui nous sauve de nous-mêmes, en empêchant que nous nous jetions sur cette vie de manière prédatrice et vorace. La prière est le salut de l'être humain.
+
+Assurément, il existe également une prière fausse, une prière faite seulement pour être admirée par les autres. Celle de celui ou de ceux qui vont à la Messe uniquement pour faire voir qu'ils sont catholiques ou pour faire voir le dernier modèle qu'ils ont acheté, ou pour faire bonne figure socialement. Ils récitent une fausse prière. Jésus a admonesté avec force à cet égard (cf.  *Mt* 6, 5-6; *Lc* 9, 14). Mais quand le vrai esprit de la prière est accueilli avec sincérité et descend dans le cœur, alors celle-ci nous fait contempler la réalité avec les yeux mêmes  de Dieu.
+
+Quand on prie, chaque chose acquiert de l'“épaisseur”. Cela est curieux dans la prière, nous commençons peut-être par une chose imperceptible, mais dans la prière cette chose acquiert de l'épaisseur, acquiert du poids, comme si Dieu la prenait par la main et la transformait. Le pire service que l'on puisse rendre à Dieu et également à l'homme, est de prier avec lassitude, de manière routinière. Prier comme des perroquets. Non, on prie avec le cœur. La prière est le centre de la vie. S'il y a la prière, notre frère, notre sœur, également notre ennemi,  deviennent eux aussi importants. Un antique dicton des premiers moines chrétiens dit ainsi: «Bienheureux le moine qui, après Dieu, considère tous les hommes comme Dieu» (Evagrio Pontico, *Traité sur la prière*, n. 123). Celui qui adore Dieu aime ses enfants. Celui qui respecte Dieu, respecte les êtres humains.
+
+C'est pourquoi la prière n'est pas un calmant pour atténuer l'anxiété de la vie; de toutes façons, une prière de ce genre n'est sûrement pas chrétienne. La prière responsabilise plutôt chacun de nous. Nous le voyons clairement dans le «Notre Père», que Jésus a enseigné à ses disciples.
+
+Pour apprendre cette manière de prier, le Psautier est une grande école. Nous avons vu que les Psaumes n'utilisent pas toujours des paroles raffinées et gentilles, et ils portent souvent imprimées les cicatrices de l'existence. Pourtant, toutes ces prières ont été utilisées auparavant dans le Temple de Jérusalem et ensuite dans les synagogues; même celles plus intimes et personnelles. Le *Catéchisme de l'Eglise catholique* s'exprime ainsi: «Les expressions multiformes de la prière des Psaumes prennent forme à la fois dans la liturgie du temple et dans le cœur de l'homme» (n. 2588). Et ainsi, la prière personnelle puise et se nourrit tout d'abord à celle du peuple d'Israël, et ensuite à  celle du peuple de l'Eglise.
+
+Même les psaumes à la première personne du singulier, qui confient les pensées et les problèmes les plus intimes d'un individu, sont un patrimoine collectif, jusqu'à être priés par tous et pour tous. La prière des chrétiens a ce «souffle», cette «tension» spirituelle qui garde ensemble le temple et le monde. La prière peut commencer dans la pénombre d'une nef, mais ensuite elle termine sa course dans les rues de la ville. Et vice versa, elle peut germer pendant les occupations quotidiennes et arriver à son accomplissement dans la liturgie. Les portes des églises ne sont pas des barrières, mais des «membranes» perméables, disponibles à recueillir le cri de tous.
+
+Dans la prière du Psautier, le monde est toujours présent. Les psaumes, par exemple, donnent voix à la promesse divine de salut des plus faibles: «A cause du malheureux qu'on dépouille, du pauvre qui gémit, maintenant je me lève, déclare Yahvé, j'assurerai le salut à ceux qui en ont soif» (12, 6). Ou bien, ils avertissent du danger des richesses mondaines, car «l’homme dans son luxe ne comprend pas, il ressemble au bétail qu'on abat» (48, 21). Ou bien encore, ils ouvrent l'horizon au regard de Dieu sur l'histoire: «Yahvé déjoue les plans des nations, il empêche les pensées des peuples; mais le plan de Yahvé subsiste à jamais, les pensées de son cœur, d'âge en âge» (33, 10-11).
+
+En somme, là où Dieu est présent, l'homme doit aussi être présent. L'Ecriture Sainte est catégorique: «Quant à nous, aimons, puisque Lui nous a aimés le premier. Mais Lui va toujours avant nous. Il nous attend toujours, parce qu'Il nous aime le premier, Il nous regarde le premier, Il nous comprend le premier. Il nous attend toujours. Si quelqu’un dit: 'J'aime Dieu' et qu'il déteste son frère, c'est un menteur: celui qui n'aime pas son frère, qu'il voit, ne saurait aimer le Dieu qu'il ne voit pas. Si tu pries de nombreux chapelets chaque jour, mais qu'ensuite tu fais des commérages sur les autres et que tu as de la rancœur en toi, tu as de la haine contre les autres, c'est de l'artifice pur, ce n'est pas la vérité. Oui, voilà le commandement que nous avons reçu de Lui: que celui qui aime Dieu aime aussi son frère» ( *1 Jn* 4, 19-21). L'Ecriture admet le cas d'une personne qui, bien que cherchant sincèrement Dieu, ne réussit jamais à le rencontrer; mais elle affirme également que l'on ne peut jamais nier les larmes des pauvres, sous peine de ne pas rencontrer Dieu. Dieu ne supporte pas l' «athéisme» de celui qui nie l'image divine qui est imprimée dans chaque être humain. Cet athéisme de tous les jours: je crois en Dieu, mais avec les autres je garde la distance et je me permets de haïr les autres. C'est de l'athéïsme pratique. Ne pas reconnaître la personne humaine comme image de Dieu est un sacrilège, c'est une abomination, c'est la pire offense que l'on peut faire au temple et à l'autel.
+
+Chers frères et sœurs, que la prière des psaumes nous aide à ne pas tomber dans la tentation de l'«impiété», c'est-à-dire de vivre, et peut-être également de prier, comme si Dieu n'existait pas, et comme si les pauvres n'existaient pas.
+
+* * *
+
+Je suis heureux de saluer les personnes de langue française, en particulier les pèlerins de Toulouse, avec l’Archevêque Mgr Le Gall. La prière des psaumes est l’école de la vie avec Dieu et de la responsabilité vis-à-vis des personnes pauvres et vulnérables. Demandons la grâce de mettre Dieu et la personne humaine au centre de notre prière.
+
+A tous, je donne ma bénédiction !
+
+* * *
+
+**Résumé de la catéchèse du Saint-Père :**
+
+Frères et sœurs, dans les psaumes, nous rencontrons souvent une figure négative, celle de l’“impie”, une personne qui vit sans se soucier de l’existence de Dieu et sans frein à son arrogance. C’est pourquoi le psautier présente la prière comme la réalité fondamentale de la vie. La prière est le salut de l’être humain. Le pire des services que l’on peut rendre à Dieu et à l’homme, c’est de prier avec lassitude et de façon routinière. La prière est le centre de la vie. Avec la prière, le frère et la sœur deviennent importants. La prière responsabilise. C’est pourquoi le psautier est une grande école. La prière personnelle se ressource à la prière du peuple d’Israël et à celle du peuple de l’Eglise. Ainsi les psaumes sont le patrimoine collectif car ils sont priés par tous et pour tous. La prière des chrétiens a cette tension spirituelle qui porte ensemble le temple et le monde. Les portes de l’Eglise ne sont pas des barrières, mais des membranes perméables, disponibles à recueillir le cri de tous. Les psaumes expriment la promesse divine de salut des plus faibles. En effet, là où se trouve Dieu, là aussi se trouve l’homme. Dieu ne supporte pas l’“athéisme” de celui qui nie l’image divine imprimée dans chaque être humain. Ne pas le reconnaître est un sacrilège, une abomination, la pire des offenses qu’on peut apporter au temple et à l’autel.

@@ -1,0 +1,17 @@
+***SALUT DU PAPE FRANÇOIS***
+
+***À LA DÉLÉGATION DU PATRIARCAT ORTHODOXE DE MOSCOU***
+
+*Salon de la Salle Paul VI*
+
+*Mercredi 30 mai 2018*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/5/30/patriarcato-mosca.html)**\]
+
+* * *
+
+Merci beaucoup pour votre visite, ainsi que pour cette rencontre, qui nous aide beaucoup à vivre notre foi dans l’unité et dans l’espérance de marcher ensemble. Je suis heureux de faire avec vous le chemin de l’unité: l’unique voie qui nous promet quelque chose de sûr, parce que la voie de la division nous conduit aux guerres et à la destruction. Et je voudrais répéter devant vous — de façon spéciale devant toi, cher frère, et devant vous tous — que l’Eglise catholique ne permettra jamais que naisse une attitude de division chez les siens. Nous ne nous permettrons jamais de faire cela, je ne le veux pas. A Moscou — en Russie — il y a un seul patriarcat: le vôtre. Nous n’en aurons pas un autre. Et quand un fidèle catholique, laïc, prêtre ou évêque, brandit la bannière de l’uniatisme qui ne fonctionne plus, qui est terminée, pour moi c’est aussi une souffrance. Il faut respecter les Eglises qui sont unies à Rome, mais l’uniatisme comme chemin d’unité aujourd’hui ne fonctionne pas. En revanche, j’éprouve du réconfort en voyant cela: la main tendue, l’étreinte fraternelle, penser ensemble, et marcher. L’œcuménisme se fait en marchant. Marchons. Certains pensent — mais cela n’est pas juste — qu’il doit y avoir auparavant un accord doctrinal, sur tous les points de division, et puis la marche. Cela ne fonctionne pas pour l’œcuménisme, parce qu’on ne sait pas quand arrivera l’accord. Un jour, j’ai entendu un homme d’Eglise, un homme de Dieu, dire: «Je sais quel jour sera signé l’accord doctrinal». On lui a demandé: «Quand?» — «Le lendemain de la venue du Christ glorieux». Nous devons continuer d’étudier la théologie, de clarifier des points, mais entre-temps marcher ensemble, sans attendre que tout se résolve pour marcher, non. On marche et on fait également cela, mais marcher dans la charité, dans la prière; comme cet exemple des reliques. Prière ensemble, les uns pour les autres, dans le dialogue. Cela fait beaucoup de bien. La rencontre avec Sa Sainteté Cyrille m’a fait du bien, j’ai trouvé un frère. Et maintenant, spirituellement, marchons ensemble.
+
+Et pour terminer, deux mots. Un sur le respect des catholiques à votre égard, frères orthodoxes russes: l’Eglise catholique, les Eglises catholiques, ne doivent pas s’immiscer dans les questions internes de l’Eglise orthodoxe russe, ni dans les sujets politiques. Cela est mon attitude, et l’attitude du Saint-Siège aujourd’hui. Et ceux qui s’immiscent n’obéissent pas au Saint-Siège. Voilà pour la politique. Deuxième chose: la piété. La prière les uns pour les autres est importante, et donc également la prière personnelle. Nous connaissons de nouveaux frères et sœurs, et donc également la prière personnelle. Je voudrais vous dire une chose: quand nous nous sommes rencontrés avec le patriarche, après, il m’a envoyé une relique de saint Séraphin. Je garde cette relique sur ma table de nuit et la nuit, avant d’aller au lit, et le matin, quand je me lève, je la vénère et je prie pour notre unité.
+
+Merci beaucoup. Prions les uns pour les autres. Bénissons-nous les uns les autres. Et avançons ensemble. Merci.

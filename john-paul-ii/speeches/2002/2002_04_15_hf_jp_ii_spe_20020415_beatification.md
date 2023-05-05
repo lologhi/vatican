@@ -1,0 +1,43 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AUX PÈLERINS RÉUNIS POUR LA BÉATIFICATION***
+
+***DE SIX SERVITEURS DE DIEU***
+
+*Lundi 15 avril 2002*
+
+*Très chers frères et soeurs!*
+
+1. Au lendemain de la proclamation de six nouveaux bienheureux, je suis heureux de vous rencontrer à nouveau, vous tous qui êtes venus à Rome pour participer à cette célébration ecclésiale solennelle. Dans ce climat de fête, en harmonie avec la joie pascale, nous voulons nous arrêter une nouvelle fois pour contempler les oeuvres merveilleuses accomplies par le Seigneur à travers la vie et l'activité des nouveaux bienheureux:  Gaetano Errico, Lodovico Pavoni, Luigi Variara, María Romero, Artemide Zatti et María du Trépas de Jésus Sacrement. Nous voulons en approfondir la spiritualité et en accueillir l'exemple, pour les suivre sur le chemin vers la sainteté.
+
+2. Je m'adresse en particulier à vous, très chers Missionnaires des Sacrés-Coeurs de Jésus et de Marie, et à ceux qui partagent la joie de la béatification de Gaetano Errico, apôtre de l'amour miséricordieux de Dieu et martyr du confessionnal.
+
+Combien notre époque a besoin qu'on lui annonce la tendresse et le pardon de Dieu envers les pécheurs, en particulier à travers le sacrement de la pénitence! Dans le secret du confessionnal, un important ministère est confié aux prêtres, comme j'ai voulu le rappeler dans la Lettre que j'ai adressée à tous les prêtres à l'occasion du Jeudi saint. "Le Bon Pasteur, leur ai-je écrit, à travers le visage et la voix du prêtre, se fait proche de chacun, pour ouvrir avec lui un dialogue personnel fait d'écoute, de conseil, d'encouragement, de pardon" (n. 9; cf. ORLF n. 13 du 26 mars 2002).
+
+Aux Jansénistes, qui insistaient trop sur la justice de Dieu, répandant dans les âmes peur et malaise, Gaetano Errico opposait l'annonce de la miséricorde divine. Il ne se lassait pas d'exhorter les prêtres:  "Si des âmes arrivent emplies de nombreuses fautes, aidez-les à se relever, encouragez-les à la confiance, dites-leur que le Seigneur les pardonnera toutes, si elles se repentent de tout coeur". Combien cet amour miséricordieux de Dieu, qui encourage à vaincre le mal, la souffrance, l'injustice et le péché, parle encore aujourd'hui au coeur de l'homme!
+
+3. Mon souvenir cordial s'adresse en outre à vous, très chers Fils de Marie Immaculée, qui vous réjouissez avec toute la communauté ecclésiale pour la béatification de votre fondateur, Lodovico Pavoni. Le nouveau bienheureux, fidèle à la tradition séculaire de la ville de Brescia, sut élaborer une méthode éducative qui se fonde sur des moyens propres à la pédagogie préventive, tels que la religion et la raison, l'amour et la douceur, la vigilance et la connaissance.
+
+Il réussit à mettre sur pied un modèle d'instruction et d'insertion dans le monde du travail, qui annonçait les écoles d'apprentissage modernes, en introduisant des réformes qui anticipaient de manière prophétique la doctrine sociale de l'Eglise, exprimée ensuite dans l'Encyclique *[Rerum novarum](/content/leo-xiii/fr/encyclicals/documents/hf_l-xiii_enc_15051891_rerum-novarum.html)* de Léon XIII. Mais quel fut le secret d'une activité si intense? Lui-même le rappelle:  "Dans la foi mûrement méditée, la volonté et le coeur trouvent un appui extrêmement sûr, en mettant toute notre confiance en Dieu. La ferme espérance assure l'humilité vraie... La charité bien entretenue dans le coeur, fera sentir avec vivacité l'intérêt pour Dieu et pour le prochain".
+
+4. Je suis également content de saluer les pèlerins italiens, venus à Rome pour la béatification de dom Luigi Variara et du Coadjuteur salésien Artemide Zatti. Je m'unis à la joie des paroisses de Viarigi, dans le diocèse d'Asti, et de Boretto, dans le diocèse de Reggio Emilia, pour l'exaltation des enfants de leurs terres.
+
+5. Je salue à présent avec beaucoup d'affection les pèlerins d'Amérique latine, en particulier du Costa Rica, du Nicaragua, de Colombie et d'Argentine, venus participer avec joie à la cérémonie solennelle de béatification du R.P. Luigi Variara, de Soeur María Romero et d'Artemide Zatti, tous les trois salésiens, et de Mère María du Trépas de Jésus Sacrement Cabanillas, de nationalité argentine et fondatrice des Soeurs tertiaires missionnaires franciscaines.
+
+La grande famille salésienne compte maintenant trois nouveaux noms dans la liste des saints et des bienheureux salésiens.
+
+Leur vie n'est pas restée cachée entre les murs de leur communauté religieuse. Elle s'est manifestée à travers leurs oeuvres et a rejoint celles de beaucoup d'hommes et de femmes, enfants et jeunes, qui les ont connus et ont bénéficié de leur travail apostolique, inspiré des enseignements de dom Bosco.
+
+Le R.P. Luigi Variara nous présente le charisme salésien, auquel il fut toujours fidèle, enrichi d'une nouvelle dimension, précisément celle de fondateur des Fils des Sacrés-Coeurs de Jésus et Marie, dans l'intention d'apporter un réconfort aux plus marginalisés, quelquefois même oubliés, de la société. Sa vie est une invitation à tendre une main à tous, à ne mépriser personne, à être accueillant. Aujourd'hui, la Colombie, où il a vécu et donné le meilleur de lui-même avec l'assistance de la grâce de Dieu, peut puiser dans l'exemple de ce témoin de Jésus-Christ une aide pour surmonter la situation difficile qu'elle est en train de vivre depuis de nombreuses années et s'acheminer vers une société plus fraternelle et plus solidaire.
+
+6. Le coadjuteur Artemide Zatti trouva sur les terres de Viedma, par son activité joyeuse et incessante en faveur des malades, la miséricorde que Jésus nous a invités à pratiquer:  j'étais "malade et vous m'avez visité" ( *Mt* 25, 36). Son caractère jovial et ses compétences particulières, unis à une disponibilité sans limite, lui ont valu la sympathie et l'appréciation de ses contemporains, qui doit aujourd'hui se poursuivre à travers la capacité à imiter son puissant exemple, en favorisant chez toutes les personnes qui travaillent dans le domaine de la santé un sens renouvelé du service au malade, mettant au premier plan chez celui-ci sa nature de personne, dotée de droits inaliénables.
+
+Ce qui retient l'attention chez Soeur María Romero, c'est son service en faveur  des  plus  pauvres,   accompli avec créativité et efficacité. Les oeuvres qu'elle a fondées pour promouvoir la vie chrétienne des personnes les plus en difficultés et soulager la situation de nécessité vécue par beaucoup d'habitants de San José et de sa périphérie, existent encore aujourd'hui et continuent à être un motif de juste espérance à travers des gestes de solidarité envers les plus pauvres. Que ce service, qui fait tant honneur à l'Eglise du Christ, ne vienne jamais à manquer.
+
+7. La grande ville de Córdoba, en Argentine, a été le témoin privilégié de la sainteté de la vie de la bienheureuse Mère María du Trépas de Jésus Sacrement Cabanillas. Sa vie est un hymne aux merveilles que Dieu accomplit dans les événements communs de la vie quotidienne. Sans manifestation spectaculaire, cette nouvelle bienheureuse a parcouru le chemin de la sainteté en étant toujours attentive à la proximité de Jésus et à son invitation à le suivre jusqu'au bout.
+
+Après avoir sérieusement réfléchi sur ce que Dieu attendait d'elle, elle a découvert sa vocation franciscaine et l'inspiration pour un projet de vie religieuse dont l'objectif était d'aider les femmes à croître dans l'expérience de la foi. Elle sut être aussi ferme que patiente et compréhensive, sut embrasser la croix dans les difficultés et garder un silence humble même quand pesaient sur elle de graves humiliations et du mépris. Que son témoignage serve d'exemple à beaucoup de ses compatriotes qui, en ce moment, doivent vivre avec enthousiasme leur vie de chrétiens et de citoyens, sans tomber dans les tentations du découragement, ou pire encore, de l'esprit de rivalité ou de revanche.
+
+8. Très chers frères et soeurs, quelle compagnie splendide nous offre le Seigneur avec ces nouveaux bienheureux! Tout en admirant ces exemples de sainteté, efforçons-nous de suivre leurs traces, pour être à notre tour des témoins courageux de l'Evangile.
+
+Que la Vierge Marie, Mère de l'Eglise et Reine de tous les Saints, vous guide et vous protège toujours sur votre route. Que vous accompagne aussi ma Bénédiction, que je vous donne avec affection, à vous tous ici présents, à vos familles et vos communautés d'origine, ainsi qu'à tous ceux qui vous sont chers.

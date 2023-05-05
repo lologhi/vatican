@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***À UNE DÉLÉGATION DE L'ÉGLISE ÉVANGÉLIQUE LUTHÉRIENNE DE FINLANDE,***
+
+***À L'OCCASION DE LA FÊTE DE SAINT HENRI***
+
+*Jeudi 25 janvier 2018*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/1/25/evangelici-luterani-finlandia.html)\]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je vous souhaite la bienvenue à l’occasion de votre pèlerinage à Rome qui est désormais un événement annuel à l’occasion de la fête de saint Henri. Je remercie l’évêque luthérien d’Espoo pour ses aimables paroles. Alors que se conclut la semaine de prière pour l’unité des chrétiens, nous retournons en pensée, pleins de joie, à la commémoration commune de la Réforme de l’an dernier, qui a renforcé et approfondi, dans notre Seigneur Jésus Christ, la communion entre les luthériens, les catholiques et leurs partenaires œcuméniques dans le monde entier. Cette commémoration commune demeure une opportunité féconde pour l’œcuménisme, parce qu’elle a marqué non pas un point d’arrivée, mais un point de départ dans la recherche œcuménique de l’unité pleine et visible entre nous, sous le triple signe de la gratitude, du repentir et de l’espérance, tous trois indispensables si nous voulons véritablement guérir notre mémoire. Ce n’est pas un hasard si nos efforts s’orientent vers l’étude d’une question œcuménique prioritaire sur laquelle nous entendons nous arrêter à l’avenir, à savoir la question de la nature de l’Eglise.
+
+La dimension œcuménique de notre prière et de nos rencontres, dans lesquelles il n’y a plus eu de traces des disputes et des conflits du passé, a été essentielle pour la commémoration commune de la Réforme dans le monde entier. Notre commémoration a été célébrée dans un esprit bien différent, parce que nous avons compris l’événement de la Réforme comme une invitation à faire face ensemble à la perte de crédibilité du christianisme, une invitation à conférer une nouvelle force à notre confession commune du Dieu Un et Trine. L’année qui vient de se conclure nous a rappelé le temps où l’unité entre les chrétiens n’était pas encore brisée. Voilà pourquoi luthériens et catholiques ont pu célébrer la commémoration de 2017 d’une seule manière: dans la communion œcuménique.
+
+Je reçois aujourd’hui avec joie et gratitude de vos mains le document réalisé récemment par la Commission de dialogue luthérienne-catholique de Finlande, intitulé «Communion en croissance. Déclaration sur l’Eglise, l’Eucharistie et le ministère». Dans ces contenus cruciaux, peuvent être reconnus les thèmes décisifs, autour desquels le dialogue œcuménique pourra et devra être mené. En effet, après le consensus atteint entre luthériens et catholiques sur des questions fondamentales relatives à la doctrine de la justification, les implications ecclésiologiques de cet accord doivent faire nécessairement partie de l’ordre du jour des dialogues œcuméniques.
+
+Notre service œcuménique consiste, précisément à une époque où les sociétés sont amplement sécularisées, à témoigner de la présence du Dieu vivant, parce que le principal défi commun dans l’œcuménisme est de répéter la place centrale de la question de Dieu, non pas d’un Dieu quelconque, mais du Dieu qui nous a révélé son visage concret dans l’homme Jésus de Nazareth. Etant donné qu’aujourd’hui, luthériens et catholiques sont en mesure de confesser ensemble la place centrale de la question de Dieu, il a été possible de réaliser une commémoration œcuménique de la Réforme et ceci, non pas dans un sens purement pragmatique, mais dans le sens profond de la foi dans le Christ crucifié et ressuscité, dont nous pouvons maintenant témoigner ensemble. Ce faisant, nous avons assumé la grande responsabilité œcuménique qui nous a été rappelée de façon concrète par la commémoration de la Réforme de 2017.
+
+La semaine de prière pour l’unité des chrétiens qui coïncide chaque année avec votre pèlerinage, est centrée sur le thème «Puissante est ta main, Seigneur» (cf. Ex 15, 6) et nous rappelle la situation de grave besoin dans laquelle vivent dans de nombreuses parties du monde tant de personnes, pour lesquelles nous devons aller sur le terrain, unis par un même engagement œcuménique. En pleine humilité, prions alors notre Seigneur Jésus Christ afin que, par sa grâce, nous, chrétiens dans le monde entier, puissions être des instruments de sa paix. Qu’il nous aide toujours, au milieu des peuples divisés, à œuvrer ensemble comme témoins et serviteurs de son amour qui guérit et réconcilie, sanctifiant et glorifiant ainsi son nom. Demandons incessamment le soutien de la grâce de Dieu et la lumière de l’Esprit Saint qui nous conduisent à la pleine vérité.
+
+En vous renouvelant ma chaleureuse bienvenue, j’invoque de tout cœur pour vous et pour tous les chrétiens en Finlande la bénédiction de Dieu.

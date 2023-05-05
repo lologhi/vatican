@@ -1,0 +1,19 @@
+RÉCITATION DU ROSAIRE AVEC LES JEUNES DES UNIVERSITÉS EUROPÉENNES
+
+***DISCOURS DE JEAN-PAUL II***
+
+*Samedi 15 mars 2003*
+
+*Chers jeunes étudiants des universités!*
+
+1. Je vous salue avec affection et je vous remercie de votre participation, pleine de joie pieuse, à cette veillée mariale à l'occasion de la première Journée européenne des Etudiants des Universités. Je remercie, en particulier, le Cardinal Camillo Ruini des paroles cordiales par lesquelles il s'est fait l'interprète des sentiments communs. Mes remerciements s'étendent ensuite à Mgr Lorenzo Leuzzi et à tous ceux qui ont collaboré à l'organisation de cette Journée. Je remercie par ailleurs les choeurs et l'orchestre, ainsi que Radio Vatican et le Centre de Télévision du Vatican, qui ont assuré les diverses retransmissions radiophoniques et télévisées. Je salue cordialement les jeunes réunis avec nous, au côté de leurs Pasteurs, à Uppsala, Bratislava, Cracovie, Cologne, Fatima, Vienne et dans certaines paroisses d'Ukraine. Merci, très chers amis, de votre témoignage de foi et de fraternité! Je forme les meilleurs voeux pour vos études et vos projets de vie.
+
+Ce soir nous avons prié pour l'Europe, à un moment important de son histoire. Les jeunes ont la possibilité et le devoir de participer à la construction de la nouvelle Europe, en apportant leur contribution d'aspirations et d'idéaux, d'étude et de travail, de créativité et de dévouement généreux. Les jeunes chrétiens, en particulier, sont appelés à annoncer et à témoigner du Christ et à être, en son nom, des bâtisseurs *d'unité* dans la diversité, de *liberté* dans la vérité, de paix dans la justice, de cette paix dont le monde a aujourd'hui particulièrement besoin.
+
+Chers jeunes amis, je vous confie ce soir un souhait qui me tient extrêmement à coeur:  celui que les nouvelles générations puissent être fidèles aux principes spirituels et moraux élevés qui, par le passé, ont inspiré les pères de l'Europe unie.
+
+2. Au cours de cette veillée, où l'on ressent l'enthousiasme et la foi qui sont propres aux jeunes, la pensée se tourne naturellement vers les Journées mondiales de la Jeunesse. Il s'agit d'événements qui me permettent de rencontrer, d'un bout à l'autre de la terre, des jeunes de tous les continents, de les écouter et de parler avec eux du Christ. A chaque fois, un thème spécifique de réflexion est offert à l'attention commune. Pour la prochaine Journée, qui sera célébrée dans chaque diocèse, le Dimanche des Rameaux, du fait que nous sommes dans l'Année du Rosaire, j'ai choisi les paroles significatives de Jésus à l'Apôtre dont il était le plus proche:  *"Voici ta Mère!"*( *Jn* 19, 27). Il s'agit d'une puissante invitation qui s'adresse à vous tous, chers jeunes, à reconnaître et accueillir dans votre vie Marie comme  Mère.  Jeunes  d'Europe  et du monde, ouvrez votre coeur à Marie et suivez docilement son exemple!
+
+3. Je m'adresse à vous, chers jeunes de Rome, et je vous donne rendez-vous le jeudi 10 avril prochain, sur la place Saint-Pierre. Ce sera un moment de prière et de fête, comme ce soir. Ensemble, nous accomplirons un acte solennel de consécration à la Vierge, en Lui demandant de veiller sur vous et de protéger votre chemin de jeunes du troisième millénaire. En cette circonstance, je donnerai à chacune des personnes présentes un chapelet, en invitant à réciter cette prière mariale traditionnelle, afin qu'elle devienne toujours plus familière également à la jeunesse d'aujourd'hui. A travers une fervente récitation du Rosaire, l'on peut changer le destin du monde.
+
+Que la conscience de ce fait vous anime au cours de la procession que vous allez accomplir dans peu de temps, jusqu'à l'église de "Sant'Ivo alla Sapienza", en y portant l'icône de *Marie Sedes Sapientiae*. Je m'unis spirituellement à vous, tout en vous bénissant tous avec affection, ainsi que les personnes qui vous sont chères.

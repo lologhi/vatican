@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU CHAPITRE GÉNÉRAL***
+
+***DES CISTERCIENS DE LA STRICTE OBSERVANCE***
+
+*Salle Clémentine*
+
+*Samedi 23 septembre 2017*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/9/23/cistercensi-dellastrettaosservanza.html)\]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je vous accueille avec joie à l’occasion de votre chapitre général. Je remercie chacun de vous pour cette visite, à l’initiative de l’abbé général qui s’est fait l’interprète de tous, illustrant également le but et les objectifs de votre assemblée. A travers vous, je désirerais envoyer une cordiale salutation aux confrères et consœurs de vos monastères présents dans divers pays. Je rejoins avec le cœur et avec l’esprit vos cloîtres silencieux, d’où la prière incessante s’élève pour l’Eglise et pour le monde. Et je remercie le Seigneur de la présence irremplaçable des communautés monastiques, qui représentent une richesse spirituelle et un rappel constant à rechercher en premier lieu «les choses d’en haut», pour vivre dans une juste mesure les réalités terrestres.
+
+Au cours de ces journées de réflexion et d’échange d’expériences, vous êtes appelés à identifier les objectifs et les parcours pour vivre avec une authenticité toujours plus grande votre vocation et votre consécration, en tenant compte des exigences du moment présent, afin d’être des témoins de *prière assidue*, de *sobriété*, d’ *unité dans la charité*.
+
+Votre vie contemplative est caractérisée par la *prière assidue*, expression de votre amour pour Dieu et reflet d’un amour qui embrasse l’humanité tout entière. Suivant l’exemple de saint Benoît, vous ne placez rien avant l’ *opus Dei*: je vous exhorte à accorder une grande importance à la méditation de la Parole de Dieu, en particulier la *lectio divina*, qui est source de prière et école de contemplation. Etre contemplatifs demande un chemin fidèle et persévérant, afin de devenir des hommes et des femmes de prière, toujours plus imprégnés d’amour pour le Seigneur et devenir ses amis. Il s’agit de ne pas être des «professionnels» — dans un sens négatif — mais des amoureux de la prière, en considérant la fidélité extérieure aux pratiques et aux normes qui la réglementent et en rythment les moments, non comme une fin mais comme un moyen pour progresser dans le rapport personnel avec Dieu. Ainsi, vous devenez les maîtres et les témoins qui Lui offrent le sacrifice de louange et intercèdent pour les besoins et le salut du peuple. Dans le même temps, vos monastères continuent à être des lieux privilégiés où trouver une vraie paix et un bonheur authentique que seul Dieu, notre refuge sûr, peut nous donner.
+
+Dès les origines, les cisterciens de la stricte observance se caractérisent par une grande *sobriété de vie*, convaincus qu’elle est une aide efficace pour se concentrer sur l’essentiel et parvenir plus facilement à la joie de la rencontre sponsale avec le Christ. Cet élément de simplicité spirituelle et existentielle conserve toute sa valeur de témoignage dans le contexte culturel d’aujourd’hui, qui, trop souvent, pousse au désir de biens éphémères et de paradis artificiels illusoires.
+
+Ce style de vie favorise aussi vos relations intérieures et extérieures au monastère. Vous ne vivez pas comme des ermites en communauté, mais comme des cénobites dans un désert particulier. Dieu se manifeste dans votre solitude personnelle, ainsi que dans la solidarité qui vous unit aux membres de la communauté. Vous êtes seuls et séparés du monde pour avancer sur le sentier de l’intimité divine; dans le même temps, vous êtes appelés à faire connaître et partager cette expérience spirituelle avec d’autres frères et sœurs, en équilibre constant entre contemplation personnelle, union à la liturgie de l’Eglise et accueil de ceux qui cherchent des moments de silence afin d’être introduits dans l’expérience de la vie avec Dieu. Votre ordre, comme chaque autre institut religieux, est un don fait par Dieu à l’Eglise; c’est pourquoi il est nécessaire qu’il vive bien intégré dans la dimension de communion de l’Eglise elle-même. Je vous encourage à être un témoignage qualifié de la recherche de Dieu, école de prière et école de charité pour tous.
+
+La «Charte de charité», un document qui fixe les modalités de votre vocation dûment authentifiée par l’Eglise, établit les caractères essentiels du chapitre général, appelé à être signe d’ *unité dans la charité* pour tout l’institut. Cette unité dans la charité est le paradigme de chaque famille religieuse appelée à suivre le Christ de plus près dans la dimension de la vie communautaire, et elle s’exprime en premier lieu dans chacune de vos communautés monastiques, dans un climat de fraternité véritable et cordiale, selon la parole du psaume: «Comme il est beau et comme il est doux que les frères vivent ensemble» (133, 1). A ce propos, l’invitation de saint Benoît est toujours d’actualité: «Que personne ne soit perturbé ou attristé dans la maison de Dieu».
+
+L’unité dans la charité s’exprime également dans la *fidélité au patrimoine spirituel*, c’est à dire à l’identité de votre ordre. A cet égard, le chapitre général est une occasion propice pour renouveler, dans un climat de dialogue et d’écoute réciproque, la communion des intentions dans la recherche de la volonté de Dieu. Je vous exhorte à vous interroger avec sérénité et vérité sur la qualité de votre témoignage de vie, sur votre fidélité dynamique au charisme, sur la façon dont il est vécu par vos communautés monastiques, ainsi que par chaque moine et moniale. En effet, la protection du charisme est l’une des principales responsabilités du chapitre général et elle est une expérience vitale du présent qui se situe entre la mémoire bienfaisante du passé et les perspectives pour un avenir d’espérance.
+
+Votre ordre, dans son parcours historique, a connu des temps de grâce et des moments de difficultés; cependant, il a toujours persévéré dans sa fidélité à la suite du Christ, ayant pour objectif la gloire de Dieu et le bien des personnes. Dans ce sillage de votre tradition spirituelle, vous pouvez lire l’état actuel de l’ordre, dans ses aspects de lumière et d’ombre et, dans la nouveauté de l’Esprit, identifier avec courage de nouvelles possibilités et occasions pour témoigner de votre charisme dans l’aujourd’hui de l’Eglise et de la société.
+
+Je souhaite qu’un tel témoignage soit rendu encore plus éloquent par une coordination toujours plus organique entre les diverses branches de l’ordre.
+
+Que la Vierge Marie, Mère de Dieu et de l’Eglise, modèle de toute vie consacrée, accompagne par son intercession maternelle vos travaux capitulaires et le chemin de l’ordre. Avec ces vœux, alors que je vous demande de prier pour moi, je vous donne ma bénédiction apostolique que j’étends à tous les moines et toutes les moniales de votre communauté. Merci.

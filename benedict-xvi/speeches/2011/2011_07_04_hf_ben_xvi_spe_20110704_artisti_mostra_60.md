@@ -1,0 +1,25 @@
+INAUGURATION DE L'EXPOSITION *"LA SPLENDEUR DE LA VÉRITÉ, LA BEAUTÉ DE LA CHARITÉ*-
+
+HOMMAGE DES ARTISTES À BENOÎT XVI"
+
+POUR SON [60e ANNIVERSAIRE DE SACERDOCE](http://www.vatican.va/special/60ratzinger/index_fr.html)
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+*Atrium de la Salle Paul VI*
+
+*Lundi 4 juillet 2011*
+
+*Messieurs les cardinaux,*
+
+*vénérés frères dans l’épiscopat et dans le sacerdoce,*
+
+*chers amis,*
+
+C’est pour moi une grande joie de vous rencontrer et de recevoir votre hommage créatif et multiforme à l’occasion du 60e anniversaire de mon ordination sacerdotale. Je vous suis sincèrement reconnaissant de votre proximité en cette fête si significative et importante pour moi. Au cours de la célébration eucharistique du 29 juin dernier, solennité des saints apôtres Pierre et Paul, j’ai rendu grâce au Seigneur pour le don de la vocation sacerdotale. Aujourd’hui, je vous remercie pour l’amitié et la gentillesse que vous me manifestez. Je salue cordialement le cardinal Angelo Sodano, doyen du Sacré collège, et le cardinal Gianfranco Ravasi, président du Conseil pontifical de la culture, qui, avec ses collaborateurs, a organisé cette singulière manifestation artistique, et je le remercie des paroles courtoises qu’il m’a adressées. J’adresse également mon salut à toutes les personnes présentes, de manière particulière à vous, chers artistes, qui avez accueilli l’invitation à présenter l’une de vos créations au cours de cette exposition.
+
+Notre rencontre d’aujourd’hui, au cours de laquelle j’ai la joie et la curiosité d’admirer vos œuvres, veut être une nouvelle étape de ce parcours d’amitié et de dialogue que nous avons entrepris le 21 novembre 2009, dans la chapelle Sixitine, un événement que je garde encore imprimé dans mon âme. L’Eglise et les artistes recommencent à se rencontrer, à se parler, à soutenir la nécessité d’un dialogue qui veut et qui doit devenir toujours plus intense et articulé, également pour offrir à la culture, ou plutôt aux cultures de notre temps, un exemple éloquent de dialogue fécond et efficace, visant à rendre notre monde plus humain et plus beau. Vous me présentez aujourd’hui le fruit de votre créativité, de votre réflexion, de votre talent, expressions des divers domaines artistiques que vous représentez ici: peinture, sculpture, architecture, orfèvrerie, photographie, cinéma, musique, littérature et poésie. Avant de les admirer avec vous, permettez-moi de m’arrêter seulement un moment sur le titre suggestif de cette exposition: «La splendeur de la vérité, la beauté de la charité». Précisément dans l’homélie de la *Messa pro eligendo pontifice*, en commentant la belle expression de saint Paul de la *Lettre aux Ephésiens «veritatem facientes in caritate»* (4, 15), je définissais le fait de «faire la vérité dans la charité» comme une formule fondamentale de l’existence chrétienne. Et j’ajoutais: «Dans le Christ, la vérité et la charité coïncident. Dans la mesure où nous nous approchons du Christ, notre vie, notre vérité et notre charité se fondent également. La charité sans la vérité serait aveugle; la vérité sans la charité serait comme une “cymbale retentissante” (1 *Co* 13, 1)». C’est précisément de l’union, je voudrais dire de la symphonie, de la parfaite harmonie de vérité et de charité, qu’émane l’authentique beauté, capable de susciter l’admiration, l’émerveillement et la joie véritable dans le cœurs des hommes. Le monde dans lequel nous vivons a besoin que la vérité resplendisse et ne soit pas voilée par le men-songe ou par la banalité; il a besoin que la charité enflamme et ne soit pas écrasée par l’orgueil et par l’égoïsme. Nous avons besoin que la beauté de la vérité et de la charité frappe au plus profond de notre cœur et le rende plus humain.
+
+Chers amis, je voudrais vous renouveler, ainsi qu’à tous les artistes un appel amical et passionné: ne séparez jamais la créativité artistique de la vérité et de la charité, ne cherchez jamais la beauté loin de la vérité et de la charité, mais avec la richesse de votre génie, de votre élan créatif, soyez toujours, avec courage, des chercheurs de la vérité et des témoins de la charité; faites resplendir la vérité dans vos œuvres et faites en sorte que leur beauté suscite dans le regard et dans le cœur de celui qui les admire, le désir et le besoin de rendre l’existence belle et véritable, chaque existence, en l’enrichissant de ce trésor qui ne vient jamais à manquer, qui fait de la vie un chef-d’œuvre et de chaque homme un artiste extraordinaire: la charité, l’amour. Que l’Esprit Saint, créateur de toute beauté qui est dans le monde, vous illumine toujours et vous guide vers la Beauté ultime et définitive, celle qui réchauffe notre esprit et notre cœur et que nous attendons de pouvoir contempler un jour dans toute sa splendeur.
+
+Je vous remercie encore une fois pour votre amitié, pour votre présence et parce que vous apportez dans le monde un rayon de cette Beauté, qui est Dieu. De tout cœur, je vous donne à tous, ainsi qu’à vos proches et au monde de l’art tout entier, ma Bénédiction apostolique.

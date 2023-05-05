@@ -1,0 +1,11 @@
+**DECLARATIO**
+
+**(** **[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_ELQ2GYD9)** **)**
+
+*Frères très chers,*
+
+Je vous ai convoqués à ce Consistoire non seulement pour les trois canonisations, mais également pour vous communiquer une décision de grande importance pour la vie de l’Église. Après avoir examiné ma conscience devant Dieu, à diverses reprises, je suis parvenu à la certitude que mes forces, en raison de l’avancement de mon âge, ne sont plus aptes à exercer adéquatement le ministère pétrinien. Je suis bien conscient que ce ministère, de par son essence spirituelle,  doit être accompli non seulement par les œuvres et par la parole, mais aussi, et pas moins, par la souffrance et par la prière. Cependant, dans le monde d’aujourd’hui, sujet à de rapides changements et agité par des questions de grande importance pour la vie de la foi, pour gouverner la barque de saint Pierre et annoncer l’Évangile, la vigueur du corps et de l’esprit est aussi nécessaire, vigueur qui, ces derniers mois, s’est amoindrie en moi d’une telle manière que je dois reconnaître mon incapacité à bien administrer le ministère qui m’a été confié. C’est pourquoi, bien conscient de la gravité de cet acte, en pleine liberté, je déclare renoncer au ministère d’Évêque de Rome, Successeur de saint Pierre, qui m’a été confié par les mains des cardinaux le 19 avril 2005, de telle sorte que, à partir du  28 février 2013 à vingt heures, le Siège de Rome, le Siège de saint Pierre, sera vacant et le conclave pour l’élection du nouveau Souverain Pontife devra être convoqué par ceux à qui il appartient de le faire.
+
+Frères très chers, du fond du cœur je vous remercie pour tout l’amour et le travail avec lequel vous avez porté avec moi le poids de mon ministère et je demande pardon pour tous mes défauts. Maintenant, confions la Sainte Église de Dieu au soin de son Souverain Pasteur, Notre Seigneur Jésus-Christ, et implorons sa sainte Mère, Marie, afin qu’elle assiste de sa bonté maternelle les Pères Cardinaux dans l’élection du Souverain Pontife. Quant à moi, puissé-je servir de tout cœur, aussi dans l’avenir, la Sainte Église de Dieu par une vie consacrée à la prière.
+
+**BENEDICTUS PP XVI**

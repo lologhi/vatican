@@ -1,0 +1,25 @@
+CONCERT À L'OCCASION DU 110 ANNIVERSAIRE
+
+DE LA NAISSANCE DU PAPE PAUL VI
+
+***DISCOURS*** ***DU PAPE BENOÎT XVI***
+
+*Salle des Suisses du Palais pontifical de Castelgandolfo*
+
+*Mercredi 26 septembre 2007*
+
+*Messieurs les Cardinaux,*
+
+*Vénérés frères dans l'épiscopat,*
+
+*chers frères et sœurs,*
+
+Nous avons passé ensemble une suggestive soirée musicale, qui nous a donné l'opportunité d'écouter à nouveau des œuvres certainement connues, mais toujours capables de susciter des émotions spirituelles nouvelles et profondes. La circonstance qui est a l'origine de cet événement est significative, il s'agit du 110 anniversaire de la naissance du Serviteur de Dieu Paul VI, qui eut lieu à Concesio, le 26 septembre 1897, précisément comme aujourd'hui.
+
+C'est avec des sentiments de vive gratitude que j'adresse mon salut à vous tous, qui avez pris part à cet acte de commémoration d'un grand Souverain Pontife, qui a marqué l'histoire du XX siècle. Je remercie de tout cœur ceux qui ont organisé et ceux qui ont exécuté ces œuvres avec un talent apprécié. Je salue avec affection les Cardinaux présents, et en particulier le Cardinal Giovanni Battista Re, compatriote du Pape Montini. J'adresse un salut spécial à l'Evêque auxiliaire de Brescia, Mgr Francesco Beschi, que je remercie des paroles qu'il m'a adressées auparavant, aux autres prélats, aux prêtres, à vous tous. J'étends ensuite ma pensée respectueuse aux différentes personnalités qui nous honorent de leur présence, avec une mention spéciale pour les Maires de Brescia et de Bergame, les autres  Autorités  civiles et militaires, ainsi que les Représentants des Institutions qui ont particulièrement contribué à réalisation de cette manifestation significative. J'ai surtout à cœur de me faire l'interprète des sentiments communs, en exprimant mon appréciation reconnaissante aux solistes et à tous les membres de l'Orchestre du Festival international de Piano Arturo Benedetti Michelangeli de Brescia et Bergame, dirigé par le célèbre Maître Agostino Orizio. Ces derniers, avec un talent et une puissance d'expression extraordinaires, ont exécuté des œuvres musicales de Vivaldi, Bach et Mozart, aidant notre esprit à percevoir dans le langage musical l'intime harmonie de la beauté divine.
+
+Ce soir, assister à l'interprétation d'œuvres musicales célèbres nous a donné l'occasion de nous souvenir d'un Pape illustre, Paul VI, qui a rendu à l'Eglise et au monde un service plus que jamais précieux à une époque difficile et dans des conditions sociales caractérisées par de profondes transformations culturelles et religieuses. Nous rendons hommage à l'esprit de sagesse évangélique avec lequel mon bien-aimé prédécesseur a su guider l'Eglise pendant et après le [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm). Il a ressenti, avec une intuition prophétique, les espérances et les inquiétudes des hommes de cette époque; il s'est efforcé d'en valoriser les expériences positives en cherchant à les illuminer par la lumière de la vérité et de l'amour du Christ, l'unique Rédempteur de l'humanité. L'amour qu'il nourrissait pour l'humanité avec ses progrès, les merveilleuses découvertes, les bénéfices et les  possibilités  de la science et de la technique, ne l'a cependant pas empêché de mettre en évidence les contradictions, les erreurs et les risques d'un progrès scientifique et technologique détaché d'une solide référence aux valeurs éthiques et spirituelles. Son enseignement reste donc encore aujourd'hui actuel, et il constitue une source à laquelle puiser pour mieux comprendre les textes conciliaires et analyser les événements ecclésiaux qui ont caractérisé la deuxième partie du XX siècle.
+
+Paul VI a été prudent et courageux en guidant l'Eglise avec un réalisme et un optimisme évangélique, nourris par une foi indomptée. Il a souhaité l'avènement de la "civilisation de l'amour", convaincu que la charité évangélique constitue l'élément indispensable pour construire une authentique fraternité universelle. Ce n'est qu'en reconnaissant Dieu comme Père, qui dans le Christ a révélé son amour à tous, que les hommes peuvent devenir et se sentir réellement frères. Seul le Christ, vrai Dieu et vrai homme, peut convertir l'âme humaine et la rendre capable de contribuer à réaliser une société juste et solidaire. Ses successeurs ont recueilli l'héritage spirituel du Serviteur de Dieu Paul VI, et ils ont marché dans le même sillage. Nous prions afin que son exemple et ses enseignements soient pour nous un encouragement et une incitation à aimer toujours plus le Christ et l'Eglise, animés par cette indomptable espérance qui a soutenu le Pape Montini jusqu'au terme de son existence. C'est avec ces sentiments, que je remercie à nouveau ceux qui ont préparé, animé et réalisé cette rencontre musicale et, en invoquant sur les personnes présentes la protection constante du Seigneur, je donne de tout cœur à tous ma Bénédiction apostolique.
+
+© Copyright 2007 - Libreria Editrice Vaticana

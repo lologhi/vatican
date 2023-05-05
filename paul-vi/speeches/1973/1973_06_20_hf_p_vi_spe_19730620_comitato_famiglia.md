@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX MEMBRES DU COMITÉ POUR LA FAMILLE***
+
+*Mercredi 20 juin 1973*
+
+*Cher et vénéré Monsieur le Cardinal,*
+
+*Vénérables Frères,*
+
+*Chers Fils et Filles,*
+
+C'est pour nous une grande joie de rencontrer, à l’occasion de sa première assemblée plénière, le Comité pour la famille que nous avons institué au début de cette année. Vous êtes venus pour nous confirmer votre adhésion et votre collaboration et Nous tenons à vous en remercier.
+
+Dans le domaine où vous nous apportez votre aide, des problèmes nombreux et urgents se font jour. Aussi nous nous félicitons de voir comment, dès ses premiers échanges, votre Comité a relevé la nécessité d’orienter son travail vers la recherche des réalités permanentes qui sont constitutives de la famille, afin de mettre en valeur ce qui lui est essentiel dans l’ordre de la nature comme dans celui de la grâce.
+
+Lorsqu’elle souligne sans se lasser la valeur particulière et éminente de l’institution familiale, l’Eglise prend en fait concrètement la défense de la vie humaine dans toute son ampleur et dans sa conception la plus élevée. En voulant déterminer son sens et ses besoins essentiels, nous nous trouvons dans un de ces domaines où la signification profonde de la nature humaine ne peut se découvrir qu’à la lumière de la révélation. De toutes les institutions humaines, le mariage est peut-être celle qui permet le mieux de saisir la pensée du Dieu créateur et la manière dont il appelle l’homme à coopérer à son œuvre.
+
+De là découle l’aspect sacral qui appartient au mariage. De là découle aussi sa véritable structure qui comporte l’exclusivité et la pérennité de l’union qui le constitue. Dans cette foi mutuelle qui est celle des époux, dans leur responsabilité commune envers leurs enfants qu’ils ont la charge d’accueillir, d’éduquer et de conduire à l’âge adulte, les foyers chrétiens trouvent une participation mystérieuse mais réelle à l’action par laquelle le Christ s’unit à son Eglise et la fait grandir. C’est dire la dignité du sacrement de mariage qui devient le signe de cette union et la source de toutes les grâces dont les époux ont besoin.
+
+Engendrée par l’amour, la société constituée par la famille se conserve et se renforce grâce à l’amour mutuel de ses membres. Ainsi, qu’il s’agisse de la croissance psychologique et morale de l’enfant, ou de l’épanouissement du couple dans l’amour conjugal et l’exercice de ses responsabilités propres, la cellule familiale est au service d’une vie pleinement humaine; et elle est au point de départ d’une vie sociale équilibrée dans laquelle le respect de soi est inséparable du respect d’autrui.
+
+Ces quelques paroles suffisent à mettre en lumière le but du Comité que nous avons fondé. Le Concile avait déjà relevé combien les déséquilibres du monde moderne pesaient lourdement sur l’institution familiale (Cfr. *[Gaudium et Spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, 8). Les risques qu’elle court, vous ne l’ignorez pas, vont chaque jour s’accentuant, encore augmentés trop souvent par une utilisation des ressources de la science en dehors des exigences morales chrétiennes. Face à ces difficultés et en vue de promouvoir une pastorale familiale adaptée, la tâche confiée au Comité s’avère d’une importance capitale. Il appartient tout d’abord à celui-ci de cerner et d’étudier les problèmes actuels dans toute leur ampleur, en observant attentivement les divers visages que prend l’institution familiale selon les cultures et les civilisations, avec ses valeurs et ses déficiences. Cette analyse objective doit aussi lui permettre d’être un lieu privilégié d’échange et de confrontation, d’où pourront résulter à la fois un approfondissement des questions doctrinales et pastorales qui se posent aujourd’hui, et une concertation visant à favoriser une action pastorale efficace.
+
+Nous savons le travail déjà accompli en ce sens et nous vous en félicitons. L’importance des réalités en cause suffit à stimuler vos efforts. Est-il besoin de vous encourager, devant la gravité de certaines situations, à poursuivre vos recherches à un rythme soutenu, en union avec les autres organismes de la Curie romaine? La prochaine «Année de la Population», en 1974, vous donnera l’occasion de faire la preuve de votre efficience. Le Comité pourra ainsi offrir une précieuse collaboration aux Pasteurs, et à toutes les Organisations catholiques qui sont particulièrement engagées dans l’étude de ces problèmes.
+
+Les graves sujets que Nous venons d’évoquer nous tiennent à cœur: il y va d’une de ces réalités fondamentales dont dépend, pour une grande part, la conception même de l’existence et de son rapport avec Dieu. C’est pourquoi nous prions l’Esprit Saint de vous accorder en abondance la lumière et la force nécessaires pour accomplir cette œuvre d’Eglise et de civilisation humaine.
+
+Nous tenons à remercier Monsieur le Cardinal Roy qui, malgré les lourdes responsabilités qui sont les siennes par ailleurs, a voulu présider personnellement cette première et importante assemblée. Nous remercions aussi celui, qui, en son absence, assume immédiatement la responsabilité du Comité, c’est-à-dire Monseigneur Gagnon, premier Vice-président, et tous ceux, du laïcat et du clergé, qui collaborent avec lui d’une manière plus directe au sein du «groupe de coordination». A vous tous, enfin, Membres et Consulteurs du Comité, réunis pour cette première assemblée plénière, nous exprimons notre gratitude pour votre apport si apprécié et nous vous donnons de grand cœur, en gage de l’assistance divine pour vos travaux, notre affectueuse Bénédiction Apostolique.

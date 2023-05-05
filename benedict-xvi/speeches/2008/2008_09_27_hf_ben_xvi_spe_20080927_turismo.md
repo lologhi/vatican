@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE BENOÎT XVI******AUX PARTICIPANTS À LA RENCONTRE ORGANISÉE***
+
+***PAR LE CENTRE TOURISTIQUE ITALIEN DE LA JEUNESSE ET***
+
+***PAR LE BUREAU INTERNATIONAL DU TOURISME SOCIAL***
+
+*Palais apostolique de Castelgandolfo - Salle des Suisses*
+
+*Samedi 27 septembre**2008*
+
+*Monsieur le cardinal,*
+
+*Vénérés frères dans l'épiscopat*
+
+*et dans le sacerdoce,*
+
+*Chers amis,*
+
+C'est avec joie que je vous accueille et vous adresse ma cordiale bienvenue. Je remercie le cardinal Martino, président du Conseil pontifical pour la pastorale des migrants et des personnes en déplacement, de m'avoir présenté les motifs de la rencontre d'aujourd'hui, et également de s'être fait l'interprète de vos sentiments. Je salue Mgr Agostino Marchetto, secrétaire de ce même dicastère préposé à la pastorale de la mobilité humaine, où s'inscrit également l'attention pastorale pour le tourisme. Mon salut s'étend à Mme Maria Pia Bertolucci et à Mgr Guido Lucchiari, respectivement présidente et consultant ecclésial du Centre touristique de la jeunesse (ctg), principal artisan de cette visite, ainsi que M. Norberto Tonini, président du Bureau international du tourisme social (bits), qui s'est associé à l'initiative. Un salut affectueux à vous tous ici présents.
+
+Notre rencontre a lieu aujourd'hui à l'occasion de la célébration de la *Journée mondiale du tourisme*. Le thème de cette année - *Le tourisme affronte le défi des changements climatiques -* porte sur une problématique de grande actualité, qui fait référence au potentiel du secteur touristique au regard de l'état de la planète et du bien-être de l'humanité. Vos deux institutions sont déjà engagées dans un tourisme attentif à la promotion intégrale de la personne, dans une vision de développement durable et de solidarité, et cela fait de vous des acteurs qualifiés dans l'œuvre de sauvegarde et de valorisation responsables des ressources de la Création, immense don de Dieu à l'humanité.
+
+L'humanité a le devoir de protéger ce trésor et de s'engager contre un usage aveugle des biens de la terre. Sans une limite éthique et morale adéquate, le comportement humain peut en effet se transformer en menace et en défi. L'expérience enseigne que la gestion responsable de la Création fait partie, ou du moins devrait faire partie, d'une économie saine et durable du tourisme. Au contraire, le mauvais usage de la nature et l'abus infligé à la culture des populations locales nuisent également au tourisme. Apprendre à respecter l'environnement enseigne également à respecter les autres et soi-même. En 1991, dans l'encyclique *[Centesimus annus](http://www.vatican.va/edocs/FRA0072/_INDEX.HTM),* mon bien-aimé prédécesseur Jean-Paul ii avait déjà dénoncé la consommation excessive et arbitraire des ressources, en rappelant que l'homme est un collaborateur de Dieu dans l'œuvre de la Création et qu'il ne peut se substituer à Lui. Il avait également souligné combien l'humanité d'aujourd'hui doit "avoir conscience de ses devoirs et de ses responsabilités envers les générations à venir" (n. 37).
+
+Aussi, il est nécessaire, surtout dans le domaine du tourisme, grand consommateur de la nature, que tous tendent à une gestion équilibrée de notre *habitat,* de ce qui est notre maison commune et qui le sera pour ceux qui viendront après nous. La dégradation de l'environnement ne peut être ralentie qu'en diffusant une culture comportementale adéquate, qui englobe des modes de vie plus sobres. D'où l'importance, comme je l'ai rappelé récemment, d'éduquer à une *éthique de la responsabilité* et de continuer à "faire des propositions plus constructives pour garantir le bien des générations futures" ( *[Discours à l'Elysée](/content/benedict-xvi/fr/speeches/2008/september/documents/hf_ben-xvi_spe_20080912_parigi-elysee.html)*).
+
+De plus, l'Eglise partage avec vos institutions et d'autres organisations semblables l'engagement pour la diffusion du tourisme dit social qui promeut la participation des couches sociales les plus défavorisées et peut être un instrument valable de lutte contre la pauvreté et tant d'autres fragilités, en fournissant des emplois, en protégeant les ressources et en promouvant l'égalité. Ce tourisme représente un motif d'espérance dans un monde où s'est accentué l'écart entre celui qui a tout et ceux qui souffrent de la faim, de la famine et de la sécheresse. Je souhaite que la réflexion faite à l'occasion de cette Journée mondiale du tourisme, grâce au thème choisi, réussisse à influencer positivement le style de vie de nombreux touristes, de manière à ce que chacun contribue au bien-être de tous, qui est en définitive le bien-être de chacun.
+
+Je m'adresse enfin aux jeunes pour que, à travers vos institutions, ils se fassent les partisans et les témoins de comportements visant au respect de la nature et de sa défense, dans une perspective écologique correcte, comme je l'ai souligné plusieurs fois à l'occasion de la Journée mondiale de la jeunesse à Sydney, en juillet dernier. Il revient aux nouvelles générations de promouvoir un tourisme sain et solidaire, qui bannisse le consumérisme et le gaspillage des ressources de la terre, pour laisser un espace aux gestes de solidarité et d'amitié, de connaissance et de compréhension. De cette manière, le tourisme peut devenir un instrument privilégié d'éducation à la coexistence pacifique. Que Dieu vous aide dans votre travail. De mon côté, soyez-en sûrs, je vous assure de mon souvenir dans la prière, alors que je vous donne avec affection la Bénédiction apostolique à vous tous ici présents, aux personnes qui vous sont chères et aux membres de vos institutions dignes d'éloges.
+
+© Copyright 2008 - Libreria Editrice Vaticana

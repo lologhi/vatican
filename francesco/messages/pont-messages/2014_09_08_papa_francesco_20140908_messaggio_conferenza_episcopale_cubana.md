@@ -1,0 +1,29 @@
+***MESSAGE DU PAPE FRANÇOIS***
+
+***AU PRÉSIDENT DE LA CONFÉRENCE ÉPISCOPALE CUBAINE***
+
+***À L'OCCASION DE LA FÊTE DE LA NATIVITÉ DE MARIE,***
+
+***FÊTE DE LA VIERGE DE LA CHARITÉ DU CUIVRE***
+
+*Cher frère,*
+
+Il y a quelques jours, une statuette vénérée de Notre-Dame de la Charité du Cuivre a été placée dans les jardins du Vatican. Sa présence constitue un souvenir évocateur de l’affection et de la vitalité de l’Église  qui est en pèlerinage dans cette terre lumineuse des Caraïbes, qui depuis plus de quatre siècles s’adresse à la Mère de Dieu sous ce beau titre. Des montagnes de « El Cobre », et à présent du Siège de Pierre, cette petite figure bénie de Marie, rend plus grande l’âme de ceux qui l’invoquent avec dévotion, car elle nous conduit à Jésus, son Fils divin.
+
+Aujourd’hui, alors que l’on célèbre avec ferveur la fête de la Très Sainte Vierge Marie, la Vierge de Mambisa, je m’unis à tous les Cubains qui tournent leur regard vers son Cœur immaculé, pour lui demander des faveurs, lui confier leurs proches et l’imiter dans son humilité et son dévouement au Christ, dont elle a été la première et la meilleure des disciples.
+
+Chaque fois que je lis l’Écriture Sainte, dans les passages où l’on parle de Notre-Dame, trois verbes attirent mon attention. Je voudrais m’arrêter sur ces derniers, dans l’intention d’inviter les pasteurs et les fidèles de Cuba à les mettre en pratique.
+
+*Le premier est se réjouir.* Cela a été le premier mot que l’archange Gabriel a adressé à la Vierge : « Réjouis-toi, comblée de grâce, le Seigneur est avec toi » ( *Lc* 1, 28). La vie de celui qui a découvert Jésus se remplit d’une joie intérieure si grande que rien ni personne ne peut la lui ôter. Le Christ donne aux siens la force nécessaire pour ne pas être tristes ni abattus, en pensant que les problèmes n’ont pas de solution. Soutenus par cette vérité, le chrétien ne doute pas que ce que l’on accomplit avec amour engendre une joie sereine, sœur de cette espérance qui brise la barrière de la peur et ouvre les portes à un avenir prometteur. « Je suis la Vierge de la Charité » fut ce que lurent les trois frères sur la tablette qui flottait dans la Bahía de Nipe. Qu’il serait beau si chaque Cubain, en particulier les jeunes, pouvait dire la même chose : « Je suis un homme de la charité », je vis pour aimer vraiment et ainsi ne pas rester prisonnier de la spirale nuisible de l’œil pour œil, dent pour dent. Quelle joie éprouve celui qui aime vraiment, à travers ses actes quotidiens, et n’est pas l’un de ceux qui abondent en paroles vides de sens, que le vent emporte avec lui.
+
+*Le deuxième verbe est se lever*. Alors que Jésus était dans son sein, saint Luc dit que Marie se leva et se rendit en hâte servir sa cousine Élisabeth qui, à un âge avancé, allait devenir mère (cf. *Lc* 1, 39-45). Elle a accompli la volonté de Dieu en se mettant à la disposition de qui en avait besoin. Elle n’a pas pensé à elle-même, elle a surmonté les adversités et elle s’est donnée aux autres. La victoire appartient à ceux qui se relèvent sans cesse, sans se décourager. Si nous imitons Marie, nous ne pouvons pas rester les bras croisés, uniquement en nous plaignant, ou en éloignant les difficultés pour que d’autres accomplissent ce qui est notre responsabilité. Il ne s’agit pas de grandes choses, mais de tout faire avec tendresse et miséricorde. Marie a toujours été avec son peuple en faveur des petits. Elle a connu la solitude, la pauvreté et l’exil, et elle a appris à créer la fraternité et à faire de chaque lieu où germait le bien sa propre maison. Nous la supplions de nous donner une âme pauvre, qui soit sans orgueil, un cœur pur qui voie Dieu sur le visage des plus démunis, une patience forte qui ne recule pas face aux difficultés de la vie.
+
+*Le troisième verbe est persévérer*. Marie, qui avait fait l’expérience de la bonté de Dieu, a proclamé les grands choses qu’Il avait faites en elle (cf. *Lc* 1, 46-55). Elle n’a pas compté sur ses propres forces, mais en Dieu, dont l’amour n’a pas de fin. C’est pourquoi elle est resté aux côtés de son Fils, que tous avaient abandonné; elle a prié sans se désister à côté des apôtres et des autres disciples, afin qu’ils ne perdent pas courage (cf. *Ac* 1, 14). Nous aussi, nous sommes appelés à rester dans l’amour de Dieu et à rester en aimant les autres. Dans ce monde, où l’on refuse les valeurs durables et où tout est changeant, où triomphe l’éphémère, où il semble que les gens ont peur des engagements de la vie, la Vierge nous encourage à être des hommes et des femmes constants dans une action juste, qui tiennent toujours la parole donnée, qui sont toujours fidèles. Et cela parce que nous avons confiance en Dieu et que nous le plaçons au centre de notre vie et de celle des personnes que nous aimons.
+
+Éprouver de la joie et la partager avec ceux qui nous entourent, élever notre cœur et ne pas succomber face aux adversités, rester sur le chemin du bien, en aidant inlassablement ceux qui sont opprimés par des peines et des souffrances : voilà les leçons importantes, utiles aujourd’hui et demain, que la Vierge de la Charité du Cuivre nous enseigne. Je place les pasteurs, les communautés religieuses et les fidèles de Cuba entre ses mains maternelles, afin qu’Elle encourage leur engagement évangélisateur et leur volonté de faire de l’amour le fondement de la société. Ainsi ne manqueront pas la joie de vivre, le courage pour servir et la persévérance dans les bonnes œuvres.
+
+Je demande aux fils de l’Église  de Cuba, s’il vous plaît, de prier pour moi, car j’en ai besoin.
+
+Que Jésus les bénisse et que la Sainte Vierge prenne toujours soin d’eux !
+
+Fraternellement.

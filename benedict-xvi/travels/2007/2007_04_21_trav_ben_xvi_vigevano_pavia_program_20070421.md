@@ -1,0 +1,54 @@
+VISITE PASTORALE
+
+DU PAPE BENOÎT XVI
+
+À VIGEVANO ET PAVIE
+
+21-22 AVRIL 2007
+
+PROGRAMME
+
+***Samedi 21 avril***
+
+|     |     |     |
+| --- | --- | --- |
+| 15h15 | Départ en voiture du Vatican pour Ciampino |  |
+| 15h30 | Départ en avion de l’aéroport de Ciampino pour Milan/Linate |  |
+| 16h30 | Arrivée à Milan-Linate et transfert en hélicoptère à Vigevano |  |
+
+***Vigevano***
+
+|     |     |     |
+| --- | --- | --- |
+| 16h50 | Arrivée au stade "Dante Merlo" de Vigevano et transfert en "papamobile" au centre de la ville jusqu'à la Place *Sant'Ambrogio* |  |
+| 17h15 | Arrivée à l'évêché | ***Salut du Saint-Père et bénédiction aux jeunes et aux malades*** |
+| 17h30 | Concélébration eucharistique sur la Place Ducale avec les évêques de la Lombardie et les prêtres du diocèse | ***Homélie du Saint-Père*** |
+| 19h15 | Transfert en voiture de l'évêché au stade "Dante Merlo" de Vigevano |  |
+| 19h30 | Congé de l'autorité |  |
+| 19h45 | Départ en hélicoptère pour Pavie |  |
+
+Pavie
+
+|     |     |     |
+| --- | --- | --- |
+| 20h00 | Arrivée au Stade "P. Fortunati" de Pavie et transfert au centre de la ville |  |
+| 20h15 | Arrivée à la Place du Dôme où sont réunis les jeunes du diocèse | ***Paroles du Saint-Père*** |
+| 20h30 | Congé et nuit à l'évêché de Pavie |  |
+
+Dimanche 22 avril
+
+|     |     |     |
+| --- | --- | --- |
+| 8h45 | Transfert en voiture de l'évêchéà l'hôpital "Saint Matthieu" |  |
+| 9h00 | Arrivée à l'hôpital "Saint Matthieu" | ***Discours du Saint-Père*** |
+| 9h45 | Transfert de l'hôpital aux "Orti Borromaici" pour la célébration de la Messe |  |
+| 10h30 | Concélébration eucharistique avec les évêques de la Lombardie, les prêtres du diocèse et des pères Augustin | ***Homélie du Saint-Père***<br>***Regina Caeli*** |
+| 12h30 | Transfert en voiture à l'évêché |  |
+| 13h00 | Dîner avec les évêques de la Lombardie |  |
+| 16h00 | Salut aux familles des évêques |  |
+| 16h15 | Rencontre avec le monde de la culture dans la cour "Teresiano" de l'Université de Pavie | ***Discours du Saint-Père*** |
+| 17h00 | Transfert à la Basilique de Saint-Pierre en Ciel d'Or où le Saint-Père rencontrera les religieux, les religieuses et les séminaristes |  |
+| 17h30 | Célébration des vêpres dans la Basilique de Saint-Pierre en Ciel d'Or | ***Homélie du*** ***Saint-Père*** |
+| 18h30 | Transfert au stade "P. Fortunati" de Pavie et congé de l'autorité. Départ en hélicoptère pour Milano |  |
+| 19h00 | Départ en avion pour Rome-Ciampino |  |
+| 20h15 | Arrivée au Vatican |  |

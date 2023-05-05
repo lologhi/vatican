@@ -1,0 +1,49 @@
+VISITE À LA PAROISSE ROMAINE SAINT-JEAN-L'ÉVANGÉLISTE
+
+***HOMÉLIE DU PAPE JEAN-PAUL II***
+
+*18 novembre 1979*
+
+*Chers frères et sœurs,*
+
+1. Je viens ici aujourd'hui pour terminer la visite pastorale de votre paroisse qu'au début du mois d'octobre a accomplie l'Évêque auxiliaire, Mgr Clemente Riva.
+
+La visite aux diverses communautés du Peuple de Dieu fait partie des tâches fondamentales de tout Évêque. Ces tâches nous sont indiquées tout particulièrement par les apôtres du Seigneur qui ont visité les diverses communautés chrétiennes principalement celles auxquelles ils ont donné la vie. Le témoignage de saint Paul est particulièrement éloquent à cet égard. Saint Jean, patron de votre paroisse manifesta lui aussi, de diverses manières sa sollicitude apostolique pour les églises individuelles, dans ses épitres et plus particulièrement dans l'Apocalypse où, au début, il s'adresse aux sept Églises d'Asie : Éphèse, Smyrne, Pergame, Thyatire, Sardes, Philadelphie et Laodice ( *Ap* 1, 11).
+
+Comme Évêque de Rome, et en union avec vous, frères dans l'épiscopat Cardinal-Vicaire, Archevêques et Évêques auxiliaires, je désire rester fidèle à cette tradition apostolique.
+
+À l'occasion de la visite de ce jour, j'adresse un cordial salut à tous les chers paroissiens de St-Jean l'Évangéliste à Spinaceto ; je veux en particulier mentionner les très méritants prêtres qui se dédient aux soins pastoraux, les sœurs de l'Assomption et les Servantes de l'Amour Miséricordieux, les membres du Conseil paroissial et les différents mouvements ecclésiaux représentés ici. À tous j'adresse mes encouragements à poursuivre sur la voie d'un authentique témoignage chrétien.
+
+2. Dans la liturgie de ce dimanche le Seigneur nous adresse, de manière particulière, une parole : "Veillez !". Le Christ l'a prononcée plusieurs fois en diverses circonstances. Aujourd'hui cette parole : "Veillez !" se relie à la perspective eschatologique, la perspective de l'ultime réalité : "Veillez et priez à tout moment, afin que vous puissiez vous présenter devant le Fils de l'Homme" ( *Mt* 24, 42. 44).
+
+À cette invocation correspondent déjà les paroles de la première Lecture, tirée du Livre du Prophète Daniel. Toutefois y correspondent surtout les paroles de l'Évangile selon saint Marc qui affirment : que "le ciel et la terre passeront" ( *Mc* 13, 31) et tracent également le tableau de ce passage, en se référant à la fin du monde.
+
+Cette réalité est construite sur l'image du cosmos de cette époque. Depuis deux mille ans nos sciences naturelles et cosmologiques ont fait des pas en avant. L'homme d'aujourd'hui à peur de la destruction de sa planète et la relie principalement à l'ensemble de tous les moyens de destruction que produisent la science et la technique modernes. Je me permets de me référer ici aux paroles suivantes de l'Encyclique *[Redemptor hominis](http://www.vatican.va/holy_father/john_paul_ii/encyclicals/documents/hf_jp-ii_enc_04031979_redemptor-hominis_fr.html)*: "L'homme vit toujours plus dans la peur... Il craint que ses productions, pas toutes naturellement, ni dans leur majeure partie, mais quelques-unes et précisément celles qui comprennent une part spéciale de son génie et de sa créativité puissent être tournées radicalement contre lui-même ; il craint qu'elles puissent devenir les moyens et les instruments d'une autodestruction inimaginable, en face de laquelle tous les cataclysmes et toutes les catastrophes connues de l'histoire semblent pâlir" ( *[Redemptor hominis](http://www.vatican.va/holy_father/john_paul_ii/encyclicals/documents/hf_jp-ii_enc_04031979_redemptor-hominis_fr.html)*, III, 15).
+
+Une telle destruction, ou plutôt autodestruction de notre monde dont la menace hante la conscience de l'homme contemporain se présente en même temps comme une conséquence du fait que la haine prévaut sur l'amour et sur la justice, c'est-à-dire le triomphe du mal sur le bien au sens moral. Dans ce contexte le "Veillez !" du Seigneur acquiert une particulière limpidité. Il devient un grand impératif humain, à dimension internationale et universelle. Nous ressentons profondément qu'il est de notre devoir de penser et d'agir dans l'esprit de cet impératif, répétant sans cesse l'appel à la justice et à la paix dans le monde d'aujourd'hui.
+
+3\. On accuse souvent le catholicisme de détourner l'attention de l'homme des choses temporelles en l'orientant vers les réalités éternelles, ultimes. Ce reproche suppose une idée erronée au sujet de l'appel du Christ à veiller. Cette invocation est prononcée dans une perspective eschatologique mais en même temps elle s'ouvre à tous les problèmes, à toutes les tâches de l'homme qui vit sur cette terre. L'existence temporelle engendre une série de devoirs qui constituent précisément le contenu de ce "Veillez !" selon l'Évangile.
+
+Le Concile Vatican II exprime cette idée de différentes manières (particulièrement dans la Constitution *[Gaudium et Spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*), rappelant que la tâche des chrétiens, en collaboration avec tous les hommes de bonne volonté, est de faire en sorte que la vie de l'homme sur la terre devienne toujours plus "humaine" : et ceci dans tous les secteurs de l'existence terrestre. Ce devoir de l'Église dans toute son universalité doit être vivement ressenti dans chaque communauté, dans chaque paroisse, comme dans chaque parcelle ou cellule d'un organisme vivant ; l'Église est en effet le Corps du Christ.
+
+4\. En même temps ce "Veillez !" du Christ dont le contenu si dense à son écho dans la liturgie d'aujourd'hui, est adressé à chacun de nous, à chaque homme. Chacun de nous a sa propre part dans l'histoire du monde et dans l'histoire du salut, moyennant la participation à la vie de sa propre société, de son propre pays, de son milieu familial. Nous pouvons et devons être conscients du fait que ces cercles de relations dans lesquels chacun de nous existe, s'élargissent et se concentrent: des plus amples qu'il est parfois difficile d'embrasser aux plus restreints et plus voisins. Il est toutefois indubitable que de la manière dont chacun de nous accepte ce "Veillez !" évangélique dans le cercle le plus immédiat, dépendent également les cercles les plus lointains et toute l'image de la vie de l'humanité.
+
+Aujourd'hui donc, réunis ici à l'occasion de ma visite à la paroisse St-Jean l'Évangéliste puisque nous entendons cette invocation, que chacun de nous pense à sa vie personnelle, à sa vie conjugale et familiale. Que le mari pense à son comportement à l'égard de sa femme ; que la femme pense à son comportement à l'égard de son mari ; les parents à l'égard de leurs enfants, les enfants à l'égard de leurs parents. Que les jeunes pensent à leurs relations avec les adultes et avec toute la société qui a le droit de voir en eux un meilleur avenir. Que les bien-portants pensent aux malades, aux souffrants ; les riches aux nécessiteux. Les pasteurs d'âmes à ces frères et sœurs qui constituent "le bercail du Bon Pasteur", etc.
+
+Cette manière de penser, née du contenu profond et universel du "Veillez !" du Christ est la source de la vraie vie intérieure. Elle prouve la maturité de la conscience. Elle manifeste le sens de responsabilité envers soi et envers les autres. Par cette manière de penser et d'agir chacun de nous participe, comme chrétien, à la mission de l'Église.
+
+5. L'Évêque vient dans la paroisse pour rendre tous et chacun conscient du fait que les baptisés prennent part à la mission de l'Église. De plus, qu'ils participent à l'œuvre de salut accomplie une fois pour toutes par le Christ, et sans cesse en voie d'accomplissement, dans le plus grand amour pour Dieu et pour les hommes. L'auteur de l'épître aux Hébreux affirme que Jésus-Christ "par une oblation unique a rendu parfaits pour toujours ceux qu'il sanctifie ( *He* 10, 14). Nous, moyennant la foi, nous vivons dans la perspective de ce sacrifice unique et nous l'accomplissons sans cesse, chacun pour soi et tous en communauté, avec notre vie, avec notre veillée.
+
+Nous ne pouvons, chers frères et sœurs, fermer les yeux devant les ultimes réalités. Nous ne pouvons fermer les yeux sur la signification définitive de notre existence terrestre.
+
+"Le ciel et la terre passeront mais mes paroles ne passeront pas" ( *Mc* 13, 31), dit le Seigneur. Nous devons vivre les yeux grands ouverts.
+
+Cette ouverture des yeux, favorisée par la lumière de la foi, nous apporte également la paix et la joie comme en témoignent les paroles du Psaume de la liturgie d'aujourd'hui. La joie découle du fait que "le Seigneur est la part de mon héritage et de ma coupe" ( *Ps* 16, 5). Ne vivons pas dans le vide et ne marchons pas vers le vide !
+
+"Le Seigneur est la part de mon héritage et de ma coupe / dans tes mains est ma vie / Je place sans cesse le Seigneur devant moi / car s'il est à ma droite je suis inébranlable / C'est pourquoi mon cœur est joyeux et mon âme jubile" ( *Ps* 16, 5. 8. 9).
+
+6. N'ayons donc pas peur d'accepter cette invocation : "Veillez donc, car vous ne savez pas quel jour va venir le Maître" ; veillez "car c'est à l'heure que vous ne pensez pas que le Fils de l'homme viendra" ( *Mt* 24, 42. 44).
+
+Que cette invocation modèle notre vie dès la base. Qu'elle nous permette de vivre une vie pleinement à la mesure de la dignité de l'homme : c'est-à-dire dans un climat de mûre liberté. Qu'elle donne à la vie de chacun de nous cette merveilleuse dimension qui a sa source dans le Christ.
+
+© Copyright 1979 - Libreria Editrice Vaticana

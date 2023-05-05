@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU CHAPITRE GÉNÉRAL***
+
+***DES MISSIONNAIRES DU SACRÉ-CŒUR DE JÉSUS***
+
+*Salle Clémentine*
+
+*Samedi 16 septembre 2017*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/9/16/capitolo-missionari-sacricuori.html)\]**
+
+* * *
+
+*Chers frères,*
+
+Je vous accueille avec joie à l’occasion de votre chapitre général et je remercie le supérieur général pour ses paroles. Vous vous êtes réunis pour réfléchir sur la vie de votre congrégation, prier et discerner ensemble les routes que le Seigneur vous indique pour actualiser et donner une fécondité renouvelée au charisme que l’Esprit Saint a donné à l’Eglise et au monde à travers votre fondateur, le prêtre Jean-Jules Chevalier.
+
+Je trouve particulièrement significative la *devise* que vous avez choisie pour la préparation que tout l’institut a réalisée en vue de ce chapitre: « *Tu as gardé le bon vin jusqu’à présent!*» (Jn 2, 10). Si d’une part, vous êtes en effet conscients et reconnaissant du précieux patrimoine des projets et des œuvres apostoliques que ce charisme a produits jusqu’à présent au cours du siècle et demi de la vie de l’institut, grâce à la fidélité des confrères qui vous ont précédés, d’une autre part, vous comprenez bien que ses riches potentialités, au profit de l’Eglise et du monde, ne sont pas épuisées. A l’écoute de ce que l’Esprit Saint dit aujourd’hui à son Eglise et ouverts aux demandes de l’humanité, vous saurez puiser à la source première et inépuisable de votre charisme un élan nouveau, des choix courageux, des expressions créatives pour la mission qui vous a été confiée. Les changements de situation du monde actuel par rapport au passé, et les nouvelles instances de l’engagement d’évangélisation de l’Eglise, sont précisément les conditions qui demandent et rendent possibles de nouvelles façons d’offrir le «bon vin» de l’Evangile afin de donner de la joie et de l’espérance à beaucoup.
+
+Si l’inspiration originelle du fondateur a été celle de diffuser la dévotion au Sacré-Cœur de Jésus, aujourd’hui, vous la comprenez et la réalisez en l’exprimant dans une variété d’œuvres et d’actions qui témoignent de *l’amour tendre et miséricordieux de Jésus envers tous*, spécialement envers ces portions d’humanité le plus dans le besoin. Pour pouvoir le faire, je vous invite — comme je l’ai souvent rappelé aux personnes consacrées — à «retourner vers le premier et unique amour», à maintenir le regard fixé sur le Seigneur Jésus pour apprendre de Lui à aimer avec un cœur humain, à chercher et prendre soin des brebis égarées et blessées, à vous engager pour la justice et la solidarité auprès des plus faibles et des pauvres, à donner espérance et dignité aux déshérités, à aller partout où un être humain attend d’être accueilli et aidé. En vous envoyant comme missionnaires dans le monde, c’est le premier évangile que l’Eglise vous confie: montrer dans vos personnes et avec vos œuvres l’amour passionné et tendre de Dieu pour les petits, les derniers, les sans défense, les rejetés de la terre.
+
+Bien que votre institut, comme d’autres, ait souffert au cours des dernières décennies d’une certaine diminution de ses membres, l’augmentation des vocations en Amérique du Sud, en Océanie et en Asie vous réconforte et vous donne une espérance pour le présent et l’avenir. Ainsi, la *formation chrétienne de la jeunesse*, expression supplémentaire de votre charisme, pourra également être garantie et accrue dans les œuvres de l’institut. Combien est urgent aujourd’hui l’engagement à éduquer et à accompagner les nouvelles générations à apprendre les valeurs humaines et à cultiver une vision évangélique de la vie et de l’histoire! Celle-ci, que beaucoup définissent comme une vraie «urgence éducative» est sans aucun doute l’une des frontières de la mission évangélisatrice de l’Eglise, pour laquelle toute la communauté chrétienne est invitée à sortir. Dans le sillage de tout ce qu’ont accompli les confrères qui vous ont précédés et des œuvres commencées par eux, je vous encourage à prendre des initiatives nouvelles également dans cette expression spécifique de votre apostolat.
+
+La congrégation des missionnaires du Sacré-Cœur de Jésus compte aujourd’hui encore un bon nombre de membres, parmi lesquels un groupe conséquent de religieux frères, et les frères, dans une congrégation, sont une grâce du Seigneur. Je vous en prie, ne cédez pas au mal du cléricalisme, qui éloigne le peuple et spécialement les jeunes de l’Eglise, comme je l’ai souvent rappelé. Vivez entre vous une véritable fraternité, qui accueille les diversités et valorise la richesse de chacun. N’ayez pas peur de poursuivre et d’accroître la communion avec les laïcs qui collaborent à votre apostolat, en les faisant participer à vos idéaux et à vos projets et en partageant avec eux les richesses de la spiritualité qui jaillit du charisme de l’institut. Avec eux et avec les sœurs de la congrégation féminine, se renforcera une plus grande «famille charismatique», qui montrera mieux la vitalité et l’actualité du charisme du fondateur.
+
+Que la Vierge Marie, que vous invoquez sous le titre de Notre-Dame du Sacré-Cœur de Jésus, vous maintienne toujours proches de son Fils, prêts à faire tout ce qu’elle vous dira, et qu’elle vous protège à travers son intercession maternelle. Que vous accompagne aussi ma bénédiction, que j’étends à toute votre communauté. Et, s’il vous plaît, n’oubliez pas de prier pour moi. Merci!

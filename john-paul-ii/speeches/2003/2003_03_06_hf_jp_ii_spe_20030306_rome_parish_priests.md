@@ -1,0 +1,45 @@
+RENCONTRE AVEC LES MEMBRES DU CLERGÉ DE ROME
+
+***DISCOURS DE JEAN-PAUL II***
+
+*Jeudi 6 mars 2003*
+
+*Monsieur le Cardinal,*
+
+*vénérés frères dans l'épiscopat,*
+
+*très chers prêtres romains!*
+
+1. Notre rencontre traditionnelle au début du Carême a lieu cette année, comme l'a souligné le Cardinal-Vicaire, en la XXV année de mon service pastoral en tant qu'Evêque de Rome. Il s'agit d'un anniversaire qui rappelle le ministère sacerdotal, dans lequel l'Evêque et ses prêtres sont intimement unis dans la conscience du don que Dieu leur a fait et dans l'engagement de "répondre" à ce don, en consacrant avec joie leur vie au service du Christ et de leurs frères.
+
+Je vous salue avec affection tous et chacun en particulier, et je vous remercie pour le service généreux que vous apportez à l'Eglise de Rome. Je vous remercie en particulier pour le climat qui s'est instauré aujourd'hui:  un climat spécial, très ouvert, je dirais. Je salue et je remercie le Cardinal-Vicaire, le Vice-Gérant, les Evêques auxiliaires et tous ceux parmi vous qui m'ont adressé la parole.
+
+2. "Paix à vous! Comme le Père m'a envoyé, moi aussi je vous envoie" ( *Jn* 20, 21). "Qui vous accueille m'accueille, et qui m'accueille accueille Celui qui m'a envoyé" ( *Mt* 10, 40). Dans ces deux affirmations de Jésus est contenu le mystère de notre sacerdoce, qui trouve sa vérité et son identité dans le fait d'être issu et d'être la continuation du Christ lui-même et de sa mission qu'il a reçue du Père.
+
+Deux paroles supplémentaires de Jésus nous aident à entrer plus profondément dans ce mystère. La première le concerne en personne:  "En vérité, en vérité, je vous le dis, le Fils ne peut rien faire de lui-même, qu'il ne le voie faire au Père" ( *Jn* 5, 19). La seconde est adressée à nous et à tous nos frères dans la foi:  "Hors de moi vous ne pouvez rien faire" ( *Jn* 15, 5). Ce "rien" répété nous renvoie au Christ et le Christ au Père. C'est le signe d'une dépendance totale, de la nécessité de nous détacher de nous-mêmes, mais c'est également le signe de la grandeur du don que nous avons reçu. Unis au Christ et au Père, en vertu du sacrement de l'Ordre, nous pouvons en effet remettre les péchés et prononcer sur le pain et le vin les paroles:  "Ceci est mon Corps, ceci est mon Sang". Dans la célébration de l'Eucharistie, nous oeuvrons véritablement "in persona Christi":  ce que le Christ a accompli sur l'autel de la Croix, et qu'il a établi auparavant encore comme sacrement dans le Cénacle, le prêtre le renouvelle dans la force de l'Esprit Saint (cf. *Don et mystère*, p. 89).
+
+3. Très chers frères prêtres de Rome, cela exige que dans l'exercice de notre ministère et dans toute notre vie, nous soyons véritablement des hommes de Dieu. Non seulement les fidèles, qui sont plus proches de nous, mais également les personnes faibles et titubantes dans leur foi et éloignées de la pratique de la vie chrétienne ne demeurent pas insensibles à la présence et au témoignage d'un prêtre qui est véritablement "homme de Dieu":  au contraire, dans la mesure où elles le connaissent, elles l'estiment et tendent à s'ouvrir à lui.
+
+C'est pourquoi il est si important que nous, prêtres, soyons les premiers à répondre avec sincérité et générosité à l'appel à la sainteté que Dieu adresse à tous les baptisés. La voie maîtresse et irremplaçable pour progresser sur le chemin de la sanctification est la prière:  en étant avec le Seigneur, nous devenons amis du Seigneur, son regard devient progressivement notre regard, son coeur devient notre coeur. Si nous voulons véritablement que nos communautés soient des "écoles de prière" (cf. [*Novo millennio ineunte*](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20010106_novo-millennio-ineunte.html), n. 33) nous devons être avant tout des hommes de prière et donc, à l'école de Jésus, de Marie et des Saints, maîtres de prière.
+
+Le coeur de la prière chrétienne et la clé du mystère de notre sacerdoce est sans aucun doute l'Eucharistie. C'est pourquoi la célébration de la Messe ne peut manquer d'être, pour chacun de nous, le centre de la vie et le moment le plus important de chaque journée. Très chers frères, en vérité, nous n'avons pas le choix! Si nous ne nous efforçons pas, humblement mais avec confiance, de progresser sur le chemin de notre sanctification, nous finissons par nous contenter de petits compromis qui deviennent peu à peu plus graves et peuvent déboucher parfois sur la trahison, ouverte ou voilée, de l'amour de prédilection avec lequel Dieu nous a aimés en nous appelant au sacerdoce.
+
+4. Le don de l'Esprit, qui nous unit au Christ et au Père, nous lie de façon indissoluble à ce corps du Christ et à cette épouse du Christ qu'est l'Eglise. Pour être des prêtres selon le coeur du Christ, nous devons aimer l'Eglise comme Lui l'a aimée, en nous donnant nous-mêmes pour elle (cf. *Ep* 5, 25). Nous ne devons pas avoir peur de nous identifier avec l'Eglise en nous prodiguant pour elle. Nous devons être, avec authenticité et générosité, des hommes d'Eglise.
+
+Le lien du prêtre avec l'Eglise se développe selon la dynamique typiquement christologique du Bon Pasteur, qui est dans le même temps chef et serviteur du Peuple de Dieu. Il est essentiellement un homme de communion, qui ne se lasse pas d'édifier la communauté chrétienne comme "maison et école de la communion" (cf. [*Novo millennio ineunte*](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20010106_novo-millennio-ineunte.html), n. 43). Le Synode que nous avons célébré de 1986 à 1993 a été concrètement, pour tout le diocèse de Rome, une grande école de communion et c'est avant tout le devoir du prêtre de traduire ce message du Synode dans la vie quotidienne des communautés. Mais cela exige qu'il sache en premier apporter l'exemple et le témoignage de la communion parmi les prêtres diocésains et dans les rapports avec les prêtres qui vivent ou accomplissent leur ministère dans la même paroisse ou communauté. L'expérience pastorale confirme que la communion entre les prêtres contribue dans une très grande mesure à rendre crédible et fécond leur ministère, selon les paroles de Jésus:  "A ceci tous reconnaîtront que vous êtes mes disciples:  si vous avez de l'amour les uns pour les autres" ( *Jn* 13, 35).
+
+5. Très chers frères, après le Synode, nous avons vécu la Mission dans la ville et à présent, notre diocèse est engagé à conférer de façon stable une empreinte missionnaire précise à toute la pastorale.
+
+Dans l'exercice quotidien de notre ministère, nous devons former une véritable conscience missionnaire chez les fidèles qui sont le plus proches de nous, de façon à ce que nos communautés puissent devenir progressivement d'authentiques communautés évangélisatrices et que chaque croyant s'efforce d'être témoin du Christ dans tous les milieux et toutes les situations de vie. C'est ainsi que nous réalisons de la façon la plus précise et authentique le "don" et "mystère" de notre sacerdoce.
+
+Le sacerdoce ministériel du Nouveau Testament est en effet de par sa nature un sacerdoce apostolique, dans la mesure où il parvient à la communauté à travers la "succession apostolique", c'est-à-dire la transmission aux Evêques du ministère et du charisme des Apôtres. A travers le sacerdoce des Evêques, le sacerdoce des prêtres est lui aussi "incorporé dans la structure apostolique de l'Eglise" (*[Pastores dabo vobis](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_25031992_pastores-dabo-vobis.html)*, n. 16), participant ainsi à son orientation missionnaire essentielle.
+
+6. Chers frères dans le sacerdoce, ne nous lassons jamais d'être des témoins et des annonciateurs du Christ, ne nous laissons pas décourager par les difficultés et les obstacles que nous trouvons aussi bien en nous, dans notre fragilité humaine, que dans l'indifférence ou dans les incompréhensions de  ceux  auxquels  nous  sommes  envoyés, y compris parfois les personnes qui sont le plus proches de nous.
+
+Lorsque les difficultés et les tentations pèsent sur notre coeur, rappelons-nous plutôt de la grandeur du don que nous avons reçu, pour être à notre tour capables de "donner avec joie" (cf. 2 *Co* 9, 7). En effet, nous sommes, en particulier dans le confessionnal mais égalemet dans tout notre ministère, des témoins et des instruments de la miséricorde divine, nous sommes et devons rester des hommes qui savent diffuser l'espérance et faire oeuvre de paix et de réconciliation.
+
+A cela, chers frères, Dieu nous a appelés avec un amour de prédilection, et Dieu mérite toute notre confiance:  sa volonté de salut est plus grande et plus forte que tous les péchés du monde.
+
+Merci de cette rencontre. Merci aussi pour le don du volume, qui vient d'être imprimé, dans lequel sont rassemblés les textes des discours que je vous ai adressés au cours des rencontres de début de Carême, à partir du 2 mars 1979. Je souhaite que cette initiative serve également à maintenir vivant et fécond le dialogue qui s'est instauré entre nous au cours de ces années.
+
+Je vous bénis tous de tout coeur et je bénis avec vous les communautés qui vous sont confiées.

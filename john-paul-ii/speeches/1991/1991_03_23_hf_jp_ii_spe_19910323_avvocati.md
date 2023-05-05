@@ -1,0 +1,43 @@
+***DISCOURS DU SAINT-PÈRE JEAN-PAUL II***
+
+***AUX CONGRESSISTES DE L'UNION***
+
+***INTERNATIONALE DES AVOCAT*** ***S***
+
+*Samedi, 23 mars 1991*
+
+*Monsieur le Président,*
+
+*Mesdames, Messieurs*,
+
+1\. À l’occasion de votre rencontre romaine, vous avez souhaité rendre visite au successeur de Pierre. Je suis heureux de vous accueillir ici, d’autant plus que le thème de vos travaux, « *Le droit et la liberté de conscience et de religion*», revêt à mes yeux, vous le savez, une grande importance. C’est pourquoi il m’est très agréable de m’entretenir quelques instants avec vous.
+
+Avocats, vous mettez en lumière les valeurs qui, dans la société, doivent régler les rapports des individus entre eux et avec la puissance publique. Votre rôle vous situe au point névralgique où vous devez faire apparaître l’accord des intérêts de votre client avec le bien commun que définit la loi et que sanctionne son application par l’action des pouvoirs publics ou sous leur arbitrage. En réfléchissant aux conflits que vous devez aider à résoudre, vous vous rendez bien compte que l’on ne peut dissocier la morale du droit; sur ce terrain, vous rencontrez la préoccupation qu’a l’Eglise de favoriser «le passage permanent de l’ordre idéal des principes à l’ordre juridique»\[ [1](#_ftn1 "")\], et, en dernier ressort, de la loi divine à la réalité quotidienne des comportements humains éclairés par la conscience.
+
+2\. Vos travaux portant sur le droit et la liberté de conscience et de religion, vous avez pu mettre en évidence le fait que la *garantie de cette liberté fondamentale* ne relève pas seulement de l’ordre constitutionnel et de la mise en place de systèmes de protection aux niveaux national, régional ou international. Les déclarations d’intention, même les plus solennelles, risqueraient de demeurer en grande partie lettre morte si le droit au quotidien n’assurait effectivement à «tous les hommes, parce qu’ils sont des personnes, c’est-à-dire des êtres doués de raison et de volonté libre, et par suite, pourvus d’une responsabilité personnelle», de pouvoir «chercher la vérité et d’y adhérer» et de «régler toute leur vie selon les exigences de cette liberté»\[ [2](#_ftn2 "")\].
+
+Il faut avoir le courage d’accepter cette notion de la liberté de conscience et de religion; elle n’est pas une faveur qu’octroient les gouvernements; elle ne se réduit pas non plus à la possibilité d’accomplir des rites; elle est le droit de chaque homme d’exprimer au niveau social ce qu’il a de plus profond en lui et de ne pas avoir à souffrir de dommages ou de désagréments pour cela. Si ce droit était universellement reconnu comme un principe régulateur des relations sociales, les confrontations entre diverses conceptions du monde - religieuses, athées ou agnostiques - demeureraient loyales et paisibles. Le respect égal des croyances est l’un des piliers des sociétés démocratiques contemporaines, et sa mise en œuvre témoigne d’un progrès vers un plus grand respect des droits de l’homme dans leur ensemble.
+
+Ce progrès s’accomplit, entre autres moyens, par la résolution des conflits quotidiens que vous rencontrez dans votre profession d’avocats. Du fait que les convictions intimes de l’homme, celles qui donnent un sens à sa vie, peuvent être lésées par beaucoup de pratiques de la vie civile, privée ou publique, *l’exercice de la liberté de conscience et de religion est lié à celui de toutes les autres libertés*; ainsi en est-il de la liberté de parole et d’expression, du droit d’association, du droit des parents à l’éducation de leurs enfants; et il n’est pas jusqu’au droit social où ne soient, de plus en plus, soulevées des questions qui mettent en cause la liberté de conscience et de religion. Les avocats et les membres des professions judiciaires ont ainsi la redoutable responsabilité de trouver les moyens de concilier les manifestations individuelles ou collectives des convictions qui s’enracinent au plus profond de la conscience avec les nécessités de l’ordre public, sans pour autant les réduire à de simples opinions, ce qui n’irait pas sans grand dommage pour la société et sans atteinte au droit des personnes.
+
+3\. Dans nos sociétés, la reconnaissance de la liberté de religion et de conscience se pose en termes nouveaux. Alors qu’autrefois les groupements humains se caractérisaient par leur unité de religion et faisaient preuve de plus ou moins de tolérance à l’égard des minorités religieuses, on connaît aujourd’hui une grande diversité des religions parmi les habitants d’un même territoire, voire dans une même famille. La paix civile demande *d’accorder à chacun la même liberté qu’à tous les autres*. Les populations demandent une réelle égalité de traitement pour tous les croyants, l’absence de discrimination en matière d’éducation et d’accès à l’emploi, l’abolition des «statuts personnels». Cela suppose notamment un régime des cultes clair et équitable dans la société; vous avez d’ailleurs opportunément inscrit cette question dans l’ordre du jour de vos travaux.
+
+Les avocats ont un rôle important à jouer dans la solution des crises qui peuvent accompagner le passage des sociétés traditionnelles au stade actuel. Ils ont la délicate mission de faire accepter par les tribunaux et par l’opinion le point où se situe le *non possumus* des consciences et où son non-respect serait une violation directe de cette liberté.
+
+4\. Votre mission vous conduit à rencontrer sous diverses formes le problème de la *clause de conscience*. Pendant des siècles, on rappelait fermement l’existence de la norme morale selon laquelle il n’est jamais permis d’accomplir un acte en soi immoral, même s’il est commandé, même si le refus d’agir entraîne de graves dommages personnels. Mais on n’avait pas cru pouvoir admettre les effets civils de cette norme; le refus d’obéissance était sanctionné. Les sociétés contemporaines ont pris conscience des ravages qui ont résulté de cette conception pour le respect des droits de l’homme; elles font désormais de la reconnaissance des droits de la conscience un élément de l’ordre public, redonnant droit de cité à un principe moral essentiel. Cela correspond à une exigence fondamentale des sociétés pluralistes d’aujourd’hui.
+
+Vous avez à agir pour qu’un tel droit soit effectivement reconnu aux membres des diverses professions. Il vous revient de trouver les arguments qui susciteront un mouvement d’opinion sans lequel la clause de conscience ne pourra pas devenir un facteur habituellement admis dans l’application du droit social et professionnel.
+
+5\. Au cours de vos travaux, vous avez pu aborder bien d’autres sujets de grand intérêt du point de vue du Saint-Siège. En particulier, vous savez l’importance qu’il attribue aux *droits de la famille, des enfants*; ceci a été souligné encore récemment, lorsque les Nations Unies ont accordé une attention nouvelle aux droits des membres les plus vulnérables de la famille humaine. Je ne puis aujourd’hui développer ces points. Mais je tenais à vous encourager à poursuivre vos réflexions dans des domaines de la plus haute importance pour la consolidation de la paix sociale et internationale, comme pour l’épanouissement des personnes.
+
+Il est heureux que des associations professionnelles qualifiées comme la vôtre prennent ces problèmes en charge; c’est par l’échange de vos expériences que vous avancerez vers une meilleure intelligence de principes moraux que nous considérons comme essentiels pour donner son sens à la vie.
+
+Que le Christ, Sauveur des hommes, vous éclaire et vous soutienne dans vos tâches! Que Dieu vous bénisse ainsi que tous les vôtres!
+
+* * *
+
+\[ [1](#_ftnref1 "")\] Pauli VI [*Allocutio a Beatissimo Patre habita Genavae, in Aedibus Nationum, ad Delegatos e variis Civitatibus, qui ceotui interfuerunt quinquagesimo anno volvente a condito Instituto quem v. « Organisation Internationale du Travail » appellant*, 14, 10 iun. 1969](http://www.vatican.va/holy_father/paul_vi/speeches/1969/june/documents/hf_p-vi_spe_19690610_cinquantesimo-oil_fr.html): *Insegnamenti di Paolo VI*, VII (1969) 359.
+
+\[ [2](#_ftnref2 "")\] *[Dignitatis Humanae](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651207_dignitatis-humanae_fr.html)*, 2.
+
+© Copyright 1991 - Libreria Editrice Vaticana

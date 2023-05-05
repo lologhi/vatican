@@ -1,0 +1,6 @@
+|     |
+| --- |
+|  |
+| ***Visite Pastorale au Fucino***<br>***et à Avezzano (Italie)***<br>***(24 mars 1985)***<br>- **Message aux travailleurs lors de la visite au Centre de** **«Telespazio» d'Avezzano - L'Aquila (24 mars 1985)**<br>  <br>   \[ [Italien](/content/john-paul-ii/it/speeches/1985/march/documents/hf_jp-ii_spe_19850324_telespazio-messaggio-lavoratori.html)\]<br>- **Visite au Centre pour Télétransmissions du Fucino (Avezzano - L'Aquila, 24 mars 1985)**<br>  <br>   \[ [Italien](/content/john-paul-ii/it/speeches/1985/march/documents/hf_jp-ii_spe_19850324_visita-centro-teletramissioni.html)\]<br>**Récitation de l'Angélus à Avezzano (24 mars 1985)**\[ [Italien](/content/john-paul-ii/it/angelus/1985/documents/hf_jp-ii_ang_19850324.html), [Espagnol](/content/john-paul-ii/es/angelus/1985/documents/hf_jp-ii_ang_19850324.html)\]<br>- **Discours à la population d'Avezzano sur Piazza del Municipio (24 mars 1985)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1985/march/documents/hf_jp-ii_spe_19850324_avezzano-piazza-municipio.html)\]<br>- **Sainte Messe sur le parvis de la Cathédrale d'Avezzano (24 mars 1985)**<br>  <br>   \[ [Italien](/content/john-paul-ii/it/homilies/1985/documents/hf_jp-ii_hom_19850324_cattedrale-avezzano.html)\] |
+|  |
+|  |

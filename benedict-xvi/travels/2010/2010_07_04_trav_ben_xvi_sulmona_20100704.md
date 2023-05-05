@@ -1,0 +1,37 @@
+[VISITE PASTORALE À SULMONA (ABRUZZES)](/content/benedict-xvi/fr/travels/2010/index_sulmona.html)
+
+4 JUILLET 2010
+
+PROGRAMME
+
+Retransmissions vidéo en direct du CTV
+
+(Centre de Télévision du Vatican)
+
+Dimanche 4 juillet 2010
+
+Rome
+
+|     |     |     |
+| --- | --- | --- |
+| 8h30 | Départ en hélicoptère du Vatican pour Sulmona |  |
+
+Sulmona
+
+|     |     |     |
+| --- | --- | --- |
+| 9h20 | Arrivée au centre sportif "Serafini" de Sulmona |  |
+|  | Sur la place Garibaldi le Saint-Père est accueilli par les autorités locales et par l'évêque de Sulmona -Valva |  |
+| 10h00 | **Concélébration eucharistique** sur la place Garibaldi à Sulmona | **(Vidéo)**<br>***[Homélie](/content/benedict-xvi/fr/homilies/2010/documents/hf_ben-xvi_hom_20100704_sulmona.html)*** **[*du Saint-Père*](/content/benedict-xvi/fr/homilies/2010/documents/hf_ben-xvi_hom_20100704_sulmona.html)** |
+|  | **Angelus Domini** sur la place Garibaldi à Sulmona | **(Vidéo)**<br>***[Paroles du Saint-Père](/content/benedict-xvi/fr/angelus/2010/documents/hf_ben-xvi_ang_20100704_sulmona.html)*** |
+| 13h15 | **Déjeuner** avec les évêques des Abruzzes dans la maison sacerdotale du Centre pastoral diocésain |  |
+| 16h30 | **Rencontre des membres du comité organisateur de la visite et d'une délégation de la prison de Sulmona** à la maison sacerdotale du Centre pastoral diocésain |  |
+| 17h00 | **Rencontre avec les jeunes** dans la cathédrale de Sulmona | **(Vidéo)*****[Discours du Saint-Père](/content/benedict-xvi/fr/speeches/2010/july/documents/hf_ben-xvi_spe_20100704_giovani-sulmona.html)*** |
+|  | **Vénération des** **reliques de S. Pamphile et S. Célestin V** dans la crypte de la cathédrale |  |
+| 17h45 | Départ en hélicoptère du stade communal "Pallozzi" de Sulmona |  |
+
+Rome
+
+|     |     |     |
+| --- | --- | --- |
+| 18h35 | Arrivée au Vatican |  |

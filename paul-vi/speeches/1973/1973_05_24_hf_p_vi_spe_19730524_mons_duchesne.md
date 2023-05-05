@@ -1,0 +1,37 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX PARTICIPANTS AU COLLOQUE SUR***
+
+***MONSEIGNEUR LOUIS DUCHESNE ET SON TEMPS***
+
+*Jeudi 24 mai 1973*
+
+C'est avec le plus grand plaisir, Messieurs, que Nous accueillons aujourd’hui les personnalités qui participent au «Colloque», organisé par l’Ecole Française de Rome, sur «Monseigneur Duchesne et son temps». Le cinquantième anniversaire de la mort du célèbre historien, qui fut si longtemps le Directeur de l’Ecole, méritait certes d’être célébré, et la qualité de ceux qui participent activement à ce colloque prouve qu’il l’est dignement. Nous sommes heureux de les saluer, et de décerner un éloge particulier au distingué successeur de Monseigneur Duchesne, Monsieur Georges Vallet, à qui revient le principal mérite de cette belle initiative.
+
+Comment commémorer une personnalité comme celle de Monseigneur Louis Duchesne? Cela ne peut se faire, nous semble-t-il, qu’en évoquant cette «maîtresse de vie» dont il fut l’insigne disciple: l’histoire. Et Nous entendons par là avant tout l’art de découvrir le cours et l’entrelacement des événements humains et d’en fixer objectivement le souvenir.
+
+Ces événements sont par eux-mêmes pleins de mystères intéressants à sonder; ils sont souvent la résultante de facteurs nombreux et divers, et se présentent à nous parfois comme des hiéroglyphes apparemment indéchiffrables, vu le nombre et la variété des coefficients d’où résulte ce qu’on est convenu d’appeler le cadre historique. Par bonheur l’une des composantes, l’homme qui opère, est assez facilement connaissable, et il constitue l’objet le plus intéressant pour celui qui veut décrire le déroulement des événements eux-mêmes.
+
+Ainsi, identifier avec exactitude l’homme, artisan de l’histoire; mettre en lumière sa caractéristique, qui est celle d’un être libre, et par conséquent plein de surprises et riche des révélations qui peuvent jaillir de l’esprit humain: voilà, pensons-nous, ce qui qualifie la valeur de l’historien véritable. Il mérite louange et admiration si, dans une description littéralement précise, et en même temps claire et élégante, il sait mettre en évidence l’homme, le protagoniste de la scène historique qu’il décrit, et s’il en laisse au moins entrevoir l’élément créateur, la personnalité en action, dans l’exercice de sa liberté responsable.
+
+Il nous semble que c’est là le secret de l’intérêt et du mérite de l’historien: savoir insérer dans la trame des événements morts, qu’il décrit avec toute leur richesse, leur exactitude et leur étrange beauté, ce qu’y a opéré le génie de l’homme. Cet intérêt et ce mérite, nous devons les reconnaître sans hésiter à l’historiographe accompli et à l’artiste de la narration historique que fut Monseigneur Duchesne.
+
+Mais l’homme n’est pas le seul acteur qui domine le cours des vicissitudes humaines. Elles sont dominées aussi par un autre facteur pour nous impondérable, mais certainement supérieur, et déterminant pour le dessein définitif de l’histoire humaine: c’est l’action de Dieu, de la Providence, dont la secrète présence dans le temps et parmi les hommes fait de l’histoire un mystère. Et quand il s’agit de l’histoire de l’Eglise, le mystère devient objet de contemplation, devient une sorte de sacrement, qu’il est extrêmement délicat et difficile d’identifier et de déchiffrer.
+
+Cette attention au coefficient transcendant de l’histoire de l’Eglise sembla, à un moment socioculturel particulier, n’avoir pas été suffisamment exprimé dans une des œuvres majeures de Monseigneur Duchesne, peut-être pour des raisons de méthode et de style, certainement pas par un dessein de positivisme négatif et par manque de respect pour le caractère sacré de la vie de l’Eglise dans le temps.
+
+Nous pouvons l’attester, ayant gardé le souvenir de l’esprit de foi et de soumission à l’autorité de l’Eglise que Monseigneur Duchesne professa sans se démentir jamais, pas même dans des circonstances pour lui certainement fort pénibles.
+
+Nous n’ignorons certes pas nombre de ses lettres où il manifestait un esprit pour le moins très indépendant dans la critique; mais, même là, il reconnaissait à l’Autorité suprême de l’Eglise la responsabilité et le devoir de préciser le contenu des dogmes et de donner la clef du sens des Ecritures, sans lesquels le catholicisme serait vidé de lui-même.
+
+Et Nous pouvons conserver notre reconnaissance et notre admiration à Mgr Duchesne pour son œuvre scientifique, qui unit à la richesse des analyses et à la variété des sujets traités le mérite d’une vivante et élégante expression littéraire.
+
+Nous ne pouvons manquer, en particulier, de rendre un témoignage élogieux à la célèbre et monumentale édition du *Liber Pontificalis*, si appréciée de nos vénérés prédécesseurs Pie XI et Pie XII, et si chère aussi à notre humble consultation. «Cette vaste entreprise - nous citons ici le savant Dom Henri Leclercq - à laquelle il consacra les années les plus laborieuses de sa vie, fit d’un recueil, plus célèbre que connu, son domaine particulier et quelque chose comme sa propriété personnelle. Acheminé par un ensemble de circonstances et de préoccupations vers l’étude du passé de l’Eglise et des vicissitudes de la Papauté, Duchesne dirigea son attention et concentra les dons magnifiques de sa lucide intelligence sur la vieille chronique romaine, recueil de biographies des papes. Le véritable érudit qu’il était y trouva le meilleur emploi, et le plus continuel, des rares qualités de vigueur critique, de pénétration et de sincérité, qu’il possédait à un degré éminent» ( *Dictionnaire d’Archéologie chrétienne et de liturgie*, vol. 9, 1, p. 355).
+
+Le progrès de la recherche historique pourra, certes, perfectionner encore cette œuvre immense sur certains points particuliers. Mais il devra en reconnaître en même temps l’incomparable valeur, qui la rend indispensable pour les études relatives au Siège apostolique.
+
+Ce lien, qui rattache le nom vénéré et fameux de Monseigneur Duchesne à l’histoire séculaire du pontificat romain, nous rend particulièrement heureux de la commémoration dont il est aujourd’hui l’objet de votre part. Et il nous inspire le souhait que cette noble figure de prêtre français et romain, de sévère et génial chercheur, puisse être pour notre époque et pour les époques futures, spécialement pour ceux qui s’adonnent à l’étude de l’histoire de l’Eglise, un exemple et un maître.
+
+Il l’est déjà pour vous, membres de l’Ecole française de Rome, auxquels vont en terminant nos vœux les plus fervents. Nous n’avons pas à vous redire en quelle estime notre prédécesseur Pie XII tenait votre Ecole. «Vous travaillez, vous disait-il en 1948, pour la vérité et pour la lumière. Or que peut-il y avoir de plus cher à notre cœur, de plus cher à l’Eglise, que la lumière et la vérité? Car l’Eglise n’a rien à gagner à la propagation de vaines légendes, rien à perdre à la manifestation de la véritable histoire» ( *L’Osservatore Romano*, 1-2 mars 1948).
+
+Nous faisons nôtres ces sentiments. Et il ne reste qu’à y ajouter l’expression de notre reconnaissance la plus vive pour l’hommage que vous voulez bien nous faire de la réimpression du précieux ouvrage de Monseigneur Duchesne sur la «Topographie de la Rome chrétienne pendant le premier millénaire». A ces remerciements et à ces vœux, vous nous permettrez d’ajouter l’assurance des prières que nous élevons vers Dieu pour qu’il continue à répandre sur vos personnes, sur vos familles et sur vos travaux, l’abondance de ses bénédictions.

@@ -1,0 +1,31 @@
+CONCERT DONNÉ EN L'HONNEUR DU SAINT-PÈRE
+
+PAR LE "BAYERISCHES KAMMERORCHESTER BAD BRÜCKENAU"
+
+***PAROLES DE BENOÎT XVI***
+
+*Cour du Palais pontifical de Castel Gandolfo*
+
+*Dimanche 2* *août 2009*
+
+*Monsieur le doyen Kemmer,*
+
+*Mesdames et Messieurs les musiciens,*
+
+*chers amis,*
+
+Aujourd'hui, pour la première fois après un aussi beau concert, je n'ai pas pu applaudir avec vigueur. Je suis donc d'autant plus heureux de pouvoir exprimer à M. Albrecht Mayer et aux musiciens du Bayerisches Kammerorchester Bad Brückenau les remerciements et l'admiration de toutes les personnes présentes. Je remercie également le doyen Kilian Kemmer pour ses paroles d'hommage, ainsi que tous ceux qui ont organisé et rendu possible ce concert à Castel Gandolfo. Pour nous, naturellement, le charme de cette soirée a été le son du hautbois que, cher monsieur Mayer, vous nous avez magistralement offert.
+
+Il a été émouvant d'observer comment d'un morceau de bois, de cet instrument, s'écoule tout un univers de musique: l'insondable et l'enjoué, le sérieux et le frivole, le grandiose et l'humble, le dialogue intérieur des mélodies. Je me suis dit qu'il est vraiment magnifique qu'un petit morceau de création puisse recéler une telle promesse, que le maître peut libérer. Et cela signifie que toute la création est emplie de promesses et que l'homme reçoit le don de feuilleter ce livre de promesses au moins en partie. Je pense que cette soirée nous invite non seulement à cultiver les forces de la raison qui nous aident à utiliser les énergies physiques, qui sont une promesse de la création, mais aussi à cultiver les promesses plus grandes, plus profondes, comme cette musique nous l'a indiqué, dans la vigilance du cœur, qui nous permet de faire s'exprimer cette part de création également.
+
+Le programme de la soirée, avec la description du concert, nous a en partie introduits dans les œuvres des compositeurs. Je pense qu'il est pour nous tous émouvant que de tels maîtres se soient comportés comme le bon père de famille de l'Evangile, dont nous parle le Seigneur. Ils ne puisent pas seulement l'ancien et le nouveau de leurs richesses. Sous l'élan de leur mission, ils peuvent non seulement créer des choses toujours nouvelles, mais ils prennent également en considération l'ancien et ainsi de nouvelles potentialités y deviennent visibles, qui étaient présentes dans l'œuvre précédente. Ce concert, avec les parties solos du hautbois, était une continuation de cette capacité d'exprimer de nouvelles potentialités de ce qui a été reçu, dans lesquelles la musique se poursuit, demeure vivante et renaît à chaque interprétation, comme encore à présent.
+
+Il me vient à l'esprit qu'aujourd'hui dans l'Eglise, nous fêtons le jour de la Portioncule, qui nous rappelle la miraculeuse vision de saint François. Dans la petite église de la Portioncule à Assise, il voit le Seigneur, sa Mère et les anges tout autour de lui. Le Seigneur lui concède d'exprimer un souhait et saint François demande de pouvoir ramener avec lui le pardon. La requête est accordée, il rentre chez lui et annonce avec joie à ses frères: mes amis, le Seigneur nous veut tous avec lui au Paradis! Je pense aujourd'hui que nous devrions passer ce moment comme une heure de paradis, observer et écouter le paradis et la beauté sans corruption et le bien de la création. Ce n'est pas une fuite de la misère de ce monde et de la vie de tous les jours, parce que nous ne pouvons continuer à nous opposer au mal et aux ténèbres que si nous-mêmes croyons dans le bien et nous ne pouvons croire dans le bien que si nous en faisons l'expérience et nous le vivons comme une réalité. Pendant l'heure qui vient de s'écouler, nous avons effleuré le bien et le beau avec notre cœur.
+
+Chers amis,
+
+J'ai parlé en allemand, parce que les musiciens et une grande partie des participants sont allemands. Malheureusement, après les événements de la tour de Babel, les langues nous séparent, créent des barrières. Mais ce soir, nous avons vu et entendu qu'il existe une part intacte du monde, même après la tour et l'orgueil de Babel: la musique, cette langue que nous pouvons tous comprendre, parce qu'elle touche notre cœur à tous. Cela est pour nous non seulement une garantie que la bonté et la beauté de la création de Dieu ne sont pas détruites, mais que nous sommes appelés et capables d'œuvrer pour le bien et pour le beau, et c'est aussi une promesse que le monde à venir viendra, que Dieu l'emporte, que la beauté et la bonté l'emportent.
+
+Pour cette consolation, pour ce réconfort dans notre travail quotidien, nous vous sommes reconnaissants, chers musiciens. Merci à vous tous, bonne soirée et bonne semaine.
+
+© Copyright 2009 - Libreria Editrice Vaticana

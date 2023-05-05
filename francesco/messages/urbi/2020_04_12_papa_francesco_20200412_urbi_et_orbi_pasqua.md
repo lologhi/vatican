@@ -1,0 +1,45 @@
+***MESSAGE URBI ET ORBI***
+
+***DU PAPE FRANÇOIS***
+
+**PAQUES 2020**
+
+*B* *asilique vaticane*
+
+*Dimanche 12 avril 2020*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/4/12/urbi-et-orbi.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonne fête de Pâques !*
+
+Aujourd’hui retentit dans le monde entier l’annonce de l’Eglise : “ Jésus Christ est ressuscité ! ” - “ Il est vraiment ressuscité !”.
+
+Comme une nouvelle flamme, cette Bonne Nouvelle s’est allumée dans la nuit : la nuit d’un monde déjà aux prises avec des défis du moment et maintenant opprimé par la pandémie, qui met à dure épreuve notre grande famille humaine. En cette nuit la voix de l’Eglise a résonné : « Le Christ, mon espérance, est ressuscité ! » (Séquence pascale).
+
+C’est une autre “contagion”, qui se transmet de cœur à cœur – parce que tout cœur humain attend cette Bonne Nouvelle. C’est la contagion de l’espérance : « Le Christ, mon espérance, est ressuscité ! » Il ne s’agit pas d’une formule magique, qui fait s’évanouir les problèmes. Non, la résurrection du Christ n’est pas cela. Elle est au contraire la victoire de l’amour sur la racine du mal, une victoire qui “ n’enjambe pas” la souffrance et la mort, mais les traverse en ouvrant une route dans l’abime, transformant le mal en bien : marque exclusive de la puissance de Dieu.
+
+Le Ressuscité est le Crucifié, pas un autre. Dans son corps glorieux il porte, indélébiles, les plaies : blessures devenues fissures d’espérance. Nous tournons notre regard vers lui pour qu’il guérisse les blessures de l’humanité accablée.
+
+Aujourd’hui ma pensée va surtout à tous ceux qui ont été directement touchés par le coronavirus : aux malades, à ceux qui sont morts et aux familles qui pleurent la disparition de leurs proches, auxquels parfois elles n’ont même pas pu dire un dernier au revoir. Que le Seigneur de la vie accueille avec lui dans son royaume les défunts et qu’il donne réconfort et espérance à ceux qui sont encore dans l’épreuve, spécialement aux personnes âgées et aux personnes seules. Que sa consolation ne manque pas, ni les aides nécessaires à ceux qui se trouvent dans des conditions de vulnérabilité particulière, comme ceux qui travaillent dans les maisons de santé, ou qui vivent dans les casernes et dans les prisons. Pour beaucoup, c’est une Pâques de solitude, vécue dans les deuils et les nombreuses difficultés que la pandémie provoque, des souffrances physiques aux problèmes économiques.
+
+Cette maladie ne nous a pas privé seulement des affections, mais aussi de la possibilité d’avoir recours en personne à la consolation qui jaillit des Sacrements, spécialement de l’Eucharistie et de la Réconciliation. Dans de nombreux pays il n’a pas été possible de s’en approcher, mais le Seigneur ne nous a pas laissés seuls ! Restant unis dans la prière, nous sommes certains qu’il a mis sa main sur nous (cf. *Ps* 138, 5), nous répétant avec force : ne crains pas, « je suis ressuscité et je suis toujours avec toi » (cf. *Missel romain*) !
+
+Que Jésus, notre Pâque, donne force et espérance aux médecins et aux infirmiers, qui partout offrent au prochain un témoignage d’attention et d’amour jusqu’à l’extrême de leurs forces et souvent au sacrifice de leur propre santé. A eux, comme aussi à ceux qui travaillent assidument pour garantir les services essentiels nécessaires à la cohabitation civile, aux forces de l’ordre et aux militaires qui en de nombreux pays ont contribué à alléger les difficultés et les souffrances de la population, va notre pensée affectueuse, avec notre gratitude.
+
+Au cours de ces semaines, la vie de millions de personnes a changé à l’improviste. Pour beaucoup, rester à la maison a été une occasion pour réfléchir, pour arrêter les rythmes frénétiques de la vie, pour être avec ses proches et jouir de leur compagnie. Pour beaucoup cependant c’est aussi un temps de préoccupation pour l’avenir qui se présente incertain, pour le travail que l’on risque de perdre et pour les autres conséquences que la crise actuelle porte avec elle. J’encourage tous ceux qui ont des responsabilités politiques à s’employer activement en faveur du bien commun des citoyens, fournissant les moyens et les instruments nécessaires pour permettre à tous de mener une vie digne et pour favoriser, quand les circonstances le permettront, la reprise des activités quotidiennes habituelles.
+
+Ce temps n’est pas le temps de l’indifférence, parce que tout le monde souffre et tous doivent se retrouver unis pour affronter la pandémie. Jésus ressuscité donne espérance à tous les pauvres, à tous ceux qui vivent dans les périphéries, aux réfugiés et aux sans-abri. Que ces frères et sœurs plus faibles, qui peuplent les villes et les périphéries de toutes les parties du monde, ne soient pas laissés seuls. Ne les laissons pas manquer des biens de première nécessité, plus difficiles à trouver maintenant alors que beaucoup d’activités sont arrêtées, ainsi que les médicaments et, surtout, la possibilité d’une assistance sanitaire convenable. Vu les circonstances, que soient relâchées aussi les sanctions internationales qui empêchent aux pays qui en sont l’objet de fournir un soutien convenable à leurs citoyens, et que tous les Etats se mettent en condition d’affronter les besoins majeurs du moment, en réduisant, si non carrément en remettant, la dette qui pèse sur les budgets des États les plus pauvres.
+
+Ce temps n’est pas le temps des égoïsmes, parce que le défi que nous affrontons nous unit tous et ne fait pas de différence entre les personnes. Parmi les nombreuses régions du monde frappées par le coronavirus, j’adresse une pensée spéciale à l’Europe. Après la deuxième guerre mondiale, ce continent a pu renaître grâce à un esprit concret de solidarité qui lui a permis de dépasser les rivalités du passé. Il est plus que jamais urgent, surtout dans les circonstances actuelles, que ces rivalités ne reprennent pas vigueur, mais que tous se reconnaissent membres d’une unique famille et se soutiennent réciproquement. Aujourd’hui, l’Union Européenne fait face au défi du moment dont dépendra, non seulement son avenir, mais celui du monde entier. Que ne se soit pas perdue l’occasion de donner une nouvelle preuve de solidarité, même en recourant à des solutions innovatrices. L’alternative est seulement l’égoïsme des intérêts particuliers et la tentation d’un retour au passé, avec le risque de mettre à dure épreuve la cohabitation pacifique et le développement des prochaines générations.
+
+Ce temps n’est pas le temps des divisions. Que le Christ notre paix éclaire tous ceux qui ont des responsabilités dans les conflits, pour qu’ils aient le courage d’adhérer à l’appel pour un cessez le feu mondial et immédiat dans toutes les régions du monde. Ce n’est pas le temps de continuer à fabriquer et à trafiquer des armes, dépensant des capitaux énormes qui devraient être utilisés pour soigner les personnes et sauver des vies. Que ce soit au contraire le temps de mettre finalement un terme à la longue guerre qui a ensanglanté la Syrie bien-aimée, au conflit au Yémen et aux tensions en Irak, comme aussi au Liban. Que ce temps soit le temps où Israéliens et Palestiniens reprennent le dialogue, pour trouver une solution stable et durable qui permette à tous deux de vivre en paix. Que cessent les souffrances de la population qui vit dans les régions orientales de l’Ukraine. Que soit mis fin aux attaques terroristes perpétrées contre tant de personnes innocentes en divers pays de l’Afrique.
+
+Ce temps n’est pas le temps de l’oubli. Que la crise que nous affrontons ne nous fasse pas oublier tant d’autres urgences qui portent avec elles les souffrances de nombreuses personnes. Que le Seigneur de la vie se montre proche des populations en Asie et en Afrique qui traversent de graves crises humanitaires, comme dans la région de Cabo Delgado, au nord du Mozambique. Qu’il réchauffe le cœur des nombreuses personnes réfugiées et déplacées, à cause de guerres, de sécheresse et de famine. Qu’il donne protection aux nombreux migrants et réfugiés, beaucoup d’entre eux sont des enfants, qui vivent dans des conditions insupportables, spécialement en Libye et aux frontières entre la Grèce et la Turquie. Et je ne veux pas oublier l’île de Lesbos. Qu’il permette au Venezuela d’arriver à des solutions concrètes et immédiates pour accorder l’aide internationale à la population qui souffre à cause de la grave conjoncture politique, socio-économique et sanitaire.
+
+*Chers frères et sœurs,*
+
+indifférence, égoïsme, division, oubli ne sont pas vraiment les paroles que nous voulons entendre en ce temps. Nous voulons les bannir en tout temps ! Elles semblent prévaloir quand la peur et la mort sont victorieuses en nous, c’est-à-dire lorsque nous ne laissons pas le Seigneur Jésus vaincre dans notre cœur et dans notre vie. Lui, qui a déjà détruit la mort nous ouvrant le chemin du salut éternel, qu’il disperse les ténèbres de notre pauvre humanité et nous introduise dans son jour glorieux qui ne connaît pas de déclin.
+
+Par ces réflexions, je voudrais souhaiter à vous tous une bonne fête de Pâques.

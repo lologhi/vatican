@@ -1,0 +1,33 @@
+PROJECTION DU FILM DOCUMENTAIRE
+
+"ART ET FOI - *VIA PULCHRITUDINIS*"
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+*Salle Paul VI*
+
+*Jeudi 25 octobre 2012*
+
+*Vénérés frères, Illustres autorités, Mesdames et Messieurs !*
+
+Au terme de cette projection, je suis heureux de vous adresser à tous mon salut cordial.
+
+Je salue tout d’abord la délégation polonaise, en particulier les autorités du gouvernement, l’ambassadeur près le Saint-Siège et tous ceux qui ont contribué à la réalisation de ce film.
+
+Je salue le cardinal Bertone, secrétaire d’État, et le cardinal Bertello qui, en tant que président du gouvernorat, a présenté l’initiative — je le remercie et je le félicite, ainsi que la direction des Musées du Vatican. Je salue avec reconnaissance les administrateurs de la société qui ont réalisé et soutenu la production.
+
+Ce n’est pas la première fois que les Musées du Vatican participent à des initiatives qui illustrent le lien entre art et foi, à partir du patrimoine conservé dans les galeries pontificales. Plusieurs expositions ont été réalisées sur ce thème, ainsi que plusieurs productions audiovisuelles. Toutefois, le film que nous avons vu se présente comme une contribution digne d’une référence spéciale, notamment parce qu’il est présenté au début de l’ *[Année de la foi](http://www.vatican.va/special/annus_fidei/index_fr.htm).* Cela constitue en effet une contribution spécifique et qualifiée des Musées du Vatican à l’ *[Année de la foi](http://www.vatican.va/special/annus_fidei/index_fr.htm)*, et cela justifie également le grand engagement apporté à différents niveaux. Comme la partie finale du film le met explicitement en évidence, pour de nombreuses personnes, la visite aux Musées du Vatican représente, au cours de leur voyage à Rome, le plus grand contact, parfois unique, avec le Saint-Siège ; c’est donc une occasion privilégiée pour connaître le message chrétien. On pourrait dire que le patrimoine artistique de
+
+la Cité
+du Vatican constitue une sorte de grande « parabole », à travers laquelle le Pape parle à des hommes et à des femmes de toutes les parties du monde, et donc issus de multiples appartenances culturelles et religieuses, des personnes qui ne liront peut-être jamais l’un de ses discours ou l’une de ses homélies. On en vient à penser à ce que Jésus disait à ses disciples : à vous les mystères du Royaume de Dieu sont expliqués, alors qu’à ceux « qui sont dehors » tout est annoncé « sous l’énigme de paraboles » (cf. *Mc* 4, 10-12). Le langage de l’art est un langage en paraboles, doté d’une ouverture universelle particulière : la « via Pulchritudinis » est une voie capable de guider l’esprit et le cœur vers l’Éternel, de les élever jusqu’aux sommets de Dieu.
+
+J’ai beaucoup apprécié le fait que, dans le film, on fasse plusieurs fois référence à l’engagement des Papes romains pour la conservation et la valorisation du patrimoine artistique ; et également, à l’époque contemporaine, pour un dialogue renouvelé de l’Église avec les artistes. La collection d’art religieux moderne des Musées du Vatican est la démonstration vivante de la fécondité de ce dialogue. Mais pas seulement celle-ci. Tout le grand organisme des Musées du Vatican — il s’agit en effet d’une réalité vivante ! — possède également cette dimension que nous pourrions appeler « évangélisante ». Et ce qui apparaît, c’est-à-dire les œuvres exposées, présuppose tout un travail qui n’apparaît pas, mais qui est indispensable, pour leur meilleure conservation et jouissance.
+
+Je suis en particulier heureux de rendre hommage à la grande sensibilité pour le dialogue entre art et foi de mon bien-aimé prédécesseur le bienheureux [Jean-Paul II](/content/john-paul-ii/fr.html) : le rôle que
+
+la Pologne
+occupe dans cette production atteste ses mérites dans ce domaine.
+
+Art et foi : un binôme qui accompagne l’Église et le Saint-Siège depuis deux mille ans, un binôme qu’aujourd’hui aussi, nous devons valoriser davantage dans l’engagement d’apporter aux hommes et aux femmes de notre temps l’annonce de l’Évangile, du Dieu qui est Beauté et Amour infini.
+
+Je remercie à nouveau tous ceux qui, de diverses manières, ont collaboré à la réalisation de ce film-documentaire, et je souhaite qu’il suscite chez de nombreuses personnes le désir de mieux connaître cette foi qui sait inspirer de telles et nombreuses œuvres d’art. Bonne soirée à tous !

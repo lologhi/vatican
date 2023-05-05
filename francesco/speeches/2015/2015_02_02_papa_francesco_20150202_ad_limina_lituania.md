@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX ÉVÊQUES DE LA CONFÉRENCE ÉPISCOPALE LITUANIENNE,***
+
+***EN VISITE « AD LIMINA APOSTOLORUM »***
+
+*Lundi 2 février 2015*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/2/2/adliminalituania.html)\]**
+
+* * *
+
+*Chers frères dans l’épiscopat,*
+
+Je vous accueille avec joie à l’occasion de votre visite *ad limina apostolorum*; je salue cordialement chacun de vous, ainsi que les Eglises particulières que le Seigneur a confiées à votre direction paternelle.
+
+Vous êtes venus à Rome avec votre jeunesse, mais aussi avec votre héroïsme. En effet, il y a parmi vous quelques jeunes confrères, mais surtout des évêques qui ont traversé la triste période de la persécution. Merci pour votre témoignage rendu à Jésus Christ et pour votre service au saint peuple de Dieu!
+
+La Lituanie a depuis toujours eu des pasteurs proches de leur troupeau et solidaires avec lui. Tout au long de l’histoire du pays, ils ont accompagné leur peuple avec attention non seulement sur le chemin de la foi et pour affronter les difficultés matérielles, mais aussi dans la construction civile et culturelle de la société, qui trouve son substrat historique et identitaire dans la force de l’Evangile et dans l’amour de la très sainte Mère de Dieu. Vous êtes les héritiers de cette histoire, de ce patrimoine de charité pastorale et vous le démontrez par l’énergie de votre action, la communion qui vous anime et la persévérance dans la poursuite des objectifs que l’Esprit vous indique.
+
+Chers frères, je connais bien vos efforts apostoliques. Si, pendant longtemps, l’Eglise de votre pays a été opprimée par des régimes fondés sur des idéologies contraires à la dignité et à la liberté humaine, aujourd’hui, vous devez faire face à d’autres pièges, comme par exemple le sécularisme et le relativisme. C’est pourquoi, à côté de l’annonce inlassable de l’Evangile et des valeurs chrétiennes, il ne faut pas oublier le dialogue constructif avec tous, y compris avec ceux qui n’appartiennent pas à l’Eglise ou qui sont éloignés de l’expérience religieuse. Soyez attentifs à ce que les communautés chrétiennes soient toujours des lieux d’accueil, de confrontation ouverte et constructive, un stimulant pour la société tout entière dans la poursuite du bien commun.
+
+Je connais aussi votre engagement incessant et votre sollicitude à l’égard du clergé que Dieu vous a donné. N’oubliez pas qu’il convient surtout de prier pour recevoir de Dieu des prêtres généreux et capables de sacrifice et de dévouement. Et aussi des laïcs convaincus, qui sachent prendre des responsabilités au sein de la communauté ecclésiale et apporter une précieuse contribution chrétienne dans la société civile; le Seigneur vous les donnera si vous priez pour cela et si vous savez les encourager à être présents, avec la force d’une foi adulte, dans le domaine civil, culturel, politique et social.
+
+Comme vous le savez, en ce moment, toute l’Eglise est engagée sur un chemin de réflexion sur la famille, sur sa beauté, sur sa valeur, et sur les défis qu’elle est appelée à affronter à notre époque. Je vous encourage vous aussi, en tant que pasteurs, à apporter votre contribution à cette grande œuvre de discernement, et surtout à prendre soin de la pastorale familiale, afin que les conjoints sentent la proximité de la communauté chrétienne et soient aidés à «ne pas se conformer à la mentalité de ce monde, mais à se laisser renouveler continuellement dans l’esprit de l’Evangile» (cf. Rm 12, 2). En effet, votre pays, qui fait désormais partie de plein droit de l’Union européenne, est aussi exposé à l’influence d’idéologies qui voudraient introduire des éléments de déstabilisation des familles, fruit d’une mauvaise compréhension du sens de la liberté personnelle. Les traditions séculaires de la Lituanie, à cet égard, vous aideront à répondre, selon la raison et selon la foi, à de tels défis.
+
+Je voudrais également vous recommander de porter une attention spéciale aux vocations au sacerdoce et à la vie consacrée. Que l’Eglise en Lituanie ne se lasse jamais de continuer à prier pour les vocations! Je vous exhorte, en outre, à soigner une formation adaptée, initiale et permanente, des prêtres, des personnes consacrées, des séminaristes, en prêtant une attention particulière à leur vie spirituelle et morale, ainsi qu’à l’éducation à la pauvreté évangélique et à la gestion des biens matériels selon les principes de la doctrine sociale de l’Eglise. Aimez vos prêtres, cherchez à être très disponibles lorsqu’ils vous cherchent, et n’attendez pas toujours que ce soit eux qui vous cherchent, ne les laissez pas seuls dans les difficultés. Prenez aussi un soin particulier des catéchistes, en leur transmettant, à travers votre témoignage, la joie d’évangéliser.
+
+Enfin, je vous exhorte à avoir de la sollicitude pour les pauvres. En Lituanie aussi, malgré le développement économique actuel, il y a beaucoup de personnes démunies, au chômage, malades ou abandonnées. Soyez proches d’elles. Et n’oubliez pas ceux qui, surtout parmi les jeunes, pour différents motifs, quittent leur pays à la recherche d’une nouvelle opportunité à l’étranger. Leur nombre croissant et leurs exigences requièrent une attention et une sollicitude pastorale de la part de la Conférence épiscopale, afin qu’ils puissent conserver la foi et les traditions religieuses lituaniennes.
+
+Chers frères, je vous remercie pour votre visite. Apportez mon salut cordial à vos Eglises particulières et à tous vos compatriotes. Que la Vierge Marie, particulièrement vénérée dans votre nation comme «Porte de l’aurore» à Vilnius, ainsi qu’à Šiluva et dans beaucoup d’autres endroits, intercède pour l’Eglise qui est en Lituanie: qu’elle protège de son manteau les prêtres, les religieux, les religieuses et tous les fidèles, et qu’elle obtienne pour toutes les communautés la plénitude des grâces du Seigneur. Soyez assurés de mon souvenir dans la prière et je compte sur la vôtre, tandis que je vous donne de tout cœur la Bénédiction apostolique.

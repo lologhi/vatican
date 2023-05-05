@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AU NOUVEL AMBASSADEUR DE L'ILE MAURICE***
+
+***PRÈS LE SAINT-SIÈGE***
+
+***LORS DE LA PRÉSENTATION DES LETTRES DE CRÉANCE\****
+
+*Jeudi 6 décembre 2001*
+
+*Votre Excellence,*
+
+Je suis heureux d'accepter les Lettres par lesquelles vous avez été accrédité comme Ambassadeur extraordinaire et plénipotentiaire de la République de l'Ile Maurice près le Saint-Siège. Je vous prie de bien vouloir transmettre au Président Cassam Uteem et au Premier ministre mes salutations cordiales ainsi que l'assurance de mes prières pour votre pays et son peuple. Bien que douze ans se soient écoulés depuis ma visite pastorale à l'Ile Maurice, je garde encore le souvenir précieux de l'accueil chaleureux que j'ai reçu de la part de vos concitoyens et de la beauté naturelle frappante que le Créateur a conférée à votre pays.
+
+Au cours de ma visite, j'ai pu constater en personne la riche diversité ethnique, religieuse et culturelle de votre nation, ainsi que les efforts accomplis en vue de promouvoir une vie civile caractérisée par la tolérance, le respect pour les autres et le développement du bien commun. Tandis qu'avec vos concitoyens, vous vous apprêtez à célébrer le Xème anniversaire de l'établissement de l'Ile Maurice en tant que République, ces valeurs, profondément enracinées dans votre histoire et dans votre culture, indiquent la voie vers un avenir de promesse et d'espérance. Dans l'Ocean indien, votre nation cherche à être un modèle d'harmonie entre divers groupes, et de coopération fructueuse dans l'édification d'un monde juste et accueillant. En continuant de s'accepter les uns les autres dans la diversité de leur culture, de leurs croyances, de leurs origines et de leurs langues, les habitants de l'Ile Maurice deviendront, comme je l'ai dit au cours de ma visite, "l'image d'une société à la convivialité paisible, préfigurant en quelque sorte à son échelle une Communauté internationale qui soit une patrie pour tous les peuples" ( *Discours à Plaisance*, 14 octobre 1989, n. 3; ORLF n. 47 du 21 novembre 1989).
+
+Monsieur l'Ambassadeur, vous commencez votre mission au Saint-Siège à une époque où l'attention du monde est concentrée sur le problème du terrorisme, qui menace d'exacerber les divisions déjà graves au sein de la famille humaine et d'entraver le progrès vers une plus grande solidarité dans la vie internationale. La crise actuelle pose un défi à toutes les nations, grandes et petites:  renouveler leurs efforts en vue d'édifier une culture de la paix à travers le dialogue, la compréhension et la coopération. C'est précisément pour contribuer à cette grande entreprise que le Saint-Siège est présent dans la famille des nations. Le Saint-Siège s'efforce d'affirmer les valeurs religieuses et spirituelles qui sont essentielles pour les efforts de l'humanité en vue de créer un ordre international fondé sur le respect pour la culture spécifique de chaque peuple, en exprimant dans le même temps l'aspiration humaine universelle au bien-être et à la paix.
+
+Comme vous l'avez souligné, Votre Excellence, et comme l'a montré la longue expérience de pluralisme ethnique, religieux et culturel de votre pays, les fidèles des diverses religions ont un rôle important à jouer pour servir la cause de la paix. En effet, "le rapport avec le Dieu unique, Père commun de tous les hommes, ne peut que favoriser la conscience d'être des frères et la façon de vivre en conséquence" ( *[Message pour la Journée mondiale de la Paix](/content/john-paul-ii/fr/messages/peace/documents/hf_jp-ii_mes_20011211_xxxv-world-day-for-peace.html)*, n. 1). Aujourd'hui, plus que jamais, les croyants sont appelés à s'unir pour condamner toute tentative visant à exploiter la race ou la religion afin de fomenter la haine, la violence et la division. Dans le même temps, ils peuvent établir une base solide pour un authentique renouveau  social,  en  aidant à former les consciences selon la fraternité et dans le respect pour la dignité et les droits inviolables de chaque individu. A tous les niveaux, un ferme engagement est nécessaire afin d'éliminer toutes les formes d'hostilité, de préjugé et de discorde à leur véritable racine:  dans les profondeurs du coeur humain.
+
+Un rôle fondamental dans l'édification de cette culture est joué par la famille, par les enseignants et par les institutions éducatives. Depuis le début de sa présence sur l'Ile Maurice, l'Eglise catholique, dans la fidélité à l'Evangile, a proclamé la dignité de la famille et son rôle dans le dessein de Dieu pour la société humaine. Aujourd'hui en particulier, lorsque l'identité et la dignité de la famille sont menacées par des modèles culturels étrangers aux valeurs qui ont traditionnellement formé votre société, il est essentiel que cette "unité fondamentale de la société" reçoive la reconnaissance qui lui est due et le soutien qui lui est nécessaire pour accomplir sa mission de fournir une préparation morale et civile sérieuse des citoyens qui doivent édifier et défendre l'avenir de votre démocratie. L'éducation catholique joue un rôle significatif, non seulement en aidant les parents à élever leurs enfants selon les valeurs humaines et spirituelles qui guident leur vie, mais également en formant les jeunes à être des membres mûrs, responsables, et productifs de la communauté. Cela représente un service vital au bien commun de la nation.
+
+Votre Excellence, tandis que vous commencez votre mission au Saint-Siège, je vous offre mes meilleurs voeux dans la prière pour le succès de vos responsabilités, que vous accomplissez à présent au service de la nation. De même, je vous assure de l'assistance des bureaux du Saint-Siège. Sur vous et votre famille, ainsi que sur tout le peuple bien-aimé de l'Ile Maurice, j'invoque une abondance de Bénédictions de Dieu.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* 2002 n.2 p. 6,7.
+
+© Copyright 2001 - Libreria Editrice Vaticana

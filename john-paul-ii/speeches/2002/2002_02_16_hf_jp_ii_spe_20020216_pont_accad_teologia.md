@@ -1,0 +1,33 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AUX MEMBRES DE L'ACADÉMIE PONTIFICALE DE THÉOLOGIE***
+
+*Samedi 16 février 2002*
+
+*Monsieur le Cardinal,*
+
+*Vénérés confrères dans l'épiscopat et le sacerdoce,*
+
+*Chers frères et soeurs!*
+
+1. Je suis heureux de cette rencontre, à travers laquelle vous avez voulu souligner la célébration du premier Forum international de l'Académie pontificale de Théologie. J'adresse à tous une salutation cordiale, avec une pensée de gratitude  particulière  pour Monsieur le Cardinal Paul Poupard, qui s'est fait l'interprète de vos sentiments et qui a illustré l'intention du Forum, dont le thème est significatif:  "Jésus-Christ, son chemin, sa vérité et sa vie. Pour une relecture de "Dominus Iesus"".
+
+Ce sujet relève précisément de la compétence de votre Académie. Ses Statuts renouvelés, que j'ai approuvés par un *Motu proprio* le 28 janvier 1999, indiquent en effet comme objectif de l'Académie "celui d'accomplir et de promouvoir les études théologiques ainsi que le dialogue entre les disciplines théologiques et philosophiques" (art. II). Tout effort que l'être humain accomplit afin de progresser dans la connaissance de la vérité est, en définitive, orienté vers la découverte d'un nouvel aspect du mystère de Dieu, "vérité suprême et première" (Saint Thomas d'Aquin, *Summa Theologica*, I, q. 16, a. 5) et source de vérité:  "Toute vérité - dit en effet le Docteur angélique - vient de Dieu" (Quaestiones disputatae, *De Veritate*, q. 1, a. 8).
+
+Si l'être humain peut se définir "comme celui qui cherche la vérité" ( *[Fides et ratio](/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_15101998_fides-et-ratio.html)*, n. 28) il sait qu'il a trouvé dans la rencontre avec Jésus et avec sa Révélation divine la vérité de son existence:  "En Jésus-Christ, qui est la Vérité, la foi reconnaît l'ultime appel adressé à l'humanité, pour qu'elle puisse accomplir ce qu'elle éprouve comme désir et comme nostalgie" (ibid., n. 33).
+
+2. Le devoir premier de l'Académie pontificale de Théologie est la méditation du mystère de Jésus-Christ, notre Maître et Seigneur, plénitude de grâce et de vérité (cf. *Jn* 1, 16). C'est de cette source de lumière que jaillit le mandat de l'annonce, du témoignage et de l'engagement au dialogue oecuménique et interreligieux.
+
+Dans l'Encyclique *Fides et ratio*, j'ai affirmé que "les voies d'accès à la vérité restent multiples; toutefois, la vérité chrétienne ayant une valeur salvifique, chacune de ces voies peut être empruntée, du  moment qu'elle  conduit  au but final,  la  révélation  de Jésus-Christ" (n. 38). Gardiens et témoins de la vérité du Christ dans l'Eglise et dans le monde, les Académiciens sont guidés dans leur travail d'étude et de recherche par la Révélation  chrétienne, "vraie  étoile sur laquelle  s'oriente l'homme"  (ibid., n. 15), en ce qui concerne la vérité à connaître, le bien à accomplir, la charité à vivre.
+
+3. Deux aspects peuvent aujourd'hui caractériser l'apostolat et le service de la vérité:  son dynamisme et son ecclésialité. La vérité de la Révélation chrétienne ouvre dans l'histoire des horizons toujours nouveaux de compréhension du mystère de Dieu et de l'homme. Cet élan intrinsèque de nouveauté ne signifie pas relativisme ou historicisme, mais concentration suprême  de  la  vérité,  dont  la compréhension implique d'avancer sur un chemin, mais surtout de suivre le Christ, chemin, vérité et vie. La théologie devient ainsi un itinéraire en communion avec la Vérité-Personne qui est Jésus-Christ, dans un rapport de fidélité, d'amour et de don, sous l'action de l'Esprit de vérité (cf. *Jn* 16, 13), dont le devoir n'est pas seulement celui de rappeler les paroles de Jésus, mais d'aider les chrétiens à les comprendre et à les vivre avec une plus grande clarté intérieure, dans l'histoire changeante de l'humanité.
+
+La qualification de "pontificale" de votre "Académie de Théologie" signifie en second lieu que son service au Christ Vérité est caractérisé par son ecclésialité. La libre recherche du théologien s'exerce en effet au sein de la foi et de la communion de l'Eglise. Dans l'Eglise, sel de la terre et lumière du monde (cf. *Mt* 5, 13-14), la réflexion théologique accomplit son devoir de répondre à la volonté salvifique universelle de Dieu, qui veut "que tous les hommes soient sauvés et parviennent à la connaissance de la vérité" (1 *Tm* 2, 4). La communion ecclésiale, plus qu'une limite, est en réalité le lieu qui vivifie la réflexion théologique, en soutenant son audace et en récompensant sa prophétie. De cette façon, la science théologique, dans la compréhension toujours plus profonde de la vérité révélée, devient un service à tout le Peuple de Dieu, soutient son espérance et renforce sa communion.
+
+4. L'adhésion au Christ Vérité, manifestée par les théologiens dans l'obéissance au magistère de l'Eglise, est une force puissante qui unifie et qui édifie. Le théologien catholique est conscient que le magistère n'est pas une réalité externe à la vérité et à la foi mais, au contraire, qu'en tant qu'élément constitutif de l'Eglise, il est au service de la Parole de vérité qui préserve des déviations et des déformations, en garantissant au Peuple de Dieu de vivre toujours dans l'histoire guidé et soutenu par le Christ-Vérité. Le rapport entre magistère et travail théologique est donc soutenu par le principe de l'harmonie. Etant tous deux au service de la Révélation divine, tous deux redécouvrent de nouveaux aspects et approfondissements de la vérité révélée. Là où il est question de la communion dans la foi, s'impose le principe de l'unité dans la vérité; là où, au contraire, il est question  de  divergence  d'opinions, prévaut le principe de l'unité dans la charité.
+
+Ces lignes inspiratrices se retrouvent tant dans le développement que vous avez conféré au Forum de ces jours-ci, que dans l'agencement de la nouvelle revue de l'Académie, qui s'intitule PATH, acrostiche de la dénomination latine de l'"Académie pontificale de Théologie". Mais "path" est également un terme qui, dans la langue mondialisée d'aujourd'hui, signifie sentier, chemin, voie. La recherche théologique est un chemin difficile, et en même temps gratifiant, dans le Christ Chemin, Vérité, et Vie.
+
+5. Plus de trois siècles après sa fondation, puisse l'Académie pontificale de Théologie continuer de recevoir de votre réflexion et de votre témoignage un élan renouvelé pour illustrer de façon chrétienne le millénaire qui vient de commencer.
+
+Avec ce souhait, en invoquant l'aide de Dieu sur vos travaux, je donne à tous de tout coeur ma Bénédiction.

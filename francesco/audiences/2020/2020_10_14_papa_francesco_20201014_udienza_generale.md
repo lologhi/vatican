@@ -1,0 +1,49 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Salle Paul VI*
+
+*Mercredi 14 octobre 2020*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/10/14/udienzagenerale.html)\]**
+
+*** * ***
+
+***Catéchèse - 10. La prière des Psaumes*. 1**
+
+*Chers frères et sœurs, bonjour!*
+
+En lisant la Bible, on trouve sans cesse des prières de divers genres. Mais on trouve également un livre composé seulement de prières, un livre qui est devenu la patrie, le terrain d'exercice et la maison d'innombrables orants. Il s'agit du *Livre des Psaumes*. Il y a 150 psaumes pour prier.
+
+Il fait partie des livres sapientiels, car il communique le “savoir prier” à travers l'expérience du dialogue avec Dieu. Dans les psaumes, nous trouvons tous les sentiments humains: les joies, les douleurs, les doutes, les espérances, les amertumes qui colorent notre vie. Le *Catéchisme* affirme que chaque psaume  «est d’une sobriété telle qu’il peut être prié en vérité par les hommes de toute condition et de tout temps» ( *CEC*, n. 2588). En lisant et en relisant les psaumes, nous apprenons le langage de la prière. Dieu le Père, en effet, les a inspirés avec son Esprit dans le cœur du roi David et d'autres orants, pour enseigner à chaque homme et femme comment le louer, comment le remercier et le supplier, comment l'invoquer dans la joie et dans la douleur, comment raconter les merveilles de ses œuvres et de sa Loi. En synthèse, les psaumes sont la parole de Dieu que nous, les humains, nous utilisons pour parler avec Lui.
+
+Dans ce livre, nous ne rencontrons pas de personnes éthérées, des personnes abstraites, des gens qui confondent la prière avec une expérience esthétique ou aliénante. Les psaumes ne sont pas des textes nés à un bureau ; ce sont des invocations, souvent dramatiques, qui jaillissent du vif de l'existence. Pour les prier, il suffit d'être ce que nous sommes. Nous ne devons pas oublier que pour bien prier, nous devons prier tels que nous sommes, sans maquillage. Il ne faut pas maquiller son âme pour prier. «Seigneur, je suis ainsi», et se présenter devant le Seigneur tels que nous sommes, avec les belles choses et aussi avec les choses laides que personne ne connaît, mais que nous, à l'intérieur, nous connaissons. Dans les psaumes, nous entendons les voix d'orants en chair et en os, dont la vie, comme celle de tous, est remplie de problèmes, de difficultés, d'incertitudes. Le psalmiste ne conteste pas de manière radicale cette souffrance: il sait qu'elle appartient à la vie. Dans les psaumes, cependant, la souffrance se transforme en *question*. De la souffrance à la question.
+
+Et parmi les nombreuses questions, il y en a une qui reste suspendue, comme un cri incessant qui traverse le livre entier de part en part. Une question, que nous répétons tant de fois: “ *Jusqu'à quand, Seigneur? Jusqu'à quand?*”. Chaque douleur réclame une libération, chaque larme invoque une consolation, chaque blessure attend une guérison, chaque calomnie une sentence d'absolution. «Jusqu'à quand, Seigneur, devrais-je endurer cela? Ecoute-moi, Seigneur!»: combien de fois avons-nous prié ainsi, avec «Jusqu'à quand?», cela suffit Seigneur!
+
+En posant sans cesse des questions de ce genre, les psaumes nous enseignent à ne pas nous habituer à la douleur, et ils nous rappellent que la vie n'est pas sauvée si elle n'est pas guérie. L’existence de l'homme est un souffle, son histoire est fugace, mais l'orant sait qu'il est précieux aux yeux de Dieu, c'est pourquoi *crier a un sens*. Et cela est important. Quand nous prions, nous le faisons parce que nous savons que nous sommes précieux aux yeux de Dieu. C'est la grâce de l'Esprit Saint qui, de l'intérieur, suscite en nous cette conscience: d’être précieux aux yeux de Dieu. Et pour cette raison, nous sommes poussés à prier.
+
+La prière des psaumes est le témoignage de ce cri: un cri multiple, car dans la vie la douleur a mille forme, et prend le nom de maladie, haine, guerre, persécution, méfiance… Jusqu'au “scandale” suprême, celui de la mort. La mort apparaît dans le Psautier comme l'ennemie la plus déraisonnable de l'homme: quel délit mérite une punition aussi cruelle, qui comporte l'anéantissement et la fin? L’orant des psaumes demande à Dieu d'intervenir là où tous les efforts humains sont vains. Voilà pourquoi la prière, déjà en elle-même, est une chemin de salut et un début de salut.
+
+Tous souffrent dans ce monde: aussi bien celui qui croit en Dieu que celui qui le repousse. Mais dans le Psautier, la douleur devient *relation,* rapport: un cri d'aide qui attend d'intercepter une oreille attentive. Elle ne peut pas rester sans sens, sans but. Même les douleurs que nous subissons ne peuvent pas être seulement des cas spécifiques d'une loi universelle: ce sont toujours “mes” larmes. Pensez à cela: les larmes ne sont pas universelles, ce sont «mes» larmes. Chacun a les siennes. «Mes» larmes et «ma» douleur me poussent à aller de l'avant avec la prière. Ce sont «mes» larmes, que personne n'a jamais versées avant moi. Oui, beaucoup de personnes ont pleuré, beaucoup. Mais «mes» larmes sont les miennes, «ma» douleur est la mienne, «ma» souffrance est la mienne.
+
+Avant d'entrer dans la salle, j'ai rencontré les parents de ce prêtre du diocèse de Côme qui a été tué; il a précisément été tué dans son service pour aider. Les larmes de ces parents sont «leurs» larmes et chacun d'eux sait combien il a souffert en voyant ce fils qui a donné sa vie dans le service aux pauvres. Quand nous voulons consoler quelqu'un, nous ne trouvons pas les mots. Pourquoi? Parce que nous ne pouvons pas arriver à sa douleur, parce que «sa» douleur est la sienne, «ses» larmes sont les siennes. C'est la même chose pour nous: les larmes, «ma» douleur est la mienne, les larmes sont «les miennes» et avec ces larmes, avec cette douleur, je m'adresse au Seigneur.
+
+Pour Dieu, toutes les douleurs des hommes sont sacrées. C'est ainsi que prie l'orant du psaume 56: «Toi, tu tiens le compte de chacun des pas de ma vie errante, et mes larmes même tu les gardes dans ton outre. Leur compte est inscrit dans ton livre» (v. 9). Devant Dieu, nous ne sommes pas des inconnus, ou des numéros. Nous sommes des visages et des cœurs, connus un par un, par leur nom.
+
+Dans les psaumes, le croyant trouve une réponse, Il sait que, même si toutes les portes humaines étaient fermées, la porte de Dieu est ouverte. Même si tout le monde avait prononcé un verdict de condamnation, en Dieu se trouve le salut.
+
+“Le Seigneur écoute”: quelquefois dans le prière, il suffit de savoir. Les problèmes ne se résolvent pas toujours. Celui qui prie n'est pas un naïf: il sait que de nombreuses questions de la vie d'ici-bas restent sans solution, sans issue; la souffrance nous accompagnera et après une bataille gagnée, il y en aura d'autres qui nous attendent. Mais si nous sommes écoutés, tout devient plus  supportable.
+
+La pire chose qui puisse arriver est de souffrir dans l'abandon, sans qu'on se souvienne de nous. La prière nous sauve de cela. Car il peut arriver, et même souvent, de ne pas comprendre les desseins de Dieu. Mais nos cris ne stagnent pas ici-bas: ils montent jusqu'à Lui, qui a un cœur de Père, et qui pleure Lui-même pour chaque fils et fille qui souffre et qui meurt. Je vais vous dire quelque chose: cela me fait du bien, dans les mauvais moments, de penser aux pleurs de Jésus, quand il pleura en regardant Jérusalem, quand il pleura devant la tombe de Lazare. Dieu a pleuré pour moi, Dieu pleure, il pleure pour nos douleurs. Car Dieu a voulu se faire homme – disait un auteur spirituel – pour pouvoir pleurer. Penser que Jésus pleure avec moi dans la douleur est une consolation: il nous aide à aller de l'avant. Si nous restons dans la relation avec Lui, la vie ne nous épargne pas les souffrances, mais elle s'ouvre à un grand horizon de bien et se met en marche vers son accomplissement. Courage, allons de l'avant avec la prière. Jésus est toujours à nos côtés.
+
+* * *
+
+Je salue cordialement les personnes de langue française. Alors que l’humanité souffre encore de la pandémie, je vous invite à lire et à prier les psaumes, assurés que Dieu nous écoute et qu’il n’abandonne jamais ceux qui mettent leur confiance en lui. En ce mois du Rosaire, que la Vierge Marie vous garde et vous protège !
+
+* * *
+
+**Résumé de la catéchèse du Saint-Père :**
+
+Frères et sœurs, dans les Psaumes nous trouvons tous les sentiments humains : les joies, les souffrances, les doutes, les espérances, les amertumes qui colorent notre vie. En lisant les psaumes nous apprenons le langage de la prière. Ils sont la parole de Dieu que nous utilisons pour parler avec lui. Ils sont des invocations, souvent dramatiques, qui surgissent du vif de l’existence. Pour les prier, il suffit d’être ce que nous sommes. En eux la souffrance se transforme en demande. Celui qui prie sait qu’il est précieux aux yeux de Dieu, pour qui crier a un sens. La prière des psaumes est le témoignage de ce cri. Celui qui prie les psaumes demande à Dieu d’intervenir là où tous les efforts humains sont vains. Et alors la souffrance devient relation : c’est l’appel à l’aide qui attend d’être intercepté par une oreille qui entende. Pour Dieu, toutes les douleurs des hommes sont sacrées. Devant lui nous ne sommes pas des inconnus ou des numéros. Nous sommes connus chacun par notre nom. Sa porte est toujours ouverte. Parfois, il suffit de savoir qu’il écoute. Celui qui prie sait que bien des questions de la vie demeurent sans solution. Mais si nous sommes écoutés, tout devient plus supportable. Le pire c’est de souffrir abandonnés. La prière nous sauve de cela. La vie ne nous épargne pas les souffrances, mais si nous demeurons en relation avec Dieu, elle s’ouvre à un large horizon de bien et s’achemine vers son accomplissement.

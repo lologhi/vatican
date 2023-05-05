@@ -1,0 +1,35 @@
+***EXHORTATION APOSTOLIQUE***
+
+***DU PAPE BENOÎT XV***
+
+***AUX PEUPLES BELLIGÉRANTS ET À LEURS CHEFS\****
+
+*Mercredi 28 juillet 1915*
+
+Quand Nous fûmes appelé, sans l’avoir mérité, à succéder sur le Trône Apostolique au très doux Pontife [Pie X](/content/pius-x/fr.html), dont la vie sainte et bienfaisante avait été abrégée par la douleur que lui causait la lutte fratricide qui venait d’éclater en Europe, Nous ressentîmes, Nous aussi, en embrassant d’un regard tremblant les champs de bataille ensanglantés, le déchirement d’un père qui voit sa demeure dévastée et rendue déserte par un ouragan furieux. Notre pensée se portait avec une affliction inexprimable vers ces jeunes gens, nos fils, que la mort fauchait par milliers, et notre cœur dilaté par la charité de Jésus-Christ, s’ouvrait pour recueillir le tourment des mères et des épouses devenues veuves avant le temps, et les gémissements inconsolables des enfants privés prématurément de l’assistance paternelle. Notre âme participant aux craintes angoissantes de familles innombrables et se pénétrant des devoirs impérieux que lui imposait la sublime mission de paix et d’amour qui lui était confiée en des jours si malheureux, Nous conçûmes aussitôt le propos arrêté de consacrer toute notre activité et tout notre pouvoir à réconcilier les peuples belligérants : Nous en fîmes, bien plus, la promesse solennelle au Divin Sauveur, qui a voulu qu’au prix de son sang tous les hommes devinssent frères.
+
+Ce furent des paroles de paix et d’amour, que Nous adressâmes pour la première fois aux nations et à leurs gouvernants. Mais nos conseils, formulés avec l’affection et l’insistance d’un père et d’un ami, ne furent pas écoutés ! Notre douleur s’en accrut ; mais notre dessein n’en fut pas ébranlé. – Nous continuâmes à invoquer, plein de confiance, le Tout-Puissant qui tient dans ses mains les esprits et les cœurs des rois et de leurs sujets, lui demandant de faire cesser l’épouvantable fléau de la guerre. – À notre humble et fervente prière Nous voulûmes associer tous les fidèles ; et pour la rendre plus efficace, Nous fîmes en sorte qu’elle fût accompagnée des œuvres de la pénitence chrétienne. Mais aujourd’hui, en ce triste anniversaire de l’explosion de ce redoutable conflit, plus ardent est le vœu qui s’échappe de notre cœur pour voir cesser la guerre, plus haut s’élève le cri du père pour réclamer ta paix. Puisse ce cri, dominant le terrible fracas des armes, parvenir jusqu’aux peuples actuellement en guerre et à leurs chefs, inclinant les uns et les autres à des conseils plus doux et plus sereins !
+
+Au nom du Dieu très saint, au nom de notre Père céleste et Seigneur, par le Sang précieux de Jésus, qui a racheté l’humanité, Nous vous conjurons, ô Vous que la divine Providence a préposés au gouvernement des nations belligérantes, de mettre finalement un terme à cette horrible boucherie qui, depuis une année, déshonore l’Europe.
+
+C’est le sang des frères qui est répandu sur terre et sur mer ! Les plus belles régions de l’Europe, de ce jardin du monde, sont jonchées de cadavres et de ruines : là où, peu auparavant, régnait l’industrieuse activité des usines et le fécond travail des champs, on entend maintenant tonner la voix formidable du canon, qui dans sa fureur de destruction n’épargne ni villages ni cités, mais sème partout le carnage et la mort. – Vous qui portez devant Dieu et devant les hommes la redoutable responsabilité de la paix et de la guerre, écoutez notre prière, écoutez la voix d’un père, du Vicaire de l’Éternel et Souverain Juge, auquel vous devrez rendre compte des entreprises publiques, aussi bien que de vos actes privés.
+
+Les abondantes richesses dont le Dieu Créateur a fourni les pays qui vous sont soumis, vous permettent de continuer la lutte ! mais à quel prix ! Qu’elles répondent, les milliers de jeunes existences qui s’éteignent chaque jour sur les champs de bataille ; qu’elles répondent, les ruines de tant de bourgs et de cités, et celles de tant de monuments dus à la piété et au génie des ancêtres. Et ces larmes amères, versées dans le secret du foyer domestique ou au pied des autels de supplication, ne répètent-elles pas qu’elle coûte beaucoup, beaucoup trop, la lutte qui dure depuis si longtemps ?
+
+Et que l’on ne dise pas que ce cruel conflit ne peut pas être apaisé sans la violence des armes. Que l’on dépose de part et d’autre le dessein de s’entre-détruire. Que l’on y réfléchisse bien : les nations ne meurent pas ; humiliées et oppressées, elles portent frémissantes le joug qui leur est imposé, préparant la revanche et se transmettant de génération en génération un triste héritage de haine et de vengeance.
+
+Pourquoi ne pas peser, dès maintenant, avec une conscience sereine, les droits et les justes aspirations des peuples ? Pourquoi ne pas commencer, avec une volonté sincère, un échange de vues, direct ou indirect, à l’effet de tenir compte, dans la mesure du possible, de ces droits et de ces aspirations, et d’arriver ainsi à la fin de cette horrible lutte, comme il est advenu en d’autres circonstances analogues ? – Béni soit celui qui, le premier élèvera le rameau d’olivier et tendra la main à l’ennemi, en lui offrant la paix dans des conditions raisonnables ! L’équilibre du monde, la tranquillité prospère et assurée des nations reposent sur la bienveillance mutuelle et sur le respect des droits et de la dignité d’autrui, beaucoup plus que sur la multitude des hommes d’armes et sur l’enceinte formidable des forteresses.
+
+Tel est le cri de paix, qui s’élève plus fort de notre poitrine en ce triste jour ; et Nous invitons les amis de la paix dans le monde à se joindre tous à Nous, pour hâter la fin de la guerre, qui, hélas ! depuis maintenant une année, a changé l’Europe en un vaste champ de bataille. Fasse Jésus miséricordieux, par l’intercession de sa douloureuse Mère, qu’on voie poindre enfin, calme et radieuse, après une si affreuse tempête, l’aurore de la paix, image de son auguste Face ! Qu’ils résonnent bientôt les hymnes de la reconnaissance envers le Très-Haut, Auteur de tout bien, pour la réconciliation des États belligérants ; que les peuples, unis par un amour fraternel, reprennent les rivalités pacifiques de l’étude, des arts et de l’industrie, et que, une fois l’empire du droit rétabli, ils se résolvent à confier dorénavant la solution de leurs divergences particulières, non plus au tranchant du glaive, mais aux arguments de l’équité et de la justice, étudiés dans le calme et la pondération convenables. Ce sera là leur conquête la plus belle et la plus glorieuse !
+
+Dans la confiance, qui Nous est chère, que ces fruits considérables apparaîtront bientôt sur l’arbre de la paix pour réjouir le monde, Nous accordons la Bénédiction apostolique à tous ceux qui forment le troupeau mystique remis à Nos soins ; et, pour ceux qui n’appartiennent pas encore à l’Église romaine, Nous prions le Seigneur de les unir à Nous par les liens d’une parfaite charité.
+
+*Rome, du Vatican, le 28 juillet 1915.*
+
+**BENOÎT XV**
+
+* * *
+
+\*AAS 7 (1915) p.369-371.
+
+*Actes de S.S. Benoît XV*, Tome I, p.84-86.

@@ -1,0 +1,39 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 17 décembre 2017*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/12/17/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+Ces derniers dimanches, la liturgie a souligné ce que signifie se mettre dans une attitude de *veille* et ce qu’implique concrètement de *préparer le chemin* du Seigneur. En ce troisième dimanche de l’Avent, dit «dimanche de la joie», la liturgie nous invite à saisir *l’esprit* avec lequel tout cela arrive, c’est-à-dire, justement, la joie. Saint Paul nous invite à préparer la venue du Seigneur en assumant trois attitudes. Ecoutez-bien: trois attitudes. D’abord, la joie constante; deuxièmement, la prière persévérante; troisièmement, l’action de grâce permanente. Joie constante, prière persévérante, action de grâce permanente.
+
+La première attitude est la *joie constante*: «Restez toujours joyeux» (1 T 5, 16), dit saint Paul. Cela signifie rester toujours dans la joie, même quand les choses ne vont pas selon nos désirs; mais il y a cette joie profonde, qui est la paix: celle-ci aussi est joie, elle est à l’intérieur. Et la paix est une joie «au niveau du sol», mais c’est une joie. Les angoisses, les difficultés et les souffrances traversent la vie de chacun, nous les connaissons tous; et souvent, la réalité qui nous entoure semble être inhospitalière et aride, semblable au désert dans lequel retentissait la voix de Jean-Baptiste, comme le rappelle l’Evangile d’aujourd’hui (cf. Jn 1, 23). Mais précisément les paroles de Jean-Baptiste révèlent que notre joie repose sur une certitude, que ce désert est habité: «Au milieu de vous — dit-il — se tient quelqu’un que vous ne connaissez pas» (v. 26). Il s’agit de Jésus, l’envoyé du Père qui vient, comme le souligne Isaïe, «porter la nouvelle aux pauvres, panser les cœurs meurtris, annoncer aux captifs la libération et aux prisonniers la délivrance, proclamer une année de grâce de la part de Yahvé» (61, 1-2). Ces paroles, que Jésus fera siennes dans le discours de la synagogue de Nazareth (cf. Lc 4, 16-19), expliquent que sa mission dans le monde consiste dans la libération du péché et des esclavages personnels et sociaux qu’il produit. Il est venu sur la terre pour redonner aux hommes la dignité et la liberté des enfants de Dieu, que Lui seul peut communiquer, et à travers cela, pour donner la joie.
+
+La joie qui caractérise l’attente du Messie se fonde sur la *prière persévérante*: c’est la deuxième attitude. Saint Paul dit: «Priez sans cesse» (1 Ts 5, 17). Au moyen de la prière, nous pouvons entrer dans une relation stable avec Dieu, qui est la source de la véritable joie. La joie du chrétien ne s’achète pas, elle ne peut pas s’acheter: elle vient de la foi et de la rencontre avec Jésus Christ, raison de notre bonheur. Plus nous sommes enracinés dans le Christ, plus nous sommes proches de Jésus, plus nous retrouvons la sérénité intérieure, même au milieu des contradictions quotidiennes. Pour cela, le chrétien, ayant rencontré Jésus, ne peut pas être un prophète de malheur, mais un témoin et un messager de joie. Une joie à partager avec les autres; une joie contagieuse qui rend moins difficile le chemin de la vie.
+
+La troisième attitude indiquée par Paul est l’ *action de grâce permanente*, c’est-à-dire l’amour reconnaissant à l’égard de Dieu. Il est en effet très généreux avec nous, et nous sommes invités à toujours reconnaître ses bienfaits, son amour miséricordieux, sa patience et sa bonté, en vivant ainsi dans une action de grâce incessante.
+
+Joie, prière et gratitude sont trois attitudes qui nous préparent à vivre Noël de façon authentique. Joie, prière et gratitude. Disons-le tous ensemble: joie, prière et gratitude \[La foule répète\]. Encore une fois! \[La foule répète\]. Dans cette dernière étape du temps de l’Avent, nous nous confions à l’intercession maternelle de la Vierge Marie. Elle est «cause de notre joie», non seulement parce qu’elle a engendré Jésus, mais parce qu’elle nous renvoie constamment à Lui.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs,
+
+\[Les jeunes de Rome chantent «Joyeux anniversaire»\] Merci beaucoup, merci beaucoup!
+
+Je m’unis de tout cœur à l’appel des évêques du Nigéria pour la libération des six sœurs du Cœur eucharistique du Christ, enlevées il y a environ un mois dans leur couvent d’Iguoriakhi. Je prie avec insistance pour elles et pour toutes les autres personnes qui se trouvent dans cette situation douloureuse: qu’elles puissent, à l’occasion de Noël, rentrer enfin chez elles. Prions ensemble pour elles: Je vous salue, Marie...
+
+Je vous salue tous, familles, groupes paroissiaux et associations, qui êtes venus de Rome, d’Italie et de nombreuses parties du monde.
+
+Et à présent je salue avec affection les enfants venus pour la bénédiction des «Enfants Jésus», organisée par le centre des oratoires de Rome. Ce que je peux lire d’ici est beau: l’oratoire est justement pour chacun de nous. «Il y a toujours une place pour toi», dit la banderolle. Il y a toujours une place pour toi! Quand vous prierez chez vous, devant la crèche avec vos proches, laissez-vous attirer par la tendresse de l’Enfant Jésus; né pauvre et fragile au milieu de nous, pour nous donner son amour. C’est cela le vrai Noël. Si nous enlevons Jésus, que reste-t-il de Noël? Une fête vide. N’enlevez pas Jésus de Noël! Jésus est le centre de Noël, Jésus est le vrai Noël! Compris?
+
+C’est pourquoi je souhaite à tous un bon dimanche et un bon chemin vers la Naissance de Jésus. S’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir.

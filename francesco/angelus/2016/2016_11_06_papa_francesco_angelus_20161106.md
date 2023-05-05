@@ -1,0 +1,37 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 6 novembre  2016*
+
+\[ **[Multimedia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/11/06/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+A quelques jours de distance de la solennité de la Toussaint et de la commémoration des fidèles défunts, la liturgie de ce dimanche nous invite encore à réfléchir sur le mystère de la résurrection des morts. L’Évangile (cf. Lc 20, 27-38) présente Jésus confronté à quelques sadducéens, qui ne croyaient pas dans la résurrection et concevaient la relation avec Dieu uniquement dans la dimension de la vie terrestre. Et donc, pour ridiculiser la résurrection et mettre Jésus en difficulté, il lui soumettent un cas paradoxal et absurde : une femme qui a eu sept maris, tous frères entre eux, et qui sont morts l’un après l’autre. Et voici la question malicieuse adressée à Jésus : cette femme, lors de la résurrection, de qui sera-t-elle l’épouse (v. 33)?
+
+Jésus ne tombe pas dans le piège et réaffirme la vérité de la résurrection, en expliquant que l’existence après la mort sera différente de l’existence sur la terre. Il fait comprendre à ses interlocuteurs qu’il n’est pas possible d’appliquer les catégories de ce monde aux réalités qui vont au-delà et qui sont plus grandes que ce que nous voyons en cette vie. Il dit en effet : « Les fils de ce monde-ci prennent femme ou mari ; mais ceux qui auront été jugés dignes d’avoir part à ce monde-là et à la résurrection d’entre les morts ne prennent ni femme ni mari » (vv. 34-35). Avec ces mots, Jésus entend expliquer que dans ce monde, nous vivons de réalités provisoires, qui finissent ; en revanche dans l’au-delà, après la résurrection, nous n’aurons plus la mort comme horizon et nous vivrons tout, également les liens humains, dans la dimension de Dieu, de façon transfigurée. Le mariage aussi, signe et instrument de l’amour de Dieu en ce monde, resplendira transformé en pleine lumière dans la glorieuse communion des saints au paradis.
+
+Les « enfants du ciel et de la résurrection » ne sont pas quelques privilégiés, mais ce sont tous les hommes et toutes les femmes, car le salut apporté par Jésus est pour chacun de nous. Et la vie des ressuscités sera semblable à celle des anges (cf. v. 36), c’est-à-dire entièrement plongée dans la lumière de Dieu, entièrement dédiée à sa louange, dans une éternité pleine de joie et de paix. Mais attention! La résurrection n’est pas seulement le fait de ressusciter après la mort, mais c’est un nouveau genre de vie que nous expérimentons déjà aujourd’hui ; c’est la victoire sur le néant que déjà nous pouvons goûter à l’avance. La résurrection est le fondement de la foi et de l’espérance chrétienne! S’il n’y avait pas la référence au paradis et à la vie éternelle, le christianisme se réduirait à une éthique, à une philosophie de vie. Au contraire, le message de la foi chrétienne vient du ciel, il est révélé par Dieu et va au-delà de ce monde. Croire à la résurrection est essentiel, afin que chacun de nos actes d’amour chrétien ne soit pas éphémère ni une fin en soi, mais devienne une semence destinée à éclore dans le jardin de Dieu et à produire des fruits de vie éternelle.
+
+Que la Vierge Marie, reine du ciel et de la terre, nous confirme dans l’espérance de la résurrection et nous aide à faire fructifier par de bonnes œuvres la parole de son Fils semée dans nos cœurs.
+
+* * *
+
+*A l’issue de la méditation de l’Angélus, le Pape ajouté les paroles suivantes :*
+
+Chers frères et sœurs,
+
+A l’occasion du jubilé des détenus d’aujourd’hui, je voudrais adresser un appel en faveur de l’amélioration des conditions de vie dans les prisons du monde entier, afin que soit pleinement respectée la dignité humaine des détenus. En outre, je désire réaffirmer l’importance de réfléchir sur la nécessité d’une justice pénale qui ne soit pas exclusivement punitive, mais ouverte à l’espérance et à la perspective de réinsérer le coupable dans la société. Je soumets de façon spéciale à la considération des autorités civiles compétentes de chaque pays la possibilité d’accomplir, en cette année sainte de la miséricorde, un acte de clémence envers les prisonniers qui seront jugés aptes à bénéficier d’une telle mesure.
+
+Il y a deux jours est entré en vigueur l’accord de Paris sur le climat de la planète. Ce pas en avant important montre que l’humanité a la capacité de collaborer à la protection de la création (cf. [*Laudato si’*,](/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html) n. 13), pour placer l’économie au service des personnes et pour construire la paix et la justice. Demain commencera à Marrakech, au Maroc, la nouvelle session de la Conférence sur le climat, ayant pour objectifs, entre autres, la mise en œuvre de cet accord. Je souhaite que tout ce processus soit guidé par la conscience de notre responsabilité pour la sauvegarde de la maison commune.
+
+Hier, à Scutari, en Albanie, trente-huit martyrs ont été proclamés bienheureux : deux évêques, de nombreux prêtres et religieux, un séminariste et plusieurs laïcs, victimes de la très dure persécution du régime athée qui a longtemps dominé dans ce pays au siècle dernier. Ces derniers préférèrent subir la prison, les tortures et enfin la mort, pour rester fidèles au Christ et à l’Église. Que leur exemple nous aide à trouver dans le Seigneur la force qui soutient dans les moments de difficulté et qui inspire des attitudes de bonté, de pardon et de paix.
+
+Je vous salue tous, pèlerins venus de différents pays : les familles les groupes paroissiaux, les associations.
+
+Je souhaite à tous un bon dimanche. S’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

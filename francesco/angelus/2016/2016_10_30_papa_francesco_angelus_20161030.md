@@ -1,0 +1,37 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche, 30 octobre 2016*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/10/30/angelus.html)**\]
+
+* * *
+
+Chers frères et sœurs bonjour!
+
+L’Évangile d’aujourd’hui nous présente un épisode qui s’est produit à Jéricho, quand Jésus est arrivé dans la ville et qu’il a été accueilli par la foule (cf. Lc 19,1-10). A Jéricho vivait Zachée, le chef des « publicains », c’est-à-dire des collecteurs d’impôts. Zachée était un riche collaborateur des occupants romains honnis, un exploiteur de son peuple. Lui aussi, par curiosité, voulait voir Jésus, mais sa condition de pécheur public ne lui permettait pas de s’approcher du Maître. De plus, il était de petite taille, et c’est pourquoi il grimpe sur un arbre, un sycomore, le long de la route sur laquelle Jésus devait passer.
+
+En arrivant près de l’arbre, Jésus lève les yeux et lui dit : « Zachée, descends vite, car il me faut aujourd’hui demeurer chez toi! » (v. 5). On peut imaginer l’étonnement de Zachée! Mais pourquoi Jésus dit-il : « *Je dois* demeurer chez toi »? De quel devoir s’agit-il? Nous savons que son devoir suprême est de mettre en œuvre le dessein du Père pour l’humanité tout entière, ce qui s’accomplit à Jérusalem, par sa condamnation à mort, sa crucifixion, et, le troisième jour, sa résurrection. Voilà le dessein de salut de la miséricorde du Père. Et dans ce dessein, il y a aussi le salut de Zachée, un homme malhonnête et méprisé de tous, et qui a donc besoin de se convertir. En effet, l’Évangile dit que lorsque Jésus l’a appelé, « tous murmuraient et disaient : “Il est allé loger chez un homme pécheur!” » (v. 7). Le peuple voit en lui une canaille, qui s’est enrichie sur le dos des autres. Et si Jésus avait dit : « Descend, toi, exploiteur, traître envers le peuple! Viens parler avec moi pour que nous réglions nos comptes! », le peuple aurait sûrement applaudi. En revanche, ils commencèrent à murmurer : « Jésus va chez lui, chez le pécheur, l’exploiteur ».
+
+Guidé par la miséricorde, Jésus cherchait précisément lui. Et quand il entre dans la maison de Zachée, il dit : « Aujourd’hui le salut est arrivé pour cette maison, parce que lui aussi est un fils d’Abraham. Car le Fils de l’homme est venu chercher et sauver ce qui était perdu » (vv. 9-10). Le regard de Jésus va au-delà des péchés et des préjugés. Et cela est important! Nous devons l’apprendre. Le regard de Jésus va au-delà des péchés et des préjugés ; il voit la personne avec les yeux de Dieu, qui ne s’arrête pas au mal passé, mais entrevoit le bien à venir ; Jésus ne se résigne pas aux fermetures, mais il ouvre toujours, toujours il ouvre de nouveaux espaces de vie ; il ne s’arrête pas aux apparences, mais il regarde le cœur. Et là, il a regardé le cœur blessé de cet homme : blessé par le péché de cupidité, par tant de mauvaises choses qu’avait faites ce Zachée. Il regarde ce cœur blessé et il va là.
+
+Parfois, nous cherchons à corriger ou à convertir un pécheur en lui faisant des reproches, en lui jetant à la figure ses erreurs et son comportement injuste. L’attitude de Jésus avec Zachée nous indique une autre voie : celle de montrer sa valeur à celui qui se trompe, cette valeur que Dieu continue à voir malgré tout, malgré toutes ses erreurs. Cela peut provoquer une surprise positive qui attendrit le cœur et pousse la personne à tirer d’elle-même ce qu’elle a de bon. C’est le fait de faire confiance aux personnes qui les fait grandir et changer. C’est ainsi que Dieu se comporte avec nous tous : il n’est pas bloqué par notre péché, mais il le dépasse par l’amour et nous fait ressentir la nostalgie du bien. Nous avons tous ressenti cette nostalgie du bien après une erreur. Et Dieu notre Père fait ainsi, Jésus fait ainsi. Il n’existe pas une personne qui n’ait quelque chose de bon. Et c’est cela que Dieu regarde pour la tirer hors du mal.
+
+Que la Vierge Marie nous aide à voir ce qui est bon chez les personnes que nous rencontrons chaque jour, afin que tous soient encouragés à faire apparaître l’image de Dieu imprimée dans leur cœur. Et ainsi puissions-nous nous réjouir des surprises de la miséricorde de Dieu! Notre Dieu, qui est le Dieu des surprises!
+
+* * *
+
+*A l’issue de la méditation de l’Angelus, le Pape a ajouté les paroles suivantes :*
+
+Chers frères et sœurs,
+
+Hier à Madrid ont été proclamées bienheureux José Antón Gómez, Antolín Pablos Villanueva, Juan Rafael Mariano Alcocer Martínez et Luis Vidaurrázaga Gonzáles, martyrs, tués en Espagne au siècle dernier, au cours de la persécution contre l’Église. C’étaient des prêtres bénédictins. Louons le Seigneur et confions à leur intercession nos frères et sœurs qui malheureusement aujourd’hui encore, dans diverses parties du monde, sont persécutés à cause de leur foi dans le Christ.
+
+J’exprime ma proximité aux populations d’Italie centrale frappée par le tremblement de terre. Ce matin aussi il y a eu une forte secousse. Je prie pour les blessés et pour les familles qui ont subi de graves dommages, ainsi que pour le personnel engagé dans les secours et dans l’assistance. Que le Seigneur Ressuscité leur donne la force et que la Vierge les protège.
+
+Les deux prochains jours, j’accomplirai un voyage apostolique en Suède, à l’occasion de la commémoration de la Réforme, qui verra tous les catholiques et les luthériens rassemblés ensemble dans le souvenir et dans la prière. Je vous demande à tous de prier, afin que ce voyage soit une nouvelle étape du chemin de fraternité vers la pleine communion.
+
+Je vous souhaite un bon dimanche — il y a un beau soleil... — et une bonne fête de tous les saints. Et, s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

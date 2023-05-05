@@ -1,0 +1,35 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Mercredi 27 septembre 2017*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/9/27/udienzagenerale.html)\]**
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+En ce moment, nous parlons de l’espérance: mais aujourd’hui, je voudrais réfléchir avec vous sur les *ennemis de l’espérance.* Parce que l’espérance a ses ennemis: comme tout bien dans ce monde, elle a ses ennemis.
+
+Et il m’est venu à l’esprit l’antique mythe du vase de Pandore: l’ouverture du vase déchaîne de nombreux malheurs pour l’histoire du monde. Mais peu de personnes se souviennent de la dernière partie de l’histoire, qui fait apparaître un rayon de lumière: après que tous les maux sont sortis du vase, un minuscule don semble se venger de tout ce mal qui se répand. Pandore, la femme qui devait conserver le vase, l’aperçoit en dernier: les Grecs l’appellent *elpìs*, ce qui signifie *espérance*.
+
+Ce mythe nous raconte pourquoi l’espérance est si importante pour l’humanité. Ce n’est pas vrai que «tant qu’il y a de la vie il y a de l’espoir», comme on a l’habitude de le dire. Ce serait plutôt le contraire: c’est l’espérance qui soutient la vie, qui la protège, qui la conserve et la fait croître. Si les hommes n’avaient pas cultivé l’espérance, s’ils ne s’étaient pas accrochés à cette vertu, ils ne seraient jamais sortis des cavernes, et n’auraient pas laissé de trace dans l’histoire du monde. C’est ce qui peut exister de plus divin dans le cœur de l’homme.
+
+Un poète français — Charles Péguy — nous a laissé des pages magnifiques sur l’espérance (cf. *Le porche du mystère de la deuxième vertu*). Il dit de façon poétique que Dieu ne s’étonne pas tant de la foi des êtres humains, ni de leur charité; mais ce qui le remplit véritablement d’émerveillement et d’émotion est l’espérance des gens: «Que ces pauvres enfants — écrit-il — voient comme tout ça se passe et qu’ils croient que demain ça ira mieux». L’image du poète rappelle les visages de tant de gens qui sont passés dans ce monde — paysans, ouvriers pauvres, migrants à la recherche d’un avenir meilleur — qui ont lutté de façon tenace malgré l’amertume d’un aujourd’hui difficile, rempli de tant d’épreuves, mais animé par la confiance que leurs enfants auraient eu une vie plus juste et plus sereine. Ils luttaient pour leurs enfants, ils luttaient dans l’espérance.
+
+*L’espérance est la poussée du cœur de celui qui part* en quittant sa maison, sa terre, parfois sa famille et ses parents — je pense aux migrants —, pour chercher une vie meilleure, plus digne pour eux et pour leurs proches. Et c’est aussi *la poussée dans le cœur de celui qui accueille*: le désir de se rencontrer, de se connaître, de dialoguer... L’espérance est la poussée à « *partager le voyage*», parce que le voyage se fait à deux; ceux qui viennent sur notre terre, et nous qui allons vers leur cœur, pour les comprendre, pour comprendre leur culture, leur langue. C’est un voyage à deux, mais sans espérance, ce voyage ne peut pas se faire. L’espérance est la poussée à partager le voyage de la vie, comme nous le rappelle la campagne de la Caritas que nous inaugurons aujourd’hui. Mes frères, n’ayons pas peur de partager le voyage! N’ayons pas peur! N’ayons pas peur de partager l’espérance!
+
+L’espérance n’est pas une vertu pour des gens qui ont l’estomac plein. Voilà pourquoi, depuis toujours, les pauvres sont les premiers porteurs de l’espérance. Et dans ce sens, nous pouvons dire que les pauvres, et les mendiants également, sont les protagonistes de l’Histoire. Pour entrer dans le monde, Dieu a eu besoin d’eux: de Joseph et de Marie, des pasteurs de Bethléem. Dans la nuit du premier Noël, il y avait un monde qui dormait, installé dans tant de certitudes acquises. Mais les humbles préparaient cachés la révolution de la bonté. Ils étaient pauvres de tout, certains étaient à peine un peu au-dessus du seuil de la survie, mais ils étaient riches du bien le plus précieux qui existe au monde, c’est-à-dire la volonté de changement.
+
+Parfois, avoir tout eu de la vie est un malheur. Pensez à un jeune auquel on n’a pas enseigné la vertu de l’attente et de la patience, qui n’a dû suer pour rien, qui a brûlé les étapes et, à vingt ans, «sait déjà comment fonctionne le monde»; il a été destiné à la pire condamnation: celle de ne plus rien désirer. Voilà la pire condamnation. Fermer la porte aux désirs, aux rêves. On dirait un jeune, mais l’automne est déjà tombé sur son cœur. Ce sont les jeunes de l’automne.
+
+Avoir une âme vide est le pire obstacle à l’espérance. C’est un risque dont personne ne peut se déclarer exempt; parce qu’il peut arriver d’être tentés contre l’espérance même si l’on parcourt le chemin de la vie chrétienne. Les moines de l’antiquité avaient dénoncé l’un des pires ennemis de la ferveur. Ils disaient: ce «démon de midi» qui sape une vie d’activité, précisément alors que le soleil brille dans le ciel. Cette tentation nous surprend quand on s’y attend le moins: les journées deviennent monotones et ennuyeuses, plus aucune valeur ne semble mériter d’effort. Cette attitude s’appelle l’ *acédie* qui corrompt la vie de l’intérieur jusqu’à la laisser comme une enveloppe vide.
+
+Quand cela arrive, le chrétien sait que cette condition doit être combattue, jamais acceptée passivement. Dieu nous a créés pour la joie et pour le bonheur, et non pour nous complaire dans des pensées mélancoliques. Voilà pourquoi il est important de conserver notre cœur, en nous opposant aux tentations de malheur, qui ne viennent certainement pas de Dieu. Et là où nos forces nous apparaîtraient faibles et le combat contre l’angoisse particulièrement difficile, nous pouvons toujours avoir recours au nom de Jésus. Nous pouvons répéter cette prière simple, dont nous trouvons une trace également dans les Evangiles, et qui est devenue le pivot de nombreuses traditions spirituelles chrétiennes: «Seigneur Jésus Christ, Fils du Dieu vivant, aie pitié du pécheur que je suis!». Belle prière. «Seigneur Jésus Christ, Fils du Dieu vivant, aie pitié du pécheur que je suis!». C’est une prière d’espérance, parce que je m’adresse à Celui qui peut ouvrir toutes grandes les portes, et résoudre le problème et me faire regarder l’horizon, l’horizon de l’espérance.
+
+Frères et sœurs, nous ne sommes pas seuls pour combattre contre le désespoir. Si Jésus a vaincu le monde, il est capable de vaincre en nous tout ce qui s’oppose au bien. Si Dieu est avec nous, personne ne nous volera la vertu dont nous avons absolument besoin pour vivre. Personne ne nous volera l’espérance. Allons de l’avant!
+
+* * *
+
+Je suis heureux de saluer les pèlerins venus de France et de Suisse, en particulier les jeunes de Luçon. Que le Seigneur, par l’intercession de saint Vincent de Paul, nous aide à combattre le désespoir en nous et à partager l’espérance autour de nous. Que Dieu vous bénisse!

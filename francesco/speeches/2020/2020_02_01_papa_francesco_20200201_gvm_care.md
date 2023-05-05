@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX MEMBRES DE LA FONDATION GVM CARE & RESEARCH***
+
+*Salle Clémentine*
+
+*Samedi 1er février 2020*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/2/1/fondazione-gvm-care.html)\]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je vous souhaite une cordiale bienvenue, représentants du *Gruppo Villa Maria*: médecins, infirmiers, personnel administratif et dirigeants. Je remercie le président pour ses paroles. J’ai écouté la présentation des finalités et des objectifs qui animent la vie de votre Groupe, qui est actif depuis quarante ans dans le secteur de la santé et au service de la santé des personnes. Je vous félicite pour le dynamisme qui vous a conduit à étendre votre activité, en plus de l’Italie, à d’autres pays, toujours au service d’une vie humaine marquée par la maladie. Je vous encourage à persévérer avec dévouement dans les œuvres entreprises, et je souhaite que vos structures, lieux de souffrance mais également d’espérance et d’expérience humaine et spirituelle, puissent être toujours plus marquées par la solidarité et l’attention à l’égard de la personne malade.
+
+L’évolution technologique et les changements de nature sociale, économique et politique eux-mêmes ont changé le tissu sur lequel repose la vie des hôpitaux et des structures médicales. D’où la nécessité d’une nouvelle culture, en particulier dans la préparation technique et morale des agents de santé à tous les niveaux.
+
+Dans cette perspective, ce que le *Gruppo Villa Maria* a fait jusqu’à présent est important pour répondre aux besoins des patients et de leurs familles, parfois contraints de migrer vers des centres spécialisés éloignés de leur territoire. L’engagement en vue d’élargir le champ d’action à travers l’acquisition ou la création de nouvelles structures et l’expansion des infrastructures, traduit une volonté d’assurer les équipements et le confort nécessaires pour l’hospitalisation des malades et leur guérison.
+
+Il est souhaitable que les lieux de soins soient toujours plus des maisons d’accueil et de réconfort, où le patient trouve amitié, compréhension, gentillesse et charité. Bref, où il trouve l’humanité. Le malade n’est pas un numéro: c’est une personne qui a besoin d’humanité. A cet égard, il est nécessaire d’encourager la collaboration de tous, pour répondre aux besoins des malades avec un esprit de service et une attitude de générosité et de sensibilité. Ce n’est pas facile, car le patient est malade, il perd patience et souvent, il est «hors de lui». Ce n’est pas facile, mais il faut le faire. Pour atteindre ces objectifs, il faut éviter de se laisser absorber par les «systèmes» qui visent uniquement la composante économique et financière, mais mettre en œuvre un style de proximité avec la personne, afin de pouvoir l’assister avec chaleur humaine face aux angoisses qui l’assaillent dans les moments les plus critiques de la maladie. De cette façon, on contribue concrètement à humaniser la médecine et la réalité hospitalière et médicale. J’ai dit un mot, *proximité*: nous ne devons pas l’oublier. La proximité — permettons-nous de le dire — est aussi la méthode que Dieu a utilisée pour nous sauver. Déjà au peuple juif, il disait: «Dis-moi, quel peuple a des dieux aussi proches, aussi près que toi tu m’as?». Le Dieu de la proximité s’est fait proche en Jésus Christ: l’un de nous. La proximité est la clef de l’humanité et du christianisme.
+
+Ceux qui se reconnaissent dans la foi chrétienne sont appelés à accomplir leur service dans l’esprit des paroles de Jésus: «Dans la mesure où vous l’avez fait à l’un de ces plus petits de mes frères, c'est à moi que vous l’avez fait» (Mt 25, 40). C’est là que se trouve le fondement évangélique du service au prochain. Ainsi, les malades et les personnes souffrantes deviennent pour ceux qui ont la foi des signes vivants de la présence du Christ, le Fils de Dieu, qui est venu soigner et guérir, en assumant notre fragilité, notre faiblesse. Prendre soin de notre frère qui souffre signifiera, dans ce sens, faire de la place au Seigneur. Des lieux de soin et de douleur vient également un message pour la vie de tous; une grande leçon qu’aucune autre chaire ne peut donner. En effet, l’homme qui souffre comprend mieux la nécessité et la valeur du don divin de la rédemption et de la foi, et aide également ceux qui sont près de lui à apprécier et à rechercher ce don.
+
+Et c’est précisément aux malades et aux personnes hospitalisés dans vos structures que je voudrais exprimer ma proximité, que je vous demande de leur transmettre. Je m’unis à leur attente de guérison, en partageant spirituellement leur épreuve et en espérant que celle-ci puisse se terminer bientôt, afin que chacun puisse rentrer chez lui, dans sa famille, dès que possible. J’invoque pour eux les dons de patience et de confiance du Seigneur, ainsi qu’une grande résistance, pour être toujours docile à la volonté de Dieu, confiant en sa bonté paternelle et providentielle.
+
+A vous tous, chers amis, je renouvelle mon appréciation pour votre service aux personnes malades, service d’humanité. Merci, merci pour cela! Je confie votre travail à l’intercession maternelle de la Vierge Marie *Salus infirmorum* et je vous bénis tous de tout cœur. S’il vous plaît, n’oubliez pas de prier pour moi. Moi aussi j’ai besoin de cela.

@@ -1,0 +1,35 @@
+XII ASSEMBLÉE GÉNÉRALE ORDINAIRE
+
+DU SYNODE DES ÉVÊQUES
+
+XXIII CONGRÉGATION GÉNÉRALE
+
+***SALUTATION DU PAPE******BENOÎT XVI*** ***À L'ISSUE DU DÉJEUNER***
+
+***AVEC LES PÈRES*** ***SYNODAUX***
+
+*Atrium de la salle Paul VI*
+
+*Sa* *medi 25 octobre 2008*
+
+*Chers frères dans l'Episcopat et dans le sacerdoce,*
+
+*chers frères et sœurs,*
+
+le synode est sur le point de prendre fin mais la marche commune sous la conduite de la Parole de Dieu se poursuit. Dans ce sens, nous sommes aussi toujours en "synode", en chemin, ensemble, vers le Seigneur sous la conduite de la Parole de Dieu.
+
+Le Document de travail ( *[Instrumentum laboris](http://www.vatican.va/roman_curia/synod/documents/rc_synod_doc_20080511_instrlabor-xii-assembly_fr.html)*)avait parlé de la polyphonie des Ecritures Saintes. Et il me semble que nous pouvons dire que, maintenant, dans les contributions à ce synode, nous avons également écouté une belle polyphonie de la foi, une symphonie de la foi, avec de nombreuses contributions y compris de la part des délégués fraternels. Nous avons ainsi réellement ressenti la beauté et la richesse de la Parole de Dieu.
+
+Cette assemblée a été également une école de l'écoute. Nous nous sommes écoutés les uns les autres. Il s'est agi d'une écoute réciproque. Et justement en nous écoutant les uns les autres, nous avons mieux appris à écouter la Parole de Dieu. Nous avons vu combien est vraie la parole de saint Grégoire le Grand:  l'Ecriture croît avec celui qui la lit. C'est seulement à la lumière des différentes réalités de notre vie, dans la confrontation avec la réalité de chaque jour que se découvrent les potentialités, les richesses cachées de la Parole de Dieu. Nous voyons que, vis-à-vis de la réalité, s'ouvre de manière nouvelle également le sens de la Parole qui nous est donnée dans les Saintes Ecritures.
+
+Ainsi, nous nous sommes réellement enrichis. Nous avons vu qu'aucune méditation, aucune réflexion scientifique ne saurait par elle-même tirer de cette Parole de Dieu tous les trésors, toutes les potentialités qui se découvrent seulement dans l'histoire de chaque vie.
+
+Je ne sais pas si ce synode a été plus intéressant ou plus édifiant. Dans tous les cas, il a été émouvant. Nous sommes enrichis par cette écoute mutuelle. En écoutant l'autre, nous écoutons également mieux le Seigneur lui même. Et dans ce dialogue de l'écoute, nous apprenons ensuite la réalité plus profonde, l'obéissance à la Parole de Dieu, la conformation de notre pensée, de notre volonté à la pensée et à la volonté de Dieu. Une obéissance qui n'est pas une attaque à la liberté mais développe toutes les possibilités de notre liberté.
+
+Il me reste maintenant à remercier tous ceux qui ont travaillé pour le synode. Je n'ose maintenant énumérer toutes les personnes qui y ont œuvré parce que j'en oublierais certainement beaucoup. Mais je les remercie tous pour l'important travail qu'ils ont réalisé:  les présidents délégués, le rapporteur avec son secrétaire-adjoint, tous les rapporteurs, les collaborateurs, les techniciens, les experts, les auditeurs et les auditrices, desquels nous avons appris des choses émouvantes. Un remerciement cordial à tous. Je suis un peu préoccupé car il me semble que nous avons violé le droit de certains au repos nocturne et également au repos dominical parce que ce sont réellement des droits fondamentaux. Nous devons réfléchir à la manière d'améliorer cette situation pour les prochains synodes. Je voudrais remercier également l'entreprise qui nous a préparé ce merveilleux déjeuner et tous ceux qui nous ont servi. Merci pour ce don.
+
+Maintenant, nous devons commencer à élaborer le document post-synodal avec l'aide de tous ces textes. Il représentera également une école d'écoute. En ce sens, nous restons ensemble, nous écoutons toutes les voix des autres. Et nous voyons que seulement si l'autre me lit l'Ecriture, je peux entrer dans la richesse de l'Ecriture. Nous avons toujours besoin de ce dialogue, d'écouter l'Ecriture lue par l'autre dans sa perspective, dans sa vision afin d'apprendre ensemble la richesse de ce don.
+
+Je souhaite à tous un bon voyage et je vous remercie tous de votre travail.
+
+© Copyright 2008 - Libreria Editrice Vaticana

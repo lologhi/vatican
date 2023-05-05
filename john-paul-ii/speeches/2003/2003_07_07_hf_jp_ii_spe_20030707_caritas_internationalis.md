@@ -1,0 +1,27 @@
+***MESSAGE DE JEAN-PAUL II***
+
+***AU PRÉSIDENT DE CARITAS INTERNATIONALIS***
+
+*À Monseigneur Fouad El-Hage*
+
+*Président de Caritas internationalis*
+
+1\. Au moment où se réunit, à Rome, la dix-septième Assemblée générale de *Caritas internationalis*, je salue cordialement ses participants, qui représentent toutes les organisations membres de *Caritas* réparties dans le monde. Je tiens une fois encore à manifester, à cette occasion, ma reconnaissance à votre organisation pour sa mise en œuvre, active et compétente, du précepte de la charité et pour son travail généreux dans le monde entier, notamment au service des plus démunis.
+
+2\. Le thème que vous avez choisi d’approfondir au cours de cette assemblée, *Mondialiser la solidarité*, est une réponse directe à l’appel que j’avais lancé dans la lettre apostolique *[Novo millennio ineunte](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20010106_novo-millennio-ineunte.html)*, invitant à «l’engagement d’un amour actif et concret envers tout être humain» (n. 49) et évoquant «l’heure d’une nouvelle ‘imagination de la charité’ qui se déploierait non seulement à travers les secours prodigués avec efficacité, mais aussi dans la capacité de se faire proche, d’être solidaire de ceux qui souffrent, de manière que le geste d’aide soit ressenti non comme une aumône humiliante, mais comme un partage fraternel» (n. 50). Je souhaite que vous trouviez, grâce à vos échanges et à vos travaux, des chemins concrets pour réaliser cet objectif, cher à mon cœur.
+
+3\. Le projet est ambitieux, parce qu’il veut prendre en compte les défis urgents posés par notre monde, marqué par une multitude d’échanges qui créent de plus en plus de liens d’interdépendance entre les systèmes, les nations et les personnes, mais aussi menacé d’éclatement, de cloisonnements et d’oppositions violentes, comme l’a montré la recrudescence du terrorisme. Devant cette situation, il n’y a certes pas de temps à perdre mais il apparaît clairement qu’il n’est plus possible de concevoir des politiques ou des programmes qui resteraient limités à un aspect partiel des problèmes, en voulant ignorer ce que vit autrui. La mondialisation est devenue comme l’horizon obligé de toute politique, et cela est vrai en particulier pour ce qui concerne le monde de l’économie, comme aussi les domaines de l’assistance et de l’entraide internationales.
+
+4\. Pour que la solidarité devienne mondiale, il faut qu’elle prenne effectivement en compte tous les peuples de l’ensemble des régions du monde. Cela exige encore beaucoup d’efforts, et surtout des garanties internationales fermes vis-à-vis des organisations humanitaires, souvent mises à l’écart, malgré elles, des terrains de conflit, parce que la sécurité ne leur est plus garantie et que le droit de prêter assistance aux personnes ne leur est pas assuré.
+
+Mondialiser la solidarité demande aussi de travailler en relation étroite et constante avec les organisations internationales, garantes du droit, pour équilibrer d’une manière nouvelle les relations entre pays riches et pays pauvres, afin que cessent des relations d’assistance à sens unique, qui contribuent trop souvent à creuser davantage le déséquilibre par un mécanisme d’endettement permanent. Il conviendrait plutôt de mettre en œuvre un véritable partenariat, fondé sur des relations égales et réciproques, en reconnaissant le droit de chacun à maîtriser effectivement les choix qui concernent son avenir.
+
+5\. Il importe d’ajouter que vouloir la mondialisation de la solidarité ne requiert pas seulement de s’adapter aux exigences nouvelles de la situation internationale ou aux modifications de l’exercice des lois du marché, mais que cela constitue d’abord une réponse aux appels pressants de l’Évangile du Christ. Pour nous chrétiens, mais aussi pour tout homme, cela demande une véritable démarche spirituelle, la conversion des mentalités et des personnes. Pour que l’aide offerte à l’autre ne soit plus l’aumône du riche envers le pauvre, humiliante pour ce dernier et peut-être source d’orgueil pour le premier, pour qu’elle devienne un partage fraternel, c’est-à-dire la reconnaissance d’une véritable égalité entre tous, il nous faut «repartir du Christ» (cf. *[Novo millennio ineunte](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20010106_novo-millennio-ineunte.html)*, n. 29), enraciner notre vie dans l’amour du Christ, lui qui a fait de nous ses frères. Comme l’Apôtre Pierre, nous comprenons désormais que «Dieu ne fait pas de différence entre les hommes» ( *Ac* 10, 34) et que, dès lors, le ministère de la charité doit être universel.
+
+L’accueil de tous ceux qui sont en difficulté est depuis longtemps la règle de votre action dans tous les lieux et dans tous les pays où s’exerce, directement ou indirectement, l’activité de *Caritas*. Il importe de travailler maintenant à sensibiliser tous les hommes à cette tâche, afin que chaque personne, parce qu’elle a la même dignité et les mêmes droits que ses semblables, puisse espérer aussi les mêmes secours.
+
+6\. En vous invitant à vous tourner vers le Christ, Bon Samaritain de notre humanité blessée (cf. *Lc* 10, 30-36), lui sans qui nous ne pouvons rien faire (cf. *Jn* 15, 5), je vous confie à l’intercession de la Vierge Marie, attentive, déjà à Cana, à discerner les attentes des hommes, pour qu’elle accompagne vos travaux de sa prière. De grand cœur, je vous accorde une particulière Bénédiction apostolique.
+
+*Du Vatican, le 4 juillet 2003.*
+
+**IOANNES PAULUS II**

@@ -1,0 +1,43 @@
+**JUBILÉ DU MONDE DU SPECTACLE**
+
+***HOMÉLIE DU PAPE JEAN PAUL II***
+
+*Dimanche 17 décembre 2000*
+
+1. "Réjouissez-vous \[...\] Le Seigneur est proche" ( *Ph* 4, 4-5).
+
+Le troisième dimanche de l'Avent d'aujourd'hui est caractérisé par la joie:  la joie de qui attend Celui qui "est proche", le Dieu-avec-nous, préannoncé par les prophètes. C'est la "grande joie de Noël" que nous goûtons déjà aujourd'hui, une joie qui "sera celle de tout le peuple", car le Sauveur est venu et il viendra à nouveau nous rendre visite d'en-haut, comme un soleil qui se lève (cf. *Lc* 1, 78).
+
+C'est la joie des chrétiens, pèlerins dans le monde, qui attendent avec espérance le retour glorieux de Celui qui, pour venir à notre aide, s'est dépouillé de sa gloire divine. C'est la joie de cette Année Sainte, qui commémore les deux millénaires écoulés depuis que le Fils de Dieu, Lumière né de la Lumière, a illuminé par la splendeur de sa présence l'histoire de l'humanité.
+
+C'est pourquoi, dans cette perspective, les paroles du prophète Sophonie que nous avons écoutées lors de la première lecture, deviennent particulièrement éloquentes:  "Pousse des cris de joie, fille de Sion! Une clameur d'allégresse,  Israël!  Réjouis-toi,   triomphe de tout ton coeur, fille de Jérusalem! Yahvé a levé la sentence qui pesait sur toi; il a détourné ton ennemi" ( *So* 3, 14-15):  voilà l'"année de grâce du Seigneur", qui nous rachète du péché et de ses blessures!
+
+2. Cette annonce prophétique réconfortante retentit avec une forte intensité dans notre assemblée:  "Yahvé ton Dieu est au milieu de toi, héros sauveur! Il exultera pour toi de joie, il te renouvellera par son amour" ( *So* 3, 17).
+
+C'est Lui qui est venu et c'est Lui que nous attendons. L'année jubilaire nous invite à conserver notre regard tourné vers lui, en particulier en cet Avent de l'An 2000. Le "héros sauveur" vous est aujourd'hui également indiqué, très chers frères et soeurs, qui oeuvrez sous diverses formes dans le monde du spectacle. En son nom, je vous accueille et je vous salue cordialement. Je remercie avec affection pour les paroles courtoises qui m'ont été adressées par Mgr John Patrick Foley, Président du Conseil pontifical pour les Communications sociales, et par vos deux représentants. J'étends mon salut à vos collègues et amis qui n'ont pas pu être présents.
+
+3. Dimanche dernier, l'Evangile de Luc nous a présenté Jean-Baptiste, qui, sur les rives du Jourdain, proclamait la venue imminente du Messie. Aujourd'hui, la liturgie nous fait écouter la suite de ce texte évangélique:  le Baptiste indique aux foules comment préparer concrètement la voie du Seigneur. Aux diverses catégories de personnes, qui lui demandent:  "Que nous faut-il donc faire" ( *Lc* 3, 10.12. 14), Il indique ce qu'il est nécessaire d'accomplir pour se préparer à accueillir le Messie.
+
+Cette page évangélique fait penser, dans un certain sens, aux rencontres jubilaires pour les diverses catégories sociales et professionnelles. Elle fait également penser à vous, chers frères et soeurs:  à travers votre pèlerinage jubilaire, c'est comme si vous étiez venus vous aussi demander:  "Que nous faut-il donc faire?". La première réponse que vous offre la Parole de Dieu est une invitation à retrouver la joie. Le Jubilé - terme qui est relié à la "joie" - n'est-il pas une exhortation à être remplis de joie, car le Seigneur est venu habiter parmi nous et nous a donné son amour?
+
+Cette joie qui naît de la grâce divine n'est cependant pas une joie superficielle et éphémère. Il s'agit d'une joie profonde,  enracinée  dans  le  coeur  et capable d'envahir toute l'existence du croyant.
+
+Une joie qui peut coexister avec  les  difficultés,  avec  les  épreuves, et même - pour autant que cela puisse sembler paradoxal - avec la douleur et la mort. C'est la joie de Noël et de Pâques, don du Fils de Dieu incarné, mort et ressuscité; une joie que personne ne peut ôter à ceux qui sont unis à Lui dans la foi et dans les oeuvres (cf. *Jn* 16, 22-23).
+
+Très chers amis, beaucoup d'entre vous travaillent pour divertir le public, dans la création et la réalisation de spectacles, qui entendent offrir l'occasion d'une saine détente et de distraction. Si la joie chrétienne se place, au sens propre, sur un plan plus directement spirituel, elle comprend cependant également le sain divertissement qui est bénéfique au corps et à l'esprit. C'est pourquoi, la société doit être reconnaissante à ceux qui produisent et qui réalisent des émissions et des programmes intelligents et qui permettent de se détendre, qui sont amusants sans être aliénants, drôles sans être vulgaires. Diffuser une joie authentique peut être  une  forme  réelle  de  charité  sociale.
+
+4. De plus, l'Eglise, comme Jean-Baptiste, possède aujourd'hui un message spécifique pour vous, chers agents du monde du spectacle. Un message que l'on pourrait définir en ces termes:  dans votre travail, ayez toujours à l'esprit vos destinataires, qui sont des personnes, leurs droits et leurs attentes légitimes, et ce d'autant plus lorsqu'il s'agit de sujets en formation. Ne vous laissez pas conditionner par le pur intérêt économique ou idéologique. Tel est le principe fondamental de l'éthique des communications sociales, que chacun de vous est appelé à appliquer dans son propre domaine d'activité. A ce propos, le Conseil pontifical pour les Communications sociales a publié en juin dernier un document spécifique:  L'éthique dans les Communications sociales, sur lequel je vous invite à réfléchir.
+
+Ce sont surtout, parmi vous, ceux qui sont le plus connus du public qui doivent être constamment conscients de leurs responsabilités. Chers amis, le public vous regarde avec sympathie et intérêt. Soyez toujours pour lui des modèles positifs et cohérents, capables de communiquer la confiance, l'optimisme et l'espérance.
+
+Afin de pouvoir réaliser cette mission exigeante, le Seigneur vous vient en aide, Lui à qui vous pouvez avoir recours à travers l'écoute de sa parole et la prière. Oui, très chers amis, vous qui travaillez avec les images, les gestes et les sons:  en d'autres termes vous qui travaillez avec l'extériorité. C'est précisément pour cela que vous devez être des hommes et des femmes possédant une forte intériorité, capables de recueillement. Dieu habite en nous, il nous est plus intime que nous-mêmes, comme le remarquait Augustin. Si vous savez dialoguer avec Lui, vous pourrez mieux communiquer avec le prochain. Si vous faites preuve d'une vive sensibilité à l'égard du bien, du vrai et du beau, les produits de votre créativité, même les plus simples, seront de bonne qualité esthétique et morale.
+
+5. L'Eglise est proche de vous et compte sur vous! Elle attend qu'au cinéma, à la télévision, à la radio, au théâtre, au cirque et dans toute autre forme de spectacle, vous transmettiez ce "levain" évangélique, grâce auquel toute réalité humaine développe au maximum ses potentialités positives.
+
+On ne peut pas imaginer une nouvelle évangélisation qui n'interpelle pas votre monde, le monde du spectacle, si important pour la formation des mentalités et des coutumes. Je pense ici aux nombreuses initiatives qui reproposent le message biblique et le très riche patrimoine de la tradition chrétienne dans le langage des formes, des sons, des images, à travers le théâtre, le cinéma, la télévision. Je pense également aux  oeuvres  et  aux  programmes  qui ne  sont  pas  explicitement  religieux, mais toutefois capables de parler au coeur  des  personnes, en suscitant  en elles émerveillement,  interrogations, réflexions.
+
+6. Très chers frères et soeurs! La Providence a voulu que votre Jubilé soit célébré quelques jours avant Noël, la fête sans aucun doute la plus représentée dans le cadre de votre travail, à tous les niveaux, des mass-media aux crèches vivantes. La rencontre d'aujourd'hui nous aide ainsi à entrer en harmonie avec l'authentique esprit de Noël, bien différent de celui du monde, qui en fait une occasion de commerce.
+
+Laissez-vous guider par Marie, la Mè-re du Verbe incarné, sur l'itinéraire de préparation à cette solennité. Elle attend en silence l'accomplissement des promesses divines et nous enseigne que pour apporter au monde la paix et la joie, il faut d'abord accueillir dans le coeur le Prince de la Paix et la source de la joie, Jésus-Christ. Pour que cela se produise, il est nécessaire de se convertir à son amour, d'être disponibles à accomplir sa volonté.
+
+Mon souhait est que vous puissiez vous aussi, très chers amis du monde du spectacle, accomplir cette expérience réconfortante. A travers les langages les plus divers, vous serez alors des porteurs de joie, de cette joie que le Christ donne à toute l'humanité à Noël.

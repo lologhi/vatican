@@ -1,0 +1,71 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AUX ÉVÊQUES DE LA CONFÉRENCE ÉPISCOPALE***
+
+***DU BURKINA-FASO ET DU NIGER*** ***EN VISITE «AD LIMINA APOSTOLORUM»***
+
+*Jeudi, 30 avril 1992*
+
+*Cher Monsieur le Cardinal,*
+
+*Chers Frères dans l’épiscopat,*
+
+1\. Il y a plus de deux ans déjà, j’avais la joie de vous rencontrer [au Burkina-Faso](http://www.vatican.va/holy_father/john_paul_ii/speeches/1990/january/documents/hf_jp-ii_spe_19900129_vescovi-burkina_fr.html) au milieu de votre peuple, dont j’appréciais pour la seconde fois la chaleureuse hospitalité, selon la belle tradition de vos pays.
+
+Aujourd’hui, j’ai le plaisir de vous accueillir à Rome, à l’occasion de votre visite «ad limina». Je remercie vivement Monseigneur Jean-Marie Untaani Compaoré, Évêque de Fada N’Gourma et Président de la Conférence des Évêques du Burkina-Faso et du Niger pour les paroles très aimables qu’il vient de m’adresser en votre nom.
+
+Comme le font périodiquement les Évêques du monde entier, vous êtes venus vous entretenir du progrès de l’Évangile avec le Successeur de Pierre ainsi qu’avec ses collaborateurs dans les divers dicastères de la Curie romaine. Ce faisant, vous manifestez *l’union des Églises locales avec l’Église de Rome* et vous exprimez d’une manière tangible les liens qui nous unissent dans la grande famille des baptisés. En même temps, vous apportez au Pape le témoignage d’attachement des fidèles de vos pays: j’y suis d’autant plus sensible que je garde bien vivants dans la mémoire de mon cœur les temps forts que nous avons vécus ensemble [en 1990, à Ouagadougou et à Bobo-Dioulasso](http://www.vatican.va/holy_father/john_paul_ii/travels/sub_index1990/trav_ovest-africa_fr.htm).
+
+Puisse votre pèlerinage à la tombe des saints Apôtres raviver encore davantage votre foi et votre amour pour le Christ! C’est avec une profonde affection que je désire vous confirmer dans cette foi et dans votre mission de pasteurs du Peuple de Dieu au Burkina-Faso et au Niger, pour l’œuvre qui nous est commune de l’évangélisation du monde.
+
+2\. À l’occasion du soixante-quinzième anniversaire de l’évangélisation du pays, en 1975, la pastorale d’ensemble a connu un souffle nouveau: vous avez cherché à promouvoir des communautés chrétiennes au sein desquelles le laïcat formé prendrait ses responsabilités matérielles, spirituelles et apostoliques en collaboration avec les pasteurs. Deux ans plus tard, en avril 1977, ces orientations devaient faire l’objet d’un document-clé intitulé «Options fondamentales pour un nouveau départ». L’engagement était pris de bâtir une « *Église-famille de Dieu*»: une Église où tous et chacun deviendraient davantage solidaires, responsables et unis, pour son avenir. Sous ses différents aspects, la mise en place de l’Église-famille tend à donner de plus en plus à l’Église burkinabè son visage local.
+
+Vous avez donc encouragé l’édification de communautés fraternelles où l’on vit cet esprit de famille; et vos efforts dans ce domaine ont déjà porté du fruit: je salue l’ *ensemble des fidèles laïcs* qui, chez vous, prennent généreusement leur part de la mission d’évangélisation, dans les paroisses ou dans les petites communautés, ou encore dans la catéchèse, dans les mouvements, dans les groupes de prière, dans les divers services ecclésiaux tels que les énumère l’encyclique « [Redemptoris Missio](http://www.vatican.va/holy_father/john_paul_ii/encyclicals/documents/hf_jp-ii_enc_07121990_redemptoris-missio_fr.html)»\[ [1](#_ftn1 "")\]. Je souhaite qu’avec votre aide ces chrétiens engagés continuent à se former à la lumière de la Parole de Dieu et grâce à une participation toujours plus fructueuse aux sacrements. Les catéchistes, en particulier, sont «des évangélisateurs irremplaçables, qui représentent la force de base des communautés chrétiennes»\[ [2](#_ftn2 "")\], et il est important de leur assurer «une préparation doctrinale et pédagogique approfondie, un constant renouvellement spirituel et apostolique»\[ [3](#_ftn3 "")\].
+
+Il reste à poursuivre le travail considérable qui consiste à éveiller toujours davantage au cœur des baptisés leur vocation à être «le sel de la terre», à faire en sorte que l’impact des chrétiens burkinabè et nigériens dans les affaires temporelles, suivant l’esprit de l’Évangile, soit encore plus réel. Le devoir des laïcs a été et reste d’imprégner toujours plus vigoureusement de l’Esprit du Christ les différents domaines de la vie en société: d’où la nécessité pour eux, comme le faisait remarquer Monseigneur Compaoré, d’avoir une connaissance suffisante de la doctrine sociale de l’Église. Votre lettre pastorale du 18 juin 1991 rappelait, à bon droit, qu’il ne doit pas y avoir chez les chrétiens de «divorce entre la foi dont ils se réclament et leurs comportements quotidiens. On ne peut créer d’opposition artificielle entre les activités professionnelles, politiques, ou sociales et la vie de foi»\[ [4](#_ftn4 "")\]. Enfin, la poursuite de la formation intégrale de tous les fidèles, qui demeure partout une priorité pastorale, est le meilleur rempart contre les sollicitations des sectes ou les tentations de retour à d’anciennes formes africaines de vie religieuse.
+
+3\. Pour assurer cet important travail de formation du laïcat, vous avez besoin de *prêtres qualifiés en nombre suffisant*. Et il vous faut des cadres pour bien préparer ces prêtres à leurs tâches, ainsi que le souligne la récente Exhortation Apostolique post-synodale « [Pastores Dabo Vobis](http://www.vatican.va/holy_father/john_paul_ii/apost_exhortations/documents/hf_jp-ii_exh_25031992_pastores-dabo-vobis_fr.html)» dont il convient de méditer, entre autres, ce qui est déclaré à propos des protagonistes de la formation sacerdotale\[ [5](#_ftn5 "")\].
+
+Je sais que vos collaborateurs immédiats dans le sacerdoce sont généreusement dévoués à la mission de l’Église et réalisent un travail considérable. Puissent-ils s’attacher toujours davantage à la personne du Christ qui les aidera à dépasser les sollicitations de tous genres venant, soit de leurs familles, soit d’un environnement moralement ébranlé! Qu’ils aient le courage de lutter à contre-courant pour rester des témoins authentiques et limpides du Christ, de son message de salut et de sainteté! Votre directoire « *Prêtres du Christ*― Pasteurs et Serviteurs dans l’Église-famille» leur offre d’excellentes orientations pour qu’ils demeurent des prêtres tels que le veut l’Église, éclairée par une tradition séculaire, et aussi tels que le monde africain d’aujourd’hui en a besoin.
+
+4\. Dans leur ministère, les prêtres sont soutenus et épaulés par les *religieux et les religieuses*, actifs ou contemplatifs, qui sont une grande force dans votre «Église-famille» et que les Évêques sont appelés à promouvoir. La vie religieuse étant d’abord une école de sainteté, les personnes consacrées sont en mesure d’être pour les membres de l’Église-famille de vrais maîtres spirituels. Intimement liées à la mission du Christ, elles cherchent à servir, à son exemple. Totalement prises par l’amour du Père, elles se veulent aussi entièrement livrées, dans l’Esprit, à l’œuvre de salut du Fils.
+
+Je souhaite que, sous votre responsabilité, religieux et religieuses autochtones développent leur contribution spécifique à l’édification du Corps du Christ, en harmonieuse collaboration avec ceux et celles qui, venus d’ailleurs, témoignent de la communion avec l’Église universelle par leur présence active toujours très appréciée.
+
+5\. Prêtres, religieux, religieuses, catéchistes, laïcs engagés et aussi les jeunes sont conscients qu’après avoir reçu jadis la Bonne Nouvelle des missionnaires étrangers, ils doivent, eux les évangélisés d’hier, devenir à leur tour des *évangélisateurs pour leurs frères et sœurs, à l’intérieur comme à l’extérieur de leur pays*. Je sais que vos communautés ont le sens missionnaire et je les encourage à le développer. Comme le déclarait l’un d’entre vous, dans votre peuple, on donne non pas parce qu’on est riche, mais par amour et par désir d’aimer autrui. C’est dans cet esprit que l’Église au Burkina-Faso aide l’Église au Niger. Soyez félicités pour cette entraide fraternelle et puissiez-vous continuer à partager les dons de Dieu pour que se construise le Corps du Christ!
+
+6\. Au cours de ma visite pastorale chez vous, m’adressant aux fidèles réunis à Bobo-Dioulasso, je faisais remarquer que l’édification du Corps du Christ passe par la force de vie qui anime les *familles-chrétiennes*. Les époux, par leur alliance monogame irréversible, donnent une image de l’amour qui vient de Dieu. À leur tour, ils font naître la vie; ils ouvrent les voies de l’espérance pour les enfants qui grandissent dans la joie d’être aimés. Ils font de leur foyer un signe visible du bonheur d’être chrétiens, et c’est par la famille que progresse l’évangélisation.
+
+Que la famille continue donc à être l’objet de votre action pastorale! Tout ce que vous semez dans la terre profonde des réalités familiales portera des fruits de prospérité pour votre patrie et pour l’Église.
+
+7\. *La jeunesse burkinabè et nigérienne*, capital d’espérance pour la société civile et pour l’Église, est nombreuse et dynamique. Jeunes de familles chrétiennes ou jeunes catéchumènes en chemin vers la foi se réunissent volontiers pour des activités religieuses, pour des moments de prière ou pour des marches de carême: ils aiment vivre la fraternité. Puissent-ils rester les dignes héritiers des richesses humaines de vos peuples, dans le travail, par exemple, ou dans la volonté de vaincre! Face au fléau de la drogue ou dans le désarroi d’une sexualité mal comprise, il convient de leur montrer comment construire leur vie dans le sens de la vérité, de la liberté, de la solidarité et du service.
+
+8\. Dans vos pays, les catholiques vivent au milieu d’une majorité de croyants de religions traditionnelles ou de l’Islam. Avec ces frères et sœurs ne partageant pas la même foi, une entente toujours plus constructive est à cultiver, pour la gloire de Dieu et le bien commun. Efforcez-vous de protéger et de promouvoir ensemble la justice sociale, les valeurs morales, la paix et la liberté.
+
+Enfin, laissez-moi vous encourager à poursuivre à la fois le *dialogue et la proclamation de l’Évangile*: il ne peut être question de choisir le premier devoir et d’ignorer l’autre. Nous devons toujours annoncer ce Dieu fondement de notre foi, raison de notre espérance et source de notre amour. Afin de poursuivre avec sincérité et dans un esprit d’ouverture le dialogue inter-religieux, qui fait partie de la mission évangélisatrice de l’Église, mettez en œuvre l’enseignement de l’Encyclique « [Redemptoris Missio](http://www.vatican.va/holy_father/john_paul_ii/encyclicals/documents/hf_jp-ii_enc_07121990_redemptoris-missio_fr.html)»\[ [6](#_ftn6 "")\] ainsi que les directives du document «Dialogue et annonce», publié en mai 1991 par le Conseil pontifical pour le Dialogue interreligieux et la Congrégation pour l’Évangélisation des Peuples.
+
+9\. C’est précisément pour rendre cette annonce plus pertinente encore sur votre continent que se prépare l’ *Assemblée spéciale du Synode des Évêques pour l’Afrique*. Je vous invite à faire en sorte que cet événement soit l’occasion d’une grâce de renouveau. Par la réflexion et dans la prière de tous leurs membres, vos communautés sont appelées à approfondir le sens de la «mission d’évangélisation dans la perspective de l’an 2000». Chers Frères, au cours de votre pèlerinage aux tombeaux des premiers hérauts de l’Évangile, demandez lumière et force pour ceux et celles qui aujourd’hui veulent marcher dans leur sillage afin de faire mieux connaître et aimer le Seigneur Jésus en Afrique.
+
+10\. Avant de terminer, je voudrais présenter déjà mes vœux les plus cordiaux à notre cher Cardinal Paul Zoungrana, qui célébrera le cinquantième anniversaire de son ordination sacerdotale le 2 mai prochain et que vous allez fêter le 17 mai. Je rends grâce à Dieu pour tout ce qu’il lui a été donné d’accomplir et, dans ma prière, j’unis les intentions des deux autres prêtres burkinabè ordonnés en même temps que lui et qui ont déjà rejoint la maison du Père.
+
+Également, je vous confie le soin de transmettre *mes salutations cordiales et mes encouragements* aux prêtres de vos diocèses respectifs, aux religieux et aux religieuses, aux enseignants catholiques, aux responsables des mouvements, aux catéchistes, dont la collaboration régulière vous est si précieuse. Bien volontiers, je bénis d’une manière spéciale les jeunes qui se forment à la vie sacerdotale et religieuse; je bénis aussi l’œuvre des vocations dans vos diocèses du Niger et du Burkina-Faso.
+
+Enfin, c’est à tous les fidèles que je vous demande de porter le salut affectueux du Pape.
+
+La première étape de ma [visite pastorale au Burkina-Faso](http://www.vatican.va/holy_father/john_paul_ii/travels/sub_index1990/trav_ovest-africa_fr.htm), il y a deux ans, avait été consacrée à *[Notre-Dame de Yagma](http://www.vatican.va/holy_father/john_paul_ii/homilies/1990/documents/hf_jp-ii_hom_19900129_yagma_fr.html)*. Il me plaît de clore notre rencontre en l’invoquant à nouveau pour vous-mêmes et pour le peuple confié à votre sollicitude pastorale. Avec vous, je lui demande de veiller sur l’Église-famille au Burkina-Faso. Enfin, sous son vocable de *Notre-Dame du Perpétuel Secours*, patronne de la cathédrale de Niamey, je prie Marie pour toute l’Église au Niger.
+
+De grand cœur, je vous donne ainsi qu’à vos collaborateurs et à vos fidèles ma Bénédiction Apostolique.
+
+* * *
+
+\[ [1](#_ftnref1 "")\] Cfr. Ioannis Pauli PP. II [*Redemptoris Missio*](http://www.vatican.va/holy_father/john_paul_ii/encyclicals/documents/hf_jp-ii_enc_07121990_redemptoris-missio_fr.html), 74.
+
+\[ [2](#_ftnref2 "")\] *Ibid*. 73.
+
+\[ [3](#_ftnref3 "")\] *Ibid*.
+
+\[ [4](#_ftnref4 "")\] *Servir l'homme et la société*, 33.
+
+\[ [5](#_ftnref5 "")\] Cfr. Ioannis Pauli PP. II [*Pastores Dabo Vobis*](http://www.vatican.va/holy_father/john_paul_ii/apost_exhortations/documents/hf_jp-ii_exh_25031992_pastores-dabo-vobis_fr.html), 65-69.
+
+\[ [6](#_ftnref6 "")\] Ioannis Pauli PP. II [*Redemptoris Missio*](http://www.vatican.va/holy_father/john_paul_ii/encyclicals/documents/hf_jp-ii_enc_07121990_redemptoris-missio_fr.html), 55-57.

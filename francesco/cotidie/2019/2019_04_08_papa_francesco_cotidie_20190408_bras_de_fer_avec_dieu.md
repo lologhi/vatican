@@ -1,0 +1,21 @@
+**PAPE FRANÇOIS**
+
+MÉDITATION MATINALE EN LA CHAPELLE DE LA
+
+MAISON SAINTE-MARTHE
+
+***Le bras de fer avec Dieu***
+
+*Jeudi 4 avril 2019*
+
+( *L'Osservatore Romano*, *Édition hebdomadaire n°018 du 30 avril 2019*)
+
+Prier sérieusement signifie aller jusqu’au «bras de fer» avec Dieu ou même «balbutier»: l’important est que l’on ne fasse pas comme les perroquets en s’en sortant avec deux petits mots «de rien du tout». Et «je fais tout mon possible» est l’expression choisie par le Pape François pour indiquer la juste attitude dans la prière, ainsi que dans tout autre aspect de la vie, «parce que pour prier, il faut du courage». Le président de la République italienne, Sergio Mattarella, était présent à la célébration, sous forme privée.
+
+«Au cours du carême, nous nous préparons à la Pâque à travers trois œuvres: la prière, le jeûne et la charité ». «Aujourd’hui, dans la première lecture du livre de l’Exode (32, 7-14), l’Eglise nous parle de la prière et en particulier de la prière d’intercession: c’est-à-dire l’intercession de Moïse». Moïse «commence à persuader Dieu, avec douceur, mais aussi avec fermeté: il rappelle à Dieu ses promesses. C’est une prière d’intercession». «Le Seigneur, quand il parle à Moïse de sa colère, lui fait une promesse: “mais de toi je ferai une grande nation”. Mais Moïse dit: “Non, ou avec le peuple, ou rien. Si tu fais périr ce peuple, alors extermine-moi moi aussi”». Et cela est «l’intercession par la persuasion. C’est une façon d’intercéder: négocier avec le Seigneur. C’est ce que fait Abraham, sa prière».
+
+«Dans la Bible, il y a de nombreux cas, mais pensons à une autre façon d’intercéder: pensons à Anne, la mère de Samuel qui, en silence, balbutie à voix basse, remue les lèvres et est là, priant, devant le Seigneur, au point que le prêtre qui était là a pensé qu’elle était ivre. Elle demande au Seigneur un fils: l’angoisse d’une femme; mais là elle intercède, devant Dieu. Puis, il y a une autre femme courageuse aussi, dans l’Evangile, la Cananéenne, qui n’utilise pas la persuasion. Quand Jésus lui dit: “Je ne peux pas, parce que je suis pour ceux du peuple d’Israël. Je ne peux pas donner le pain aux petits chiens”. Elle n’a pas peur: “Mais même les petits chiens mangent les miettes du pain qui tombent par terre”. Et elle obtient ce qu’elle veut».
+
+Le Pape a poursuivi en rappelant que «dans la Bible, il y a de nombreux exemples de prière d’intercession, avec tout autant de modalités. C’est vrai, il faut du courage pour prier ainsi, parce que dans la prière, il faut avoir du courage. Cette parrhésie, ce courage de parler à Dieu face à face. Et parfois, quand on voit que ces gens luttent avec le Seigneur pour avoir quelque chose, on pense qu’ils le font comme s’ils faisaient un bras de fer avec Dieu, pour arriver à ce qu’ils demandent : parce qu’ils sont convaincus, ils ont la foi que le Seigneur peut donner la grâce ». «Il faut beaucoup de courage pour prier ainsi et nous, au contraire, sommes très souvent tièdes. Certains nous disent: “Mais je prie parce que j’ai tel ou tel problème...”. Oui, oui, je dis deux “Notre Père” et deux “Je vous salue Marie” et j’oublie... Non, la prière du perroquet ne va pas. La véritable prière est celle-ci: avec le Seigneur. Et quand je dois intercéder, je dois le faire avec courage».
+
+«Les gens, dans le langage populaire, utilisent une expression qui est très évocatrice pour moi, quand ils veulent arriver à quelque chose: “je fais tout mon possible"”». «Dans la prière d’intercession, cela est la même chose: “je fais tout mon possible”. Le courage d’aller de l’avant. Mais le doute peut surgir: “Mais je fais cela, mais comment puis-je savoir que le Seigneur m’écoute?”. Nous avons une sécurité: Jésus. Il est le grand intercesseur. Il est monté au Ciel, il est devant le Père et intercède pour nous. Il fait constamment une prière d’intercession. «Jésus n’a pas besoin de parler devant le Père: il lui fait voir ses plaies». «Le Père voit les plaies et accorde la grâce. Quand nous prions, pensons que nous le faisons avec Jésus: Jésus est notre sécurité, qui en ce moment intercède pour nous».

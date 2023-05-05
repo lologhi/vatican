@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***AUX PARTICIPANTS AU CONGRÈS INTERNATIONAL***
+
+***POUR LE 40  ANNIVERSAIRE DE LA CONSTITUTION DOGMATIQUE***
+
+***SUR LA RÉVÉLATION DIVINE DEI VERBUM***
+
+*Vendredi 16 septembre 2005*
+
+*Messieurs les Cardinaux,*
+
+*vénérés frères dans l'épiscopat et le sacerdoce,*
+
+*chers frères et soeurs!*
+
+J'adresse mon salut le plus cordial à vous tous, qui participez au Congrès sur le thème:  L'Ecriture Sainte dans la vie de l'Eglise, convoqué à l'initiative de la Fédération biblique catholique et du Conseil pontifical pour la Promotion de l'Unité des Chrétiens, dans le but de commémorer le 40 anniversaire de la promulgation de la Constitution dogmatique sur la Révélation divine *[Dei Verbum](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*. Je vous félicite pour cette initiative, qui se réfère à l'un des documents les plus importants du Concile Vatican II.
+
+Je salue Messieurs les Cardinaux et les Evêques, qui sont les premiers témoins de la Parole de Dieu, les théologiens qui l'étudient, l'expliquent et la traduisent dans le langage d'aujourd'hui, ainsi que les Pasteurs, qui cherchent en elle des solutions adéquates aux questions de notre époque. Je remercie de tout coeur tous ceux qui oeuvrent au service de la traduction et de la diffusion de la Bible, fournissant les moyens d'expliquer, d'enseigner et d'interpréter son message. Dans ce sens, j'adresse un remerciement particulier à la Fédération biblique catholique pour son activité, pour la pastorale  biblique  qu'elle  promeut,  pour l'adhésion fidèle aux indications du Magistère et pour l'esprit ouvert à la collaboration oecuménique dans le domaine biblique. J'exprime ma joie profonde pour la présence au Congrès des "Délégués fraternels" des Eglises et communautés ecclésiales d'Orient et d'Occident et je salue avec un respect cordial les personnes venues représenter les grandes Religions du monde.
+
+La Constitution dogmatique *[Dei Verbum](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, dont je fus témoin de l'élaboration, ayant participé en personne en tant que jeune théologien aux vifs débats qui l'accompagnèrent, s'ouvre par une phrase d'une signification profonde:  *"Dei Verbum religiose audiens et fidenter proclamans, Sacrosancta Synodus..."*. Ce sont des paroles à travers lesquelles le Concile indique un aspect caractéristique de l'Eglise:  celle-ci est une communauté qui écoute et annonce la Parole de Dieu. L'Eglise ne vit pas d'elle-même, mais de l'Evangile et elle tire toujours et à nouveau de l'Evangile des orientations pour son chemin. Il s'agit d'une remarque que chaque chrétien doit recueillir et appliquer à lui-même:  seul celui qui se place avant tout à l'écoute de la Parole peut ensuite l'annoncer. En effet, il ne doit pas enseigner sa propre sagesse, mais la sagesse de Dieu, qui apparaît souvent comme folie aux yeux du monde (cf. 1 *Co* 1, 23).
+
+L'Eglise sait bien que le Christ vit dans les Ecritures Saintes. C'est précisément pour cela - comme le souligne la  Constitution - qu'elle a toujours voué aux Divines Ecritures une vénération semblable à celle réservée au Corps même du Seigneur (cf. *[DV](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, n. 21). C'est précisément en considération de cela, que saint Jérôme, cité par le document  conciliaire,  affirmait à juste titre que l'ignorance des Ecritures est l'ignorance du Christ (cf. *[DV](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, n. 25).
+
+Eglise et Parole de Dieu sont liées entre elles de façon indissoluble. L'Eglise vit de la Parole de Dieu et la Parole de Dieu retentit dans l'Eglise, dans son enseignement et dans toute sa vie (cf. *[DV](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, n. 8). C'est pourquoi, l'Apôtre Pierre nous rappelle qu'"aucune prophétie d'Ecriture n'est objet d'explication personnelle; ce n'est pas d'une volonté humaine qu'est jamais venue une prophétie, c'est poussés par l'Esprit Saint que des hommes ont parlé de la part de Dieu" (2 *P* 1, 20).
+
+Nous sommes reconnaissants à Dieu du fait que ces derniers temps, notamment grâce à l'impulsion donnée par la Constitution dogmatique *[Dei Verbum](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, l'importance fondamentale de la Parole de Dieu a été plus profondément réévaluée. Il en a découlé un renouveau dans la vie de l'Eglise, surtout dans la prédication, dans la cathéchèse, dans la théologie, dans la spiritualité et dans le chemin oecuménique lui-même. L'Eglise doit toujours se renouveler et rajeunir et la Parole de Dieu, qui ne vieillit  ni  ne s'épuise jamais, est le moyen privilégié pour atteindre ce but. En effet, c'est la Parole de Dieu qui, au moyen de l'Esprit Saint, nous guide toujours à nouveau vers la vérité tout entière (cf. *Jn* 16, 13).
+
+Dans ce contexte, je voudrais surtout évoquer et recommander l'antique tradition de la *Lectio divina*:  la lecture assidue de l'Ecriture Sainte, accompagnée par la prière réalise le dialogue intime dans lequel, en lisant, on écoute Dieu qui parle et, en priant, on Lui répond avec une ouverture du coeur confiante (cf. *[DV](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, n. 25). Cette pratique, si elle est promue de façon efficace, apportera à l'Eglise, j'en suis convaincu, un nouveau printemps spirituel. En tant que point ferme de la pastorale biblique, la *Lectio divina* doit donc être davantage encouragée, à travers l'utilisation également de nouvelles méthodes, étudiées attentivement, au rythme des époques. On ne doit jamais oublier que la Parole de Dieu est la lampe sur nos pas et la lumière sur notre route (cf. *Ps* 118/119, 105).
+
+En invoquant la Bénédiction de Dieu sur votre travail, sur vos initiatives et sur le Congrès auquel vous participez, je m'unis au souhait qui vous anime:  Que la Parole du Seigneur accomplisse sa course (cf. 2 *Th* 3, 1) jusqu'aux extrémités de la terre, afin qu'à travers l'annonce du salut, le monde entier, en l'écoutant y croie, qu'en croyant, il espère,  qu'en espérant, il aime (cf. *[DV](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, n. 1).
+
+Merci de tout coeur!
+
+© Copyright 2005 - Libreria Editrice Vaticana

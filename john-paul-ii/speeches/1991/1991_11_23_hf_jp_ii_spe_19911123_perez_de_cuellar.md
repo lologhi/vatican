@@ -1,0 +1,43 @@
+***DISCOURS DU SAINT-PÈRE JEAN-PAUL II***
+
+***AU SECRÉTAIRE GÉNÉRAL DE L' ORGANISATION DES***
+
+***NATIONS UNIES, MONSIEUR JAVIER PÉREZ DE CUÉLLAR\****
+
+*Samedi, 23 novembre 1991*
+
+*Monsieur le Secrétaire général*,
+
+C’est avec une vive satisfaction que je vous accueille alors que vous allez vous adresser à un Congrès organisé par le Saint-Siège et que vous effectuez un voyage dans plusieurs capitales européennes.
+
+Ce n’est pas la première fois que vous me rendez visite et je voudrais profiter de cette nouvelle rencontre pour vous assurer à nouveau de la confiance que le Siège Apostolique a envers l’Organisation des Nations Unies, de l’intérêt actif et du soutien que, dans les limites de ses compétences, il désire lui apporter.
+
+Tandis que, dans quelques semaines, votre mission de Secrétaire général prendra fin, je voudrais vous exprimer ma haute estime pour l’œuvre que vous avez accomplie au sein de l’Organisation des Nations Unies pendant près de dix années d’inlassable dévouement personnel en faveur des grandes causes de l’humanité.
+
+Sous votre impulsion, l’Organisation a connu une heureuse évolution. Après une période difficile de crise économique et de tensions multiples, elle peut aujourd’hui aborder sa mission avec plus d’espoir de succès. Elle s’est attachée à servir les grands objectifs qui ont motivé sa fondation, à la suite des deux conflits mondiaux: maintenir la paix dans la justice, promouvoir les droits de l’homme et traiter les problèmes qui ont une dimension mondiale. D’une part, cela a été rendu possible par une meilleure coordination entre les diverses instances, notamment entre le Secrétaire général et le Conseil de Sécurité. D’autre part, la situation d’ensemble dans le monde s’est modifiée sensiblement; des conjonctions d’intérêts puissants et des oppositions entre des groupes de pays, qui paraissaient jusque-là insurmontables, se sont atténuées ou bien ont fait place à des coopérations nouvelles. Dans un contexte international largement renouvelé au cours des dernières années, l’opportunité d’une réforme des institutions ou des mécanismes de décision est à présent plus clairement perçue, afin de toujours mieux affirmer l’interdépendance des peuples, de leurs intérêts et de leurs responsabilités.
+
+Vous serez le premier, Monsieur le Secrétaire général, à souligner la gravité des problèmes qu’il est urgent d’affronter en maintes régions du monde et aussi à l’échelle planétaire, de manière résolue. Je sais que vous travaillez avec une très louable persévérance à ne pas laisser négliger les fléaux qui affectent, comme autant de plaies, un nombre terriblement élevé d’hommes, de femmes et d’enfants, au seuil du troisième millénaire: pauvreté, analphabétisme, maladies, prolifération des trafics de drogue, extension de la criminalité, dégradation de l’environnement, pour ne mentionner que certains des plus manifestes.
+
+L’honneur de l’Organisation, dès ses origines, est d’avoir placé au premier plan la définition, la défense et la promotion des droits de l’homme. Des progrès notables ont été accomplis et se poursuivent, depuis la Déclaration universelle adoptée en 1948. On a davantage fait ressortir les liens entre les droits individuels et les droits des communautés culturelles et spirituelles, des peuples et des nations. On comprend mieux aussi que, au-delà d’une sauvegarde en quelque sorte passive, il faut permettre à tous les membres de la famille humaine de s’épanouir et de progresser. On ne peut plus aborder maintenant le thème primordial du développement en restant sur le seul plan économique, mais il faut inclure dans les perspectives la promotion de l’éducation, de la famille, de la culture, des responsabilités civiques librement exercées, bref c’est tout l’homme qui en est le sujet digne et responsable. Vous savez combien ces préoccupations retiennent l’attention de l’Église, qui cherche à développer dans ce sens sa doctrine sociale. Et je vous remercie d’avoir publiquement manifesté l’attention que vous portiez à l’enseignement social du Saint-Siège, tout récemment encore pour le centenaire de l’encyclique *[Rerum Novarum](http://www.vatican.va/holy_father/leo_xiii/encyclicals/documents/hf_l-xiii_enc_15051891_rerum-novarum_fr.html)*.
+
+De nombreuses initiatives des Nations Unies ont été prises au cours de vos deux mandats pour éveiller les consciences, approfondir la réflexion et susciter des mesures efficaces et coordonnées. Je pense en particulier aux prochaines conférences convoquées pour 1992 sur l’environnement et le développement, ou pour 1994 sur la population. Le Saint-Siège souhaite apporter à ces concertations sa collaboration, dans toute la mesure de ses moyens et conformément à sa mission. Il tient aussi à faire valoir les points de vue qui lui paraissent essentiels pour la sauvegarde de la dignité des individus et des peuples, désirant que des organismes spécialisés n’aillent pas jusqu’à invoquer le crédit des Nations Unies pour imposer, notamment dans le domaine démographique, des politiques qui feraient violence à la liberté et au sens des responsabilités des personnes dans toutes les régions du monde. L’inspiration d’une action internationale face à l’ensemble des problèmes actuels ne peut-être que l’intuition fondamentale des Nations Unies: le service de la paix et de la justice grâce à la collaboration de tous et à une meilleure répartition des ressources de la terre.
+
+Le spectacle du monde ne présente pas seulement des disparités dans le développement ou dans l’exercice des droits fondamentaux; il nous montre jour après jour un douloureux ensemble de conflits dans presque tous les continents. Le langage des armes se fait plus entendre que celui de la concorde. Tout près de nous, par exemple, se déroule une guerre fratricide et inutile qui entraîne des populations entières dans le malheur et la désolation. Je me réfère bien évidemment aux combats qui ont lieu en Yougoslavie. L’accumulation inquiétante des armes ne peut pas ne pas entraîner leur usage, nous ne la voyons que trop. Je voudrais cependant saluer et encourager les efforts accomplis par les Nations Unies pour que l’on progresse sur la voie du désarmement, dans l’espoir qu’ils seront poursuivis avec conviction, que l’on rendra inutiles des arsenaux si menaçants et que l’on fera un meilleur usage tant du potentiel économique rendu stérile que des énergies humaines mobilisées pour des causes si contestables.
+
+Monsieur le Secrétaire général, je désire ici rendre hommage à l’action persévérante que vous avez menée personnellement ces dernières années pour parvenir à résoudre des conflits parmi les plus difficiles à apaiser. On vous a vu, semeur de paix, dans tous les continents. Ainsi votre action diplomatique tenace et sage a obtenu un accord de cessez-le-feu qui a mis un terme au conflit entre l’Iran et l’Irak. La Namibie vous doit d’avoir enfin accédé à l’indépendance. Vous avez contribué aux accords concernant l’Afghanistan. Votre médiation a permis des progrès libérateurs en plusieurs pays d’Amérique Centrale longtemps déchirés par des conflits meurtriers. Vous n’avez cessé d’accorder votre attention à la situation préoccupante de Chypre. Tout récemment, grâce à votre engagement patient et discret, des otages retenus au Proche-Orient pendant des années ont retrouvé leur liberté. En ce moment même, les Nations unies accompagnent le peuple cambodgien sur la voie de la pacification et de la renaissance. Et je ne puis évoquer tous les domaines où vous avez en personne participé à une action positive des Nations Unies, ne serait-ce que dans l’évolution des rapports entre l’Est et l’Ouest. Pour tout cela, je me fais l’interprète de la gratitude des peuples au service desquels vous avez mis toutes vos qualités et tout votre dévouement.
+
+Mon souhait le plus fervent, Excellence, est que vous connaissiez, après dix années de responsabilité internationale, la satisfaction de voir votre œuvre poursuivie, de voir les impulsions que vous avez données continuer d’entraîner des progrès dans les nombreux domaines qui concernent les Nations Unies.
+
+Pour vous-même, Monsieur le Secrétaire général, pour vos collaborateurs et vos proches, je forme les meilleurs vœux de bonheur. Et je prie le Tout-Puissant de vous accorder sans cesse son soutien et ses bénédictions.
+
+* * *
+
+\*AAS 84 (1991), p. 1138-1141.
+
+*Insegnamenti di Giovanni Paolo II*, vol. XIV, 2 pp. 1244-1247.
+
+*L'Osservatore Romano* 24.11. 1991 p.8.
+
+*L'Osservatore Romano. Edition hebdomadaire en langue française* n.48 p.15.
+
+© Copyright 1991 - Libreria Editrice Vaticana

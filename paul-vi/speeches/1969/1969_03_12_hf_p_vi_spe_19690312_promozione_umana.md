@@ -1,0 +1,15 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AU COMITÉ DE PROMOTION HUMAINE***
+
+*Mercredi 12 mars 1969*
+
+Quand, dam le prolongement du Concile, Nous écrivions dans Notre Lettre Encyclique *[Populorum progressio](/content/paul-vi/fr/encyclicals/documents/hf_p-vi_enc_26031967_populorum.html)* que «la faim d’instruction n’est pas moins déprimante que la faim d’aliments» (n. 35), Nous songions à tous ces hommes, nus Frères, des pays en voie de développement surtout, qui sont privés, faute d’instruction et d’éducation élémentaires, de la faculté d’assumer librement la maîtrise de leur destin et de leur progrès personnels, conformément à la vocation que le Créateur leur a assignée comme à chacun de nous. Aussi Nous souhaitions du fond du cœur que soient envisagés des programmes d’aide qui tendent, comme Nous le soulignions dans Notre même encyclique «à libérer l’homme de ses servitudes, le rendre capable d’être lui-même l’agent responsable de son mieux-être matériel, de son progrès moral et de son épanouissement spirituel».
+
+Si de multiples initiatives privées dans l’Eglise étaient déjà orientées en ce sens, il leur manquait, pensons-Nous, cette coordination harmonieuse qui seule peut témoigner d’un engagement de toute l’Eglise dans un service auquel elle appelle aujourd’hui toutes les bonnes volontés disponibles.
+
+En assumant cette tâche, le Comité de Promotion Humaine a le souci de rendre compte de cette mission humanitaire et morale de l’Eglise. Il rejoint en même temps la préoccupation de plusieurs organismes spécialisés des Nations-Unies et notamment de l’U.N.E.S.C.O. dans sa campagne mondiale pour l’élimination de l’analphabétisme au cours de la prochaine décennie. Nous nous plaisons à souligner à cette occasion combien Nous nous réjouissons de pouvoir répondre, par ce Comité à l’invitation que Nous a déjà formulée l’éminent Directeur général de l’U.N.E.S.C.O., Monsieur René Maheu, d’associer les efforts de l’Eglise à ceux de son organisation en ce domaine.
+
+En diverses circonstances Nous l’avions assuré de Notre disposition à répondre à son appel. Le Comité de Promotion Humaine sera désormais l’instrument de cette coopération de Nos Fils catholiques dans cette campagne d’alphabétisation où Nous espérons les voir s’engager nombreux dans un esprit de féconde collaboration et de charité évangélique.
+
+Puisse ainsi se vérifier dans les faits le témoignage dont Monsieur le Directeur général de l’U.N.E.S.C.O. voulait bien honorer Notre Lettre Encyclique *Populorum progressio*, quand Il y discernait «la rencontre au service de l’homme d’une Eglise désormais résolument ouverte au monde et d’une institution intergouvernementale qui prend de plus en plus conscience de la dimension spirituelle de son entreprise intellectuelle et pratique» (Allocution de M. Maheu, le 19 avril 1967, lors de la remise du texte de l’Encyclique *Populorum progressio* par Monseigneur Zabkar, Observateur permanent du Saint Siège près l’U.N.E.S.C.O.).

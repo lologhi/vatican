@@ -1,0 +1,17 @@
+[CHEMIN DE CROIX AU COLISÉE](http://www.vatican.va/news_services/liturgy/libretti/2014/20140418-libretto-via-crucis.pdf)
+
+*Palatin*
+
+*Vendredi Saint, 18 avril 2014*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_BKY3SQSH)** ***[Galerie photographique](http://www.photogallery.va/content/photogallery/fr/celebrazioni-liturgiche/via-crucis2014.html)***
+
+Dieu a mis sur la Croix de Jésus tout le poids de nos péchés, toutes les injustices perpétrées par chaque Caïn contre son frère, toute l’amertume de la trahison de Judas et de Pierre, tout l’orgueil des tyrans, toute l’arrogance des faux amis. C’était une lourde Croix, comme la nuit des personnes abandonnées, lourde comme la mort des personnes chères, lourde parce qu’elle résume toute la laideur du mal. Toutefois, c’est aussi une Croix glorieuse comme l’aube d’une longue nuit, parce qu’elle représente tout l’amour de Dieu qui est plus grand que nos iniquités et que nos trahisons. Sur la Croix, nous voyons la monstruosité de l’homme, quand il se laisse guider par le mal; mais nous voyons aussi l’immensité de la miséricorde de Dieu qui ne nous traite pas selon nos péchés, mais selon sa miséricorde.
+
+Face à la Croix de Jésus, nous voyons jusqu’à presque toucher du doigt combien nous sommes éternellement aimés ; face à la Croix, nous nous sentons « fils » et non « choses » ou « objets », comme l’affirmait saint Grégoire de Nazianze en s’adressant au Christ par cette prière : « Si je ne t’appartenais pas, ô mon Christ, je me sentirais une créature finie. Je suis né et je sens que je me dissous. Je mange, je dors, je me repose et je marche, je tombe malade et je guéris, je suis assailli par des désirs ardents et des tourments sans nombre, je jouis du soleil et de tout ce que la terre produit. Puis je meurs et ma chair devient poussière comme celle des animaux qui n’ont pas de péchés. Mais qu’est-ce que j’ai, moi, de plus qu’eux ? Rien, si ce n’est Dieu. Si je ne t’appartenais pas, ô mon Jésus, je me sentirais une créature finie. O notre Jésus, guide-nous de la Croix à la résurrection et apprends-nous que ce n’est pas le mal qui aura le dernier mot, mais l’amour, la miséricorde et le pardon. O Christ, aide-nous à nous exclamer à nouveau : “Hier j’étais crucifié avec le Christ ; aujourd’hui je suis glorifié avec lui. Hier j’étais mort avec Lui, aujourd’hui je suis vivant avec Lui. Hier j’étais enseveli avec Lui, aujourd’hui je suis ressuscité avec Lui” ».
+
+Enfin, tous ensemble, rappelons les malades, rappelons toutes les personnes abandonnées sous le poids de la Croix, afin qu’ils trouvent dans l’épreuve de la Croix la force de l’espérance, de l’espérance de la résurrection et de l’amour de Dieu.
+
+* * *
+
+**[Méditations de S.E. Mgr Giancarlo M. Bregantini, Archevêque de Campobasso-Boiano](http://www.vatican.va/news_services/liturgy/2014/documents/ns_lit_doc_20140418_via-crucis_fr.html)**\[ [Allemand](http://www.vatican.va/news_services/liturgy/2014/documents/ns_lit_doc_20140418_via-crucis_ge.html), [Anglais](http://www.vatican.va/news_services/liturgy/2014/documents/ns_lit_doc_20140418_via-crucis_en.html), [Espagnol](http://www.vatican.va/news_services/liturgy/2014/documents/ns_lit_doc_20140418_via-crucis_sp.html), [Français](http://www.vatican.va/news_services/liturgy/2014/documents/ns_lit_doc_20140418_via-crucis_fr.html), [Italien](http://www.vatican.va/news_services/liturgy/2014/documents/ns_lit_doc_20140418_via-crucis_it.html), [Portugais](http://www.vatican.va/news_services/liturgy/2014/documents/ns_lit_doc_20140418_via-crucis_po.html)\]

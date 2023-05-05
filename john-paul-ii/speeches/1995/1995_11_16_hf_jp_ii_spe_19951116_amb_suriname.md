@@ -1,0 +1,25 @@
+ADDRESS OF HIS HOLINESS JOHN PAUL II
+
+TO H.E. Mr EVERT GUILLAUME AZIMULLAH, FIRST AMBASSADOR OF THE REPUBLIC OF SURINAME TO THE HOLY SEE\*
+
+*Thursday, 16 November 1995*
+
+Monsieur l’Ambassadeur,
+
+1\. Je suis heureux d'accepter les Lettres qui vous accréditent en tant qu'Ambassadeur extraordinaire et plénipotentiaire de la République du Surinam près le Saint-Siège. Je suis également heureux de recevoir les vœux que vous m'avez transmis de la part du Président. Je vous prie de lui transmettre mes salutations cordiales et d'assurer le gouvernement et le peuple du Surinam que je suis proche de la nation dans mes prières.
+
+2\. Les relations diplomatiques établies récemment entre votre pays et le Saint-Siège constituent un signe du désir qui est le nôtre d'œuvrer pour le progrès de la personne humaine et de la société. Elles expriment «l'effort commun pour édifier la civilisation de l'amour, fondée sur les valeurs universelles de la paix de la solidarité, de la justice et de la liberté» (Discours à la 5Oe Assemblée générale de l'Organisation des Nations unies, New York, le 5 octobre 1995 n. 18). Une telle tâche comporte la nécessité de promouvoir une conscience et un respect toujours plus grands pour la dignité qui appartient aux hommes et aux femmes en vertu de leur seule condition d'êtres humains. Cette réalité n'est pas une réalité abstraite ou quelque chose que la communauté, l'État ou la loi accordent. C'est un droit inaliénable, inhérent et qui appartient à tous les individus, partout et en chaque circonstance. Il précède donc les lois et les accords, et détermine leur rigueur et leur utilité. Tout ce qui soutient, promeut et renforce la dignité humaine est bon pour la société. Tout ce qui la menace ou y nuit représente une faille dans la vie de la société, qui peut avoir des conséquences terribles sur les individus et les peuples.
+
+C'est dans cette perspective que le Saint-Siège s'efforce d'élever sa voix au sein de la Communauté internationale afin de défendre et de promouvoir les valeurs morales et spirituelles. Ces valeurs sont essentielles pour un développement humain intégral et correspondent aux désirs les plus profonds du cœur humain. Le bien-être, non seulement des individus et de la famille en tant que cellule de base de la société, mais également des nations elles-mêmes et de la race humaine tout entière, est étroitement lié au sens de vérité, de responsabilité, de solidarité et de respect pour les droits légitimes et les libertés d'autrui. Ce sont-là certains fondements éthiques indispensables pour la construction d'une société juste et harmonieuse.
+
+3\. Si les structures économiques et politiques sont vidées de leur contenu éthique et moral, elles ne suffiront pas à apporter le développement et le bien-être souhaité. Très souvent, les tensions qui menacent la paix et empêchent le développement sont le résultat d'un égoïsme individuel et collectif, particulièrement sous les formes d'un désir exclusif de profit et d'une soif de pouvoir (cf. Sollicitudo rei socialis, n. 37). Ainsi, un grand nombre d'obstacles graves au développement trouvent leur origine dans le cœur humain, dans les attitudes des personnes envers la société et envers leurs propres devoirs dans la société. Un effort important d'éducation est nécessaire, afin que chaque génération puisse remplir ses responsabilités. Une telle éducation comporte la nécessité de transmettre un sens élevé d'engagement au service du bien commun, de respect pour la loi, de compassion et de préoccupation pour la souffrance humaine. Le problème du bien moral est inséparable du développement d'un peuple.
+
+4\. M. l'Ambassadeur, je note les références que vous avez faites à la résolution de votre pays de poursuivre les objectifs de paix, de liberté et de justice, tant au niveau national qu'international. Dans cet effort, le Saint-Siège est sans aucun doute un partenaire tout à fait disponible. Tout en poursuivant son rôle principal qui consiste à proclamer l'Évangile de Jésus-Christ et à former les consciences dans la vérité et les vertus morales, l'Église qui est au Surinam ne ménage aucun effort pour essayer de fournir des services d'éducation, de santé et d'autres services sociaux. A cet égard, je vous remercie, M. l'Ambassadeur, de vos aimables paroles au sujet de la contribution de l'Église à l'amélioration de la vie du peuple de votre pays.
+
+M. l'Ambassadeur, alors que vous prenez en charge les responsabilités qui sont maintenant les vôtres à l'intérieur de la communauté diplomatique accréditée près le Saint-Siège, je vous offre l'expression de mes prières et de mes meilleurs vœux pour le succès de votre haute mission, et je vous assure que les différents organismes du Saint-Siège seront toujours prêts à vous assister dans l'accomplissement de votre mission. J'invoque cordialement sur vous et sur le peuple bien-aimé du Surinam une abondance de bénédictions de Dieu tout-puissant.
+
+* * *
+
+\* *L’Osservatore Romano. Edition hebdomadaire en langue française* n.48 p.5.
+
+© Copyright 1995 \- Libreria Editrice Vaticana

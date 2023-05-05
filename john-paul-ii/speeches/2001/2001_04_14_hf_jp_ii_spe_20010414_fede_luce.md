@@ -1,0 +1,25 @@
+***MESSAGE DU PAPE JEAN PAUL II***
+
+***AU MOUVEMENT FOI ET LUMIÈRE***
+
+***À L'OCCASION DU 30ème ANNIVERSAIRE***
+
+***DE LA FONDATION***
+
+*A mes fils et à mes filles du Mouvement Foi et Lumière*
+
+1\. En cette Semaine sainte de la première année du nouveau millénaire, vous rejoignant par l’affection et la prière, je vous salue, vous qui êtes venus auprès de la Grotte de Massabielle à l’occasion du trentième anniversaire de la fondation de votre mouvement. Marie elle-même vous y accueille, pour raviver votre désir de "venir boire à la source", pour vous conduire, comme elle le fit jadis avec Bernadette, à la rencontre de son Fils. A Lourdes, l’amour de Jésus et de Marie pour les plus faibles éclate avec une force singulière, vous invitant à l’action de grâce pour les merveilles que Dieu fait en vous. Je vous encourage à raviver et à affermir votre foi, pour être chaque jour missionnaires.
+
+2\. Vous qui êtes porteurs d’un handicap, vous êtes le cœur de la grande famille de *Foi et Lumière.* Votre vie est un don de Dieu et fait de vous des témoins de la vraie vie, et si le handicap vous conduit parfois à des combats difficiles dans votre existence, vous vivez souvent, selon le mot de Claudel, avec "des âmes agrandies dans des corps entravés". Chers amis, vous êtes un trésor précieux pour l’Eglise, qui est aussi votre famille, et vous avez une place spéciale dans le cœur de Jésus.
+
+3\. Depuis trente ans, *Foi et Lumière* n’a cessé de rappeler avec audace, courage et persévérance l’éminente dignité de toute personne humaine. Nous pouvons rendre grâce pour l’espérance et la confiance que tant de personnes, tant de familles, ont trouvées dans le mouvement. Je désire remercier chaleureusement les personnes qui entourent les handicapés pour le travail irremplaçable réalisé quotidiennement au service des oubliés de nos sociétés et surtout pour la joie qu’elles leur offrent. Elles témoignent ainsi que la joie de vivre est une source cachée, qui trouve son origine dans la confiance en Dieu et en Marie, sa Mère. Je voudrais saluer tout particulièrement Jean Vanier et Marie-Hélène Mathieu qui depuis longtemps se dépensent en faveur de la vie et de la promotion des personnes handicapées.
+
+4\. Votre présence à Lourdes, chers frères et sœurs, est aussi un appel adressé aux chrétiens et aux responsables de notre société, afin qu’il comprennent toujours mieux que le handicap, s’il nécessite des aides, est avant tout une invitation à dépasser toutes les formes d’égoïsme et à s’engager dans de nouvelles fraternités et de nouvelles solidarités. Ainsi que je le rappelais à Rome, lors leur jubilé, les personnes handicapées remettent "en question les conceptions de la vie liées uniquement à la satisfaction personnelle, à l’apparence, à l’efficacité" (Homélie, 3 décembre 2000, n. 5). Elles appellent tous les membres de la société à soutenir moralement et matériellement les parents en charges d’enfants handicapés. Alors que l’on tend de plus en plus à supprimer dès avant la naissance l’être humain susceptible d’être porteur d’un handicap, l’action de *Foi et Lumière* constitue un signe prophétique en faveur de la vie et d’une attention prioritaire aux plus faibles de la société.
+
+5\. Dans votre grande diversité, venant de soixante-quinze pays, vous vivez une véritable dimension œcuménique. La présence ensemble à Lourdes de chrétiens de diverses confessions, catholiques, orthodoxes, anglicans et protestants, atteste, dans une conviction fondée sur la foi commune au Christ ressuscité, que toute personne est un don de Dieu, avec une dignité et des droits inaliénables, et que, malgré un handicap, il est possible de vivre heureux.
+
+6\. Avec toute mon affection, j’invoque sur vous, sur ceux qui vous accompagnent et sur ceux qui n’ont pu venir, la force du Seigneur Ressuscité, afin qu’il donne à chacun le courage et la joie de poursuivre la mission de témoigner de l’amour de Dieu dans notre monde. Puissiez- vous, à l’exemple de Bernadette, accueillir et faire fructifier toujours plus la Bonne Nouvelle, dont notre humanité a tant besoin ! En vous confiant à la tendresse maternelle de Notre-Dame de Lourdes, je vous accorde de grand cœur la Bénédiction apostolique.
+
+*Du Vatican, le 2 avril 2001.*
+
+**IOANNES PAULUS II**

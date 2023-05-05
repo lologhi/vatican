@@ -1,0 +1,33 @@
+[PREMIÈRES VÊPRES DE LA SOLENNITÉ DE SAINTE MARIE MÈRE DE DIEU \
+\
+ET *TE DEUM* D'ACTION DE GRÂCE POUR L'ANNÉE ÉCOULÉE](http://www.vatican.va/news_services/liturgy/libretti/2018/20181231-libretto-maria-madre-di-dio_pvespri.pdf)
+
+***HOMÉLIE DU PAPE FRANÇOIS***
+
+*Basilique vaticane*
+
+*Lundi 31 décembre 2018*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/12/31/te-deum.html)**\]
+
+* * *
+
+« Mais lorsqu’est venue la plénitude des temps, Dieu a envoyé son Fils, né d’une femme et soumis à la loi de Moïse, afin de racheter ceux qui étaient soumis à la Loi et pour que nous soyons adoptés comme fils » ( *Ga* 4, 4-5).
+
+A la fin de l’année, la Parole de Dieu nous accompagne avec ces deux versets de l’Apôtre Paul. Ce sont des expressions concises et denses : une synthèse du Nouveau Testament qui donne sens à un moment “critique”, comme l’est toujours un passage d’année.
+
+La première expression qui nous frappe est « *plénitude des temps ».* Elle prend une résonnance particulière en ces dernières heures d’une année solaire, où nous sentons encore plus le besoin de quelque chose qui donne du sens à l’écoulement du temps.Quelque chose, ou mieux, *quelqu’un*. Et ce “quelqu’un” est venu, Dieu l’a envoyé : c’est “son Fils”, Jésus. Nous venons de célébrer sa naissance. Il est né d’une femme, la Vierge Marie ; il est né sous la Loi, un enfant juif, soumis à la Loi du Seigneur. Mais comment est-ce possible ?Comment cela peut-il être le signe de la « plénitude des temps » ? Certes, au moment de la naissance, cet Enfant est presque invisible et insignifiant. Mais, en un peu plus de trente ans, ce Jésus libèrera une force inouïe, qui dure encore et durera toute l’histoire : la force de l’Amour. *C’est l’amour qui donne plénitude à tout*, également au temps ; et Jésus est le “concentré” de tout l’amour de Dieu dans un être humain.
+
+Saint Paul dit clairement *pourquoi* le Fils de Dieu est né dans le temps, quelle est la mission que le Père lui a confiée : il est né « pour racheter ». C’est la seconde expression qui nous frappe : *racheter*, c’est-à-dire faire sortir d’une condition de servitude et rendre à la liberté et à la dignité propre aux *fils*. L’esclavage auquel se réfère l’Apôtre est celui de la « Loi », comprise comme un ensemble de préceptes à observer ; une Loi qui, certes, éduque l’homme, qui est pédagogique, mais ne le libère pas de sa condition de pécheur, au contraire qui le « cloue », pour ainsi dire, à cette condition, l’empêchant d’atteindre la liberté du fils.
+
+Dieu a envoyé dans le monde son Fils unique pour déraciner du cœur de l’homme la servitude antique du péché et lui rendre ainsi sa dignité. Du cœur humain, en effet – comme l’enseigne Jésus dans l’Evangile (cf. *Mc* 7, 21-32) –, procèdent toutes les intentions mauvaises, les iniquités qui corrompent la vie et les relations.
+
+Et, ici, nous devons nous arrêter, nous arrêter et réfléchir avec douleur et repentance parce que, pendant cette année, encore, qui se termine, beaucoup d’hommes et de femmes ont vécu et vivent dans des conditions de servitude indignes de personnes humaines.
+
+Dans notre ville de Rome également il y a des frères et des sœurs qui, pour diverses raisons se trouvent dans cet état. Je pense, en particulier, aux nombreuses personnes qui vivent sans domicile. Elles sont plus de dix-mille. En hiver, leur situation est particulièrement dure. Ce sont tous des fils et des filles de Dieu, mais diverses formes d’esclavage, parfois très complexes, les ont amenés à vivre à la limite de la dignité humaine. Jésus aussi est né dans une condition semblable, mais pas par hasard, ou par accident : il a voulu naître ainsi, pour manifester l’amour de Dieu pour les petits et les pauvres, et, de cette manière, jeter dans le monde la semence du Royaume de Dieu, Royaume de justice, d’amour et de paix, où personne n’est esclave, mais où tous sont frères, fils de l’unique Père.
+
+L’Eglise qui est à Rome ne veut pas être indifférente aux servitudes de notre époque, ni même seulement les observer et y assister, mais elle veut être à *l’intérieur* de cette réalité, être *proche* de ces personnes et de ces situations. Proximité, maternelle.
+
+Je souhaite encourager cette forme de *maternité* de l’Eglise alors que nous célébrons la maternité divine de la Vierge Marie. En contemplant ce mystère, nous reconnaissons que Dieu est « né d’une femme » pour que nous puissions recevoir la plénitude de notre humanité, « l’adoption comme fils ». Par son abaissement nous avons été relevés. De sa petitesse est venue notre grandeur. De sa fragilité, notre force. De sa servitude, notre liberté.
+
+Quel nom donner à tout cela, si ce n’est celui d’ *Amour* ? Amour du Père et du Fils et du Saint Esprit, envers qui, ce soir, la Sainte Mère Eglise élève, partout dans le monde, son hymne de louange et d’action de grâce.

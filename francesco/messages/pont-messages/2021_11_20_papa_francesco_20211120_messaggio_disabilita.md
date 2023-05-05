@@ -1,0 +1,57 @@
+***MESSAGE DU PAPE FRANÇOIS***
+
+***À L'OCCASION DE LA JOURNÉE INTERNATIONALE DES PERSONNES HANDICAPÉES***
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/11/25/messaggio-disabilita.html)\]**
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+\[3 décembre 2021\]
+
+***«Vous êtes mes amis» (Jn 15,14)***
+
+*Chers frères et sœurs !*
+
+À l’occasion de la Journée internationale qui vous est consacrée, je voudrais m’adresser directement à vous, qui vivez avec un handicap, quel qu’il soit, pour vous dire que l’Église vous aime et a besoin de chacun d’entre vous pour accomplir sa mission au service de l’Évangile.
+
+*Jésus, l’ami*
+
+Jésus est notre ami ! Il l’a dit lui-même à ses disciples lors de la Dernière Cène (cf. *Jn* 15,14). Ses paroles nous rejoignent et éclairent le mystère de notre relation avec Lui et de notre appartenance à l’Église. “L’amitié avec Jésus est indéfectible. Il ne nous abandonne jamais, même si parfois il semble être silencieux. Quand nous avons besoin de Lui, il se laisse trouver par nous et Il est à nos côtés, où que nous allions”. (Exhortation apostolique post-synodale *[Christus Vivit](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20190325_christus-vivit.html)*, n. 154). Nous, chrétiens, avons reçu un don : l’accès au cœur de Jésus et l’amitié avec Lui. C’est un privilège dont nous avons été bénis et qui devient notre appel : notre vocation est d’être ses amis !
+
+Avoir Jésus pour ami est la plus grande des consolations et peut faire de chacun de nous un disciple reconnaissant, joyeux et capable de témoigner que sa propre fragilité n’est pas un obstacle pour vivre et communiquer l’Évangile. L’amitié confiante et personnelle avec Jésus peut devenir, en effet, la clé spirituelle pour accepter les limites que nous connaissons tous et pour vivre notre condition de manière réconciliée. Elle peut donner lieu à une joie “qui remplit le cœur et toute la vie” (Exhortation apostolique *[Evangelii Gaudium](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html)*, n. 1) car, comme l’a écrit un grand exégète, l’amitié avec Jésus est “une étincelle qui enflamme l’enthousiasme”.
+
+*L’Église est votre maison*
+
+Le baptême fait de chacun de nous un membre à part entière de la communauté ecclésiale et donne à chacun, sans exclusion ni discriminations, la possibilité de s’exclamer : “Je suis Église !”. En effet, l’Église est votre maison ! Tous ensemble, nous sommes l’Église parce que Jésus a choisi d’être notre ami. L’Église – nous voulons l’apprendre de mieux en mieux le long de ce processus synodal que nous avons entrepris – “n’est pas une communauté de parfaits, mais de disciples en chemin, qui suivent le Seigneur car ils se reconnaissent pécheurs et ayant besoin de son pardon” ( *[Catéchèse](https://www.vatican.va/content/francesco/fr/audiences/2016/documents/papa-francesco_20160413_udienza-generale.html)*, 13 avril 2016). Dans ce peuple qui avance à travers les événements de l’histoire, guidé par la Parole de Dieu, “tous sont protagonistes, personne ne peut être considéré comme un simple figurant” ( *[Aux fidèles de Rome](https://www.vatican.va/content/francesco/fr/speeches/2021/september/documents/20210918-fedeli-diocesiroma.html)*, 18 septembre 2021). C’est pourquoi chacun d’entre vous est aussi appelé à apporter sa propre contribution au parcours synodal. Je suis convaincu que si ce processus ecclésial est véritablement “participatif et inclusif”, la communauté ecclésiale en sortira grandement enrichie.
+
+Malheureusement, aujourd’hui encore, beaucoup d’entre vous “sont traités comme des corps étrangers dans la société”. \[...\] et « sentent qu’ils existent sans appartenance et sans participation » ; encore trop de choses « \[vous empêchent\] d’avoir la pleine citoyenneté ». (Enc. *[Fratelli tutti](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html#98)*, n. 98). La discrimination est encore fortement présente à différents niveaux de la vie sociale ; elle se nourrit de préjugés, d’ignorance et d’une culture qui a du mal à comprendre la valeur inestimable de chaque personne. En particulier, le fait de continuer à considérer le handicap – qui est le résultat de l’interaction entre les barrières sociales et les limitations de chaque personne – comme s’il s’agissait d’une maladie, contribue à maintenir vos vies à l’écart et alimente la stigmatisation dont vous êtes victimes.
+
+En ce qui concerne la vie de l’Église, “la pire des discriminations \[...\] est le manque d’attention spirituelle” (Exhortation apostolique *[Evangelii Gaudium](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#La_place_privilégiée_des_pauvres_dans_le_peuple_de_Dieu)*, n. 200), qui s’est parfois manifestée par un refus d’accès aux sacrements, que certains d’entre vous ont malheureusement expérimenté. Le Magistère est très clair à ce sujet, et récemment le Directoire pour la catéchèse a rappelé explicitement que “personne ne peut refuser les sacrements aux personnes handicapées” (n. 272). Face à la discrimination, c’est précisément l’amitié de Jésus, que nous recevons tous comme un don immérité, qui nous rachète et nous permet de vivre les différences comme des richesses. En effet, il ne nous appelle pas serviteurs, femmes et hommes à la dignité mutilée, mais amis : des confidents dignes de connaître tout ce qu’il a reçu du Père (cf. *Jn* 15,15).
+
+*Dans l’épreuve !*
+
+L’amitié de Jésus nous protège dans l’épreuve. Je suis bien conscient que la pandémie du Covid-19, de laquelle nous sommes péniblement en train de sortir, a eu et continue d’avoir des répercussions très dures sur la vie de beaucoup d’entre vous. Je pense, par exemple, à la nécessité de rester à la maison pendant de longues périodes, à la difficulté pour de nombreux étudiants handicapés d’accéder aux outils didactiques d’enseignement à distance, aux services à la personne qui ont été interrompus pendant longtemps dans de nombreux pays, et à bien d’autres difficultés auxquelles chacun d’entre vous a dû faire face. Mais, par-dessus tout, je pense à ceux d’entre vous qui vivent dans des structures résidentielles et à la souffrance qu’a entraînée la séparation forcée d’avec vos proches. Dans ces établissements, le virus a été très violent et, malgré le dévouement du personnel, a fait trop de victimes. Sachez que le Pape et l’Église vous sont proches d’une manière spéciale, avec affection et tendresse !
+
+L’Église est aux côtés de ceux d’entre vous qui luttent encore contre le Coronavirus. Comme toujours, elle insiste sur la nécessité de prendre soin de chacun, sans que le handicap soit un obstacle à l’accès aux meilleurs soins disponibles. C’est dans ce sens que certaines Conférences épiscopales, comme celles d’Angleterre et du Pays de Galles, et celle des États-Unis, sont intervenues pour demander que le droit de chacun à être traité sans discrimination soit respecté.
+
+*L’Évangile est pour tous*
+
+Notre vocation découle aussi de notre amitié avec le Seigneur. Il nous a choisis afin que nous portions du fruit, et que notre fruit demeure (cf. *Jn* 15,16). En se présentant comme la vraie Vigne, Il a voulu que chaque sarment, uni à Lui, puisse porter du fruit. Oui ! Jésus veut que nous arrivions au “bonheur pour lequel nous avons été créés”. Il veut que nous soyons saints et n’attend pas de nous que nous nous contentions d’une existence médiocre, édulcorée et sans consistance” (Exhortation apostolique *[Gaudete et Exsultate](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20180319_gaudete-et-exsultate.html)*, 1).
+
+L’Évangile est pour toi aussi ! C’est une Parole adressée à chacun d’entre nous, qui console et, en même temps, appelle à la conversion. Le Concile Vatican II, parlant de l’appel universel à la sainteté, enseigne que “l’appel à la plénitude de la vie chrétienne et à la perfection de la charité s’adresse à tous ceux qui croient au Christ, quel que soit leur état ou leur forme de vie \[…\] Les fidèles doivent s’appliquer de toutes leurs forces, dans la mesure du don du Christ, à obtenir cette perfection, afin qu’\[...\] ils soient, avec toute leur âme, voués à la gloire de Dieu et au service du prochain”. (Const. *[Lumen Gentium](https://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, 40).
+
+Les Évangiles nous rapportent que lorsque certaines personnes handicapées rencontrent Jésus, leur vie change profondément et elles commencent à être ses témoins. C’est le cas, par exemple, de l’aveugle de naissance qui, guéri par Jésus, affirme courageusement devant tout le monde que celui-ci est un prophète (cf. *Jn* 9,17) ; et beaucoup d’autres proclament avec joie ce que le Seigneur a fait pour eux.
+
+Je sais que certains d’entre vous vivent dans des conditions d’extrême fragilité. Mais je voudrais m’adresser précisément à vous – et là où le besoin se fera sentir, j’aimerais que les membres de votre famille ou vos proches vous lisent ces mots et vous transmettent cet appel de ma part : je vous demande de prier. Le Seigneur écoute attentivement la prière de ceux qui ont confiance en Lui. Que nul ne dise : “Je ne sais pas prier”, car, comme le dit l’Apôtre, “l’Esprit vient au secours de notre faiblesse ; car nous ne savons pas prier comme il faut, mais l’Esprit lui-même intercède par des gémissements inexprimables” ( *Rm* 8,26). Dans les Évangiles, en effet, Jésus écoute aussi ceux qui s’adressent à lui de manière apparemment inadéquate, parfois seulement par un geste (cf. *Lc* 8,44) ou par un cri (cf. *Mc* 10,46). Dans la prière, il y a une mission accessible à tous, et je voudrais vous la confier de manière particulière. Personne n’est si fragile qu’il ne puisse prier, adorer le Seigneur, rendre gloire à son Saint Nom et intercéder pour le salut du monde. Devant le Tout-Puissant, nous nous découvrons tous égaux.
+
+Chers frères et sœurs, votre prière est plus urgente aujourd’hui que jamais. Sainte Thérèse d’Avila a écrit que “dans les moments difficiles, nous avons besoin des amis forts de Dieu pour soutenir les faibles”.  Ce temps de la pandémie nous a montré clairement que nous sommes tous vulnérables : “nous nous sommes rendus compte que nous sommes tous dans la même barque, tous fragiles et désorientés, mais en même temps tous importants et nécessaires, tous appelés à ramer ensemble.” [\[1\]](#_ftn1) La première façon de le faire est de prier. Nous pouvons tous le faire ; et même si, comme Moïse, nous avons besoin de soutien (cf. *Ex* 17,10), nous sommes sûrs que le Seigneur écoutera notre invocation.
+
+Je vous souhaite le meilleur. Que le Seigneur vous bénisse et que la Vierge vous protège.
+
+*Rome, Saint Jean de Latran, 20 novembre 2021*
+
+**François**
+
+* * *
+
+[\[1\]](#_ftnref1) *[Moment extraordinaire de prière en temps d’épidémie](https://www.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/3/27/uniti-in-preghiera.html)*, 27 mars 2020.

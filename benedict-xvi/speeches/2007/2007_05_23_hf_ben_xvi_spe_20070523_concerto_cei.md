@@ -1,0 +1,25 @@
+**EXÉCUTION DE L’ORATORIO "RESURREXI"**
+
+**OFFERT** **EN HONNEUR DU SAINT-PÈRE****PAR LA**
+
+**CONFÉRENCE ÉPISCOPALE ITALIENNE**
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+*Mercredi 23 mai 2007*
+
+*Messieurs les Cardinaux,*
+
+*vénérés frères dans l'épiscopat et dans le sacerdoce,*
+
+*Mesdames et Messieurs!*
+
+A quelques jours de la conclusion du temps de Pâques - nous célébrerons dimanche prochain la solennité de la Pentecôte -, nous avons eu ce soir une opportunité supplémentaire de nous arrêter pour méditer sur l'événement merveilleux de la Résurrection du Christ. L'occasion nous a été donnée par l'exécution de ce suggestif Oratorio que la Conférence épiscopale italienne, réunie en Assemblée générale, a voulu m'offrir, ainsi qu'à mes collaborateurs, pour mon quatre-vingtième anniversaire et comme couronnement de la visite ad limina des prélats d'Italie, qui s'est déroulée au cours de cette année pastorale dans un climat de profonde communion ecclésiale. Merci, chers et vénérés frères évêques italiens, de ce don apprécié. Nous avons écouté ensemble la réévocation de personnages et de scènes de l'Evangile qui nous reconduisent au mystère central de notre foi:  la Résurrection du Seigneur. Nous avons pu apprécier une œuvre musicale et poétique caractérisée par un mélange harmonieux d'expressivité artistique et de symbolique spirituelle, de mélodie et d'éléments de méditation stimulants.
+
+Au terme de ce beau concert, je ressens le besoin de remercier tous ceux qui l'ont organisé, minutieusement préparé et, à présent, magistralement interprété! Je voudrais tout d'abord adresser ma pensée reconnaissante à Mgr Angelo Bagnasco, qui depuis quelques mois, a pris en charge la direction, en tant que Président, de la Conférence épiscopale italienne. Je le salue avec affection et je le remercie des paroles cordiales qu'il m'a adressées au début de notre rencontre, et je l'assure de ma bienveillance, accompagnée par ma prière constante pour la haute tâche qu'il est appelé à accomplir au service de l'Eglise qui est en Italie. Je salue Messieurs les Cardinaux, les évêques, les prêtres, les autorités présentes et tous ceux qui participent à cette soirée musicale. Je salue le chœur avec une sincère gratitude, ainsi que le Directeur Marco Faelli et l'orchestre de l'Arène de Vérone, dirigé par le Maître Julian Kovatchev. Le remercie le chœur de voix blanches "ALIVE" et le Maître Paolo Facincani, ainsi que le chœur de voix blanches "Benjamin Britten", dirigé par le Maître Marco Tonini. Chers artistes et musiciens, je remercie chacun de vous cordialement de la merveilleuse interprétation de cet oratorio sacré, réalisé par Alberto Colla pour la partie musicale et par Roberto Mussapi pour le texte poétique:  je leur exprime ma vive reconnaissance et appréciation.
+
+Je disais en commençant que cette soirée musicale nous a donné l'occasion de méditer sur l'événement central de notre foi:  la Résurrection du Christ. Le titre *Resurrexi* "Je suis ressuscité", tiré de l'incipit latin de l'antienne d'entrée de la Messe de Pâques, résonne en effet comme une présentation de Jésus par lui-même qui, dans la liturgie, se présente et se fait reconnaître, justement, dans sa condition de Ressuscité. L'Oratorio fait revivre les sentiments d'émerveillement et de joie éprouvés par ceux qui furent les premiers témoins oculaires de la Résurrection. A travers cinq "tableaux", harmonieusement liés les uns aux autres dans une trame mélodique et poétique, les auteurs de ce mélodrame nous ont aidés à méditer sur l'aube du Troisième jour riche d'une lumière fulgurante, qui a ouvert le cœur des Apôtres et leur a permis de comprendre dans toute leur signification les événements dramatiques de la mort et de la résurrection du divin Maître, tout comme les gestes précédents et les enseignements de sa vie.
+
+La Pâque constitue le cœur du christianisme. Pour chaque croyant et pour chaque communauté ecclésiale, la rencontre avec Jésus Christ crucifié et ressuscité est importante. Sans cette expérience personnelle et communautaire, sans une intime amitié avec Jésus, la foi reste superficielle et stérile. Je souhaite vivement que cet oratorio également, que nous avons suivi avec une participation et une attention religieuses, nous aide à mûrir notre foi. Dans la Pâque du Christ est anticipée la vie nouvelle du monde ressuscité:  si nous en sommes fermement persuadés, notre témoignage évangélique en sera d'autant plus conscient et notre zèle apostolique plus ardent. Que ce don nous soit obtenu par l'Esprit Saint, qui descendit en abondance lors de la Pentecôte sur l'Eglise naissante. Avec ces sentiments, tout en renouvelant, également au nom des personnes présentes, des remerciements cordiaux aux responsables de cette soirée, ainsi qu'aux talentueux chefs des chœurs et de l'orchestre, aux musiciens et aux chanteurs, je donne à tous de tout cœur une Bénédiction apostolique particulière.
+
+© Copyright 2007 - Libreria Editrice Vaticana

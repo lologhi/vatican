@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX MEMBRES DE LA COMMISSION MIXTE POUR LE DIALOGUE THÉOLOGIQUE***
+
+***ENTRE L'ÉGLISE CATHOLIQUE ET L'ÉGLISE ASSYRIENNE D'ORIENT***
+
+*Aula Nuova du Synode*
+
+*Vendredi 24 novembre 2017*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/11/24/commissione-dialogoteologico.html)\]**
+
+* * *
+
+*Chers frères,*
+
+Je vous adresse une chaleureuse bienvenue, vous remerciant pour votre visite et pour les aimables paroles que le métropolite Meelis Zaia m’a adressées en votre nom. A travers vous, je désire faire parvenir mes salutations fraternelles dans le Seigneur à Sa Sainteté Mar Gewargis III. [Je me souviens avec joie de la rencontre](https://w2.vatican.va/content/francesco/fr/speeches/2016/november/documents/papa-francesco_20161117_patriarca-chiesa-assira.html) si cordiale et appréciée que j’ai eue avec lui il y a un an, et qui constitue un pas supplémentaire dans le parcours pour faire grandir la proximité et la communion entre nous.
+
+Notre rencontre aujourd’hui nous offre l’occasion de regarder avec gratitude le chemin parcouru par la *Commission mixte,* établie à la suite de la signature historique, ici à Rome en 1994, de la *Déclaration christologique commune*. Ayant confessé la même foi dans le mystère de l’Incarnation, la Commission a prévu deux étapes: une sur la théologie sacramentelle et une sur la constitution de l’Eglise. Je rends grâce avec vous au Seigneur pour la signature de ce jour de la *Déclaration commune* qui consacre l’heureuse conclusion de l’étape concernant la vie sacramentelle. C’est pourquoi, aujourd’hui, nous pouvons nous tourner vers l’avenir avec davantage de confiance encore et demander au Seigneur que la poursuite de vos travaux contribue à rapprocher ce jour béni et si attendu, où nous aurons la joie de célébrer au même autel la pleine communion dans l’Eglise du Christ.
+
+Je voudrais souligner un aspect de cette nouvelle *Déclaration commune*. On y fait référence au signe de la croix comme à «un symbole explicite d’unité entre toutes les célébrations sacramentelles». Certains auteurs de l’Eglise assyrienne d’Orient ont inséré le signe de croix parmi les mystères sacrés, dans la conviction que chaque célébration sacramentelle dépend précisément de la Pâque de la mort et résurrection du Seigneur. C’est une belle intuition, parce que le Crucifié ressuscité est notre salut et notre vie même: de sa croix glorieuse nous proviennent l’espérance et la paix, de là jaillit l’unité entre les mystères sacrés que nous célébrons, mais également entre nous, qui avons été baptisés dans la même mort et résurrection du Seigneur (cf. Rm 6, 4).
+
+Quand nous regardons la croix ou que nous faisons le signe de la croix, nous sommes aussi invités à nous rappeler les sacrifices offerts en union à celui de Jésus et à rester proches de ceux qui portent, aujourd’hui, une lourde croix sur leurs épaules. L’Eglise assyrienne d’Orient aussi, avec d’autres Eglises et un grand nombre de frères et sœurs de la région, souffre de persécutions et est le témoin de violences brutales, perpétrées au nom d’extrémistes fondamentalistes. Les situations de souffrance aussi tragique s’enracinent plus facilement dans des contextes de grande pauvreté, d’injustice et d’exclusion sociale, dues en grande partie à l’instabilité, fomentée également par les intérêts externes et par les conflits, qui ont provoqué récemment des situations de grandes nécessités, donnant lieu à de véritables déserts culturels et spirituels, où il devient facile de manipuler et d’inciter à la haine. A cela, s’est récemment ajouté le drame du violent tremblement de terre à la frontière entre l’Irak, terre natale de votre église, et l’Iran, où se trouvent également de longue date certaines de vos communautés, ainsi qu’en Syrie, au Liban et en Inde.
+
+Ainsi, en particulier dans les périodes de plus grandes souffrances et de privations, un grand nombre de fidèles ont dû quitter leurs terres, émigrant dans d’autres pays et renforçant la communauté de la diaspora qui doit affronter de nombreux défis. En entrant dans certaines sociétés, par exemple, on rencontre les difficultés provoquées par une intégration pas toujours facile et par une sécularisation marquée, qui peuvent être un obstacle à la protection des richesses spirituelles des traditions et au témoignage de foi lui-même.
+
+En tout cela, le signe de croix, répété régulièrement, pourra rappeler que le Seigneur de la miséricorde n’abandonne jamais ses enfants, mais qu’au contraire, il accueille leurs blessures dans les siennes. En faisant le signe de croix, nous rappelons les plaies du Christ, ces plaies que la résurrection n’a pas effacées, mais qu’elle a remplies de lumière. Ainsi, les blessures des chrétiens également, même celles ouvertes, quand elles sont traversées par la présence vivante de Jésus et de son amour, deviennent lumineuses, deviennent des signes de la lumière pascale dans un monde enveloppé de tant de ténèbres.
+
+Avec ces sentiments, à la fois implorants et pleins d’espérance, je voudrais vous inviter à continuer de marcher, confiants dans l’aide de tous nos frères et sœurs qui ont donné leur vie en suivant le Crucifié. Déjà pleinement unis dans le ciel, ceux-ci sont les précurseurs et les patrons de notre communion visible sur terre. Par leur intercession, je demande aussi au Seigneur que les chrétiens de vos terres puissent œuvrer, dans le patient travail de reconstruction après tant de dévastations, dans la paix et dans le plein respect de tous.
+
+Dans la tradition syriaque, le Christ sur la croix est représenté comme le bon Médecin et la Médecine de vie. Je lui demande de refermer entièrement nos blessures du passé et de guérir toutes les blessures qui s’ouvrent aujourd’hui dans le monde, en raison des désastres des violences et des guerres. Chers frères, poursuivons ensemble le pèlerinage de réconciliation et de paix dans lequel le Seigneur nous a introduits! En vous exprimant ma gratitude pour votre engagement, j’invoque sur vous la bénédiction du Seigneur et la protection pleine d’amour de sa Mère et notre Mère, vous demandant de vous souvenir de moi dans la prière.

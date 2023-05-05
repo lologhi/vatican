@@ -1,0 +1,19 @@
+***PAROLES DU PAPE FRANÇOIS***
+
+***AUX JEUNES DE L'ACTION CATHOLIQUE ITALIENNE***
+
+*Salle du Consistoire*
+
+*Vendredi 20 décembre 2013*
+
+*Chers enfants, bonjour !*
+
+Je vous remercie d’être venus m’apporter les vœux de Noël au nom de l’Action catholique des enfants et de toute l’Action catholique italienne, qui est représentée ici par les responsables adultes qui vous ont accompagnés. Moi aussi je vous présente tous mes vœux, ainsi qu’à vos proches, à vos amis et à toute l’Association.
+
+L’Action catholique des enfants est une belle réalité, présente et active dans presque tous les diocèses d’Italie. Je vous encourage à être toujours dans l’Église des « pierres vivantes », pour édifier l’Église, unies à Jésus. L’Action catholique sans Jésus ne sert à rien, elle devient une ONG, il y en a beaucoup, cela ne va pas. C’est autre chose être des pierres vivantes unies à Jésus !
+
+J’ai entendu que votre chemin de cette année veut vous faire découvrir Jésus comme présence amie dans notre vie. Le slogan le dit bien : « Sans Toi, ce n’est pas jouer ». Voilà, Noël est précisément la fête de la présence de Dieu qui vient parmi nous pour nous sauver. La naissance de Jésus n’est pas un conte ! C’est une histoire qui est réellement arrivée, à Bethléem, il y a deux mille ans. La foi nous fait reconnaître dans cet Enfant, né de la Vierge Marie, le véritable Fils de Dieu, qui par amour pour nous s’est fait homme.
+
+Sur le visage du petit Jésus nous contemplons la face de Dieu, qui ne se révèle pas dans la force, dans la puissance, mais dans la faiblesse et dans la fragilité d’un nouveau-né. Notre Dieu est ainsi, il s’approche de nous dans un enfant. Cet Enfant montre la fidélité et la tendresse de l’amour infini avec lequel Dieu entoure chacun de nous. C’est pourquoi nous faisons fête à Noël, en revivant la même expérience que les pasteurs de Bethléem et avec les papas et les mamans qui peinent chaque jour en affrontant de nombreux sacrifices ; avec les petits, les malades, les pauvres faisons fête, car c’est la fête de la rencontre de Dieu avec nous en Jésus.
+
+Chers enfants, Jésus vous aime, il veut être votre ami ; il veut être l’ami de tous les enfants ! Êtes-vous convaincus de cela ?... en est-il ainsi ? Il semble que vous n’en êtes pas si convaincus, non ? Vous êtes convaincus ou pas ? \[ *Les enfants répondent :* Oui !\] Bien ! Si vous en êtes convaincus vous saurez certainement transmettre la joie de cette amitié partout : à la maison, dans votre paroisse, à l’école, avec vos amis... Mais je dois poser une question aux enfants : j’ai dit : « à la maison, dans votre paroisse, à l’école, avec vos amis... ». Et avec vos ennemis, avec ceux qui ne nous aiment pas ? Qu’est-ce qu’il faut faire ? Qui sait me le dire ? Qu’est-ce qu’il faut faire ? Faire la guerre ? \[ *Un enfant :* prier pour eux !\] Voilà : prier pour eux ! Pour qu’ils soient proches de Jésus ; être bon avec eux. On doit faire cela : la proximité, rechercher la proximité. Et vous saurez le témoigner en vous comportant en véritables chrétiens : prêts à donner un coup de main à ceux qui en ont besoin. Et si celui qui ne t’aime pas a besoin de quelque chose, est-ce que tu lui donneras un coup de main ? Vous n’en êtes pas sûrs, non ? Oui ! Oui ! Sans juger les autres, sans dire du mal. Les personnes qui parlent mal des autres sont vilaines. Les commérages sont chrétiens ou pas ? Non ! Est-ce une prière que de commérer ? Commérer est comme une prière ou pas ? Non ! Commérer est une mauvaise chose. On ne doit jamais le faire. Et nous devons commencer dès à présent : ne jamais commérer ; sans dire du mal. Allons de l’avant ainsi ! Alors bonne route, toujours unis à Jésus. Je vous confie à la Vierge. Je vous bénis avec vos familles, les éducateurs, les assistants et tous les amis de l’Action catholique des enfants. Bon Noël et priez pour moi ! Et à présent, avant de recevoir la bénédiction prions la Vierge avec un « Je vous salue Marie ».

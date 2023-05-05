@@ -1,0 +1,31 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 5 octobre 2014*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_BJR7SY5A)**
+
+*Chers frères et sœurs, bonjour !*
+
+Ce matin, avec la concélébration eucharistique dans la basilique Saint-Pierre, nous avons inauguré l’assemblée générale extraordinaire du synode des évêques. Les pères synodaux, provenant de toutes les parties du monde, vivront avec moi deux semaines intenses d’écoute et de débat, fécondées par la prière, sur le thème « *Les défis pastoraux de la famille dans le contexte de l'évangélisation*».
+
+Aujourd’hui, la Parole de Dieu présente l’image de la vigne comme symbole du peuple que le Seigneur a choisi pour lui. Comme une vigne, le peuple a besoin de beaucoup de soin, il a besoin d’un amour patient et fidèle. C’est ce que Dieu fait avec nous, et c’est ce que nous sommes appelés à faire, nous pasteurs. Prendre soin de la famille est également une façon de travailler dans la vigne du Seigneur, pour qu’elle produise les fruits du Royaume de Dieu (cf. *Mt* 21, 33-43).
+
+Mais pour que la famille puisse bien cheminer, avec confiance et espérance, il faut qu’elle soit nourrie par la Parole de Dieu. C’est donc par une heureuse coïncidence que précisément aujourd’hui les frères pauliniens ont souhaité effectuer une grande distribution de la Bible, sur cette place et dans de nombreux autres lieux. Remercions nos frères pauliniens ! Ils le font à l’occasion du centenaire de leur fondation, par le bienheureux Giacomo Alberione, grand apôtre de la communication. Alors aujourd’hui, tandis que s’ouvre le synode sur la famille, avec l’aide des pauliniens, nous pouvons dire : une Bible dans chaque famille ! — Mais Père, nous en avons deux ou trois… Mais où les avez-vous cachées ?... La Bible n’est pas faite pour être mise dans une bibliothèque, mais pour être gardée à portée de main, pour être lue souvent, chaque jour, aussi bien individuellement qu’ensemble, mari et femme, parents et enfants, par exemple le soir, spécialement le dimanche. Ainsi la famille grandit, chemine, avec la lumière et la force de la Parole de Dieu !
+
+Je vous invite tous à soutenir les travaux du synode par la prière, en invoquant l’intercession maternelle de la Vierge Marie. En ce moment, nous nous associons spirituellement à tous ceux qui, dans le Sanctuaire de Pompéi, élèvent la traditionnelle « Supplique » à la Vierge du Rosaire. Qu’elle obtienne la paix aux familles et au monde entier !
+
+* * *
+
+**A l’issue de l’Angélus**
+
+*Chers frères et sœurs,*
+
+Hier aux États-Unis, sœur Miriam Teresa Demjanovich, des Sœurs de la charité de Sainte-Élisabeth, a été proclamée bienheureuse. Rendons grâce à Dieu pour cette fidèle disciple du Christ, qui a vécu une vie spirituelle intense.
+
+Aujourd’hui, en Italie, on célèbre la *Journée pour l’élimination des barrières architectoniques*. J’encourage ceux qui mettent tout en œuvre pour garantir les mêmes conditions de vie à tous, indépendamment de la condition physique de chaque individu. Je souhaite que les institutions et chaque citoyen soient toujours plus attentifs à cet objectif social important.
+
+S’il vous plaît, n’oubliez pas: priez pour le synode, priez la Vierge afin qu’elle protège cette assemblée synodale. Je souhaite un bon dimanche à tous. Priez pour moi. Bon déjeuner et au revoir !

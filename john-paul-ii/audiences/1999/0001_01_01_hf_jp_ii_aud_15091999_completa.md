@@ -1,0 +1,43 @@
+JEAN-PAUL II
+
+***AUDIENCE GÉNÉRALE***
+
+*Mercredi 15 Septembre 1999*
+
+*Chers Frères et Sœurs,*
+
+1. Le chemin vers le Père, soumis à la réflexion particulière de cette année de préparation au grand Jubilé, implique également la redécouverte du Sacrement de pénitence dans sa signification profonde de rencontre avec Lui, qui pardonne à travers le Christ dans l'Esprit (cf. *Tertio millennio adveniente*, n. 50).
+
+Il existe divers motifs pour lesquels il est  urgent  d'effectuer  une  sérieuse réflexion sur ce sacrement. C'est tout d'abord l'annonce de l'amour du Père qui le demande, comme fondement de la vie et de l'action chrétienne, dans le contexte de la société actuelle où la vision éthique de l'existence humaine est souvent cachée. Si de nombreuses personnes ont perdu la dimension du bien et du mal, c'est parce qu'elles ont égaré le sens de Dieu, en interprétant la faute seulement selon des perspectives psychologiques ou sociologiques. En second lieu, la pastorale doit donner une nouvelle impulsion à un itinéraire de croissance dans la foi qui souligne la valeur de l'esprit et de la pratique de la pénitence au cours de toute la vie chrétienne.
+
+2. Le message biblique présente cette dimension de "pénitence" comme un engagement permanent à la conversion. Faire oeuvre de pénitence suppose une transformation de la conscience, qui est fruit de la grâce divine. Dans le Nouveau Testament, en particulier, la conversion est demandée comme choix fondamental à ceux à qui l'on adresse la prédication du Royaume de Dieu:  "Repentez-vous et croyez à l'Evangile" ( *Mc* 1, 15; cf. *Mt* 4, 17). C'est avec ces paroles que Jésus commence son ministère, annonce l'accomplissement des temps et l'imminence du royaume. Le "repentez-vous" (en grec:  metanoéite) est un appel à changer sa façon de pen-ser et de se comporter.
+
+3. Cette invitation à la conversion constitue la conclusion vitale de l'annonce faite par les Apôtres après la Pentecôte. Dans celle-ci, l'objet de l'annonce est pleinement expliqué:  ce n'est plus génériquement le "royaume", mais bien l'oeuvre même de Jésus, insérée dans le plan divin prédit par les prophètes. A l'annonce de ce qui a eu lieu en Jésus-Christ mort, ressuscité et vivant dans la gloire du Père, suit l'invitation pressante à la "conversion", à laquelle est également lié le pardon des péchés. Tout cela ressort clairement du discours que Pierre prononce dans le portique  de  Salomon:   "Dieu,  Lui,  a ainsi accompli ce qu'il avait annoncé d'avance par la bouche de tous les prophètes, que son Christ souffrirait. Repentez-vous donc et convertissez-vous, afin que vos péchés soient effacés" ( *Ac* 3, 18-19).
+
+Dans l'Ancien Testament, ce pardon des péchés est promis par Dieu dans le contexte de la Nouvelle Alliance, qu'Il établira avec son peuple (cf. *Jr* 31, 31-34). Dieu écrira la loi dans le coeur. Dans cette perspective, la conversion est une nécessité pour l'alliance définitive avec Dieu et, en même temps, une attitude permanente de celui qui, accueillant les paroles de l'annonce évangélique,  commence  à  faire  partie  du Royaume de Dieu dans son dynamisme historique et eschatologique.
+
+4. Le sacrement de la Réconciliation véhicule et rend visible de façon mystérique ces valeurs fondamentales annoncées par la Parole de Dieu. Il réintroduit l'homme dans le contexte salvifique de l'alliance et l'ouvre à nouveau à la vie trinitaire, qui est un dialogue de grâce, une circulation d'amour, un don et un accueil de l'Esprit Saint.
+
+Une relecture attentive de l'Ordo Paenitentiae aidera beaucoup de personnes à approfondir, à l'occasion du Jubilé, les dimensions essentielles de ce sacrement. La maturité de la vie ecclésiale dépend en grande partie de sa redécouverte. En effet, le sacrement de la Réconciliation ne finit pas au moment liturgique et célébratif, mais conduit à vivre l'attitude de la pénitence en tant que dimension permanente de l'expérience chrétienne. C'est "s'approcher de la sainteté de Dieu, c'est retrouver sa propre vérité intérieure, troublée et même bouleversée par le péché, c'est se libérer au plus profond de soi-même, et par la suite recouvrer la joie perdue, la joie d'être sauvé, que la majorité de nos contemporains ne sait plus apprécier" ( *Reconciliatio et paenitentia*, 31, III).
+
+5. En raison des contenus doctrinaux de ce sacrement, je renvoie à l'Exhortation apostolique *Reconciliatio et paenitentia* (cf. nn. 28-34) et au *Catéchisme de l'Eglise catholique*(cf. nn. 1420-1484), ainsi qu'aux autres interventions du Magistère de l'Eglise. Je désire rappeler ici l'importance du soin pastoral nécessaire pour valoriser ce sacrement au sein du Peuple de Dieu, pour que l'annonce de la réconciliation, le chemin de conversion et la célébration même du sacrement puissent davantage toucher le coeur des hommes et des femmes de notre époque.
+
+En particulier, je désire rappeler aux pasteurs que l'on ne peut être un bon confesseur que si l'on est un pénitent authentique. Les prêtres savent qu'ils sont les dépositaires d'un pouvoir qui vient d'en haut:  en effet, le pardon qu'ils transmettent "est le signe efficace de l'intervention du Père" ( *RP*, 31, III) qui fait ressusciter de la mort spirituelle. C'est pourquoi, en vivant avec humilité et simplicité évangélique une dimension aussi essentielle de leur ministère, les confesseurs ne doivent pas négliger leur propre perfectionnement et leur formation permanente, afin que ne viennent jamais à manquer les qualités humaines qui sont si nécessaires à la relation avec les consciences.
+
+Mais c'est toute la communauté chrétienne qui doit participer avec les pasteurs au renouveau pastoral de la Réconciliation. C'est l'"ecclésialité" propre au sacrement qui l'impose. La communauté ecclésiale est le foyer qui accueille le pécheur repenti et pardonné et, plus encore, qui crée le milieu adapté à un chemin de retour au Père. Dans une communauté réconciliée et réconciliante les pécheurs peuvent retrouver la route qu'ils ont perdue et l'aide de leurs frères. Enfin, à travers la communauté chrétienne on peut redessiner un solide chemin de charité, qui rendra visible à travers des oeuvres de bien le pardon retrouvé, le mal réparé, l'espérance de pouvoir retrouver les bras miséricordieux du Père.
+
+**\\* \\* \\***
+
+*Salut en langue française*
+
+*Chers frères et soeurs,*
+
+Cette dernière année de préparation au grand Jubilé doit être l'occasion de redécouvrir le sacrement de pénitence comme chemin de rencontre avec Dieu le Père qui pardonne par le Christ et dans l'Esprit. En prêchant le Royaume de Dieu, le Christ appelle à la conversion, au changement dans la façon de penser et de se comporter. Le message biblique présente le pardon des péchés comme une invitation à la conversion. Faire des oeuvres de pénitence suppose une transformation de la conscience, fruit de la grâce divine.
+
+Le sacrement de la réconciliation réintroduit l'homme dans le cadre du salut annoncé par la nouvelle alliance, l'ouvrant à la vie trinitaire, qui est un dialogue de grâce, ainsi qu'un accueil et un don de l'Esprit Saint. Ce sacrement conduit à vivre l'attitude pénitentielle comme une dimension permanente de la vie chrétienne, un engagement sur la voie de la sainteté.
+
+Il importe donc que les prêtres et la communauté chrétienne tout entière revalorisent ce sacrement, pour que l'annonce de la réconciliation, le chemin de la conversion et la célébration même puissent toucher le coeur des hommes d'aujourd'hui.
+
+**\\* \\* \\***
+
+J'accueille avec plaisir les pèlerins francophones, en particulier le groupe de bénévoles en session de préparation pour l'accueil des pèlerins francophones du Jubilé. J'accorde à tous la Bénédiction apostolique.

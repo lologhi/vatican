@@ -1,0 +1,13 @@
+RENCONTRE CONVIVIALE AVEC LES MEMBRES DU COLLÈGE CARDINALICE
+
+***DISCOURS******DU PAPE BENOÎT XVI***
+
+*Salle Ducale*
+
+*Lundi 16 avril 2007*
+
+Chers frères et amis,
+
+en ce moment, je ne peux que remercier de tout cœur. Je remercie tout d'abord Monsieur le Doyen du Sacré Collège, autant pour les paroles qu'il m'a consacrées hier avec une exquise bienveillance, que pour ce qui est écrit dans la revue "30 Giorni", et ensuite pour la préparation si délicate et compétente de ce très beau repas, au cours duquel nous avons vécu un moment de notre collégialité affective et effective; je dirais même un moment non seulement de collégialité, mais d'authentique fraternité. Nous avons réellement fait l'expérience de combien il est beau d'être ensemble:  *"Ecce quam bonum et quam iucundum / habitare fratres in unum"* ( *Ps* 133/132, 1). Je suis reconnaissant de cette expérience de fraternité que je ressens également dans ma vie quotidienne. Même si nous ne nous voyons pas tout le temps, je ressens toujours et je constate la collaboration de ceux qui m'aident. Le Collège cardinalice offre réellement un soutien efficace et important au travail du Successeur de Pierre. Je voudrais remercier également tous les  Cardinaux  qui ont écrit tant de belles choses sur "30 Giorni", ainsi que sur le Cahier spécial d'"Avvenire" et dans d'autres publications encore. Je remercie également ceux qui n'ont pas écrit, mais qui ont pensé et prié. Le véritable don de ce jour est pour moi la prière, qui me donne la certitude que je suis accepté de l'intérieur et, surtout, aidé et soutenu dans mon ministère pétrinien; un ministère que je ne peux pas accomplir tout seul, mais seulement en communion avec tous ceux qui m'aident, également en priant, pour que le Seigneur soit avec nous tous et avec moi. Aujourd'hui, dans l'Office des Lectures, nous avons récité les paroles d'un Psaume qui possèdent un accent particulier de vérité et qui sont pour moi très précieuses:  *"In manibus tuis sortes meae"*( *Ps* 31/30, 16); dans la *Vetus latina*, le texte était:  *"In manu tua tempora mea"*; dans la traduction italienne, il est dit:  "Mes jours sont dans ta main"; dans le texte grec, on parle de *kairoí mou*. Toutes ces versions sont le reflet d'une unique vérité, c'est-à-dire que notre époque, chaque jour, les événements de notre vie, notre destin, nos actions se trouvent entre les mains bienveillantes du Seigneur. Telle est la profonde confiance avec laquelle nous allons de l'avant; sachant que ces mains du Seigneur sont soutenues par les mains et les cœurs de tant de Cardinaux. Cela est pour moi le motif de la grande joie de ce jour. Je vous remercie tous et je vous présente tous mes vœux!
+
+© Copyright 2007 - Libreria Editrice Vaticana

@@ -1,0 +1,1 @@
+**Messe en privé** dans la chapelle de la nonciature apostolique de Yaoundé.

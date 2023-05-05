@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***À L’AMBASSADEUR DU KENYA, S.E. M. BETHUEL A. KIPLAGAT\****
+
+*Vendredi 11 mai 1979*
+
+En recevant ce matin vos Lettres de créance, j'ai l'intention de manifester mon profond respect et ma vive estime pour tout le Kenya - pour sa population, pour ses traditions pour le rôle qu'il est appelé à tenir en Afrique et dans le monde. Je souhaite également vous exprimer ma gratitude pour les compliments et les bons vœux que vous me transmettez de la part de Son Excellence le Président, du Gouvernement et de la population de votre pays. Soyez assuré que j'éprouve moi-même les sentiments les plus cordiaux à leur égard.
+
+J’apprécie beaucoup les paroles que vous venez de prononcer. Vous avez souligné le fait que le Kenya considère la crainte du Dieu Tout‑Puissant comme une source de grâces pour la stabilité et la prospérité qui sont la base de l'unité que vous professez et encouragez. Ceci est conforme à la vision du Psalmiste, telle que nous la rapporte la Bible: "La crainte du Seigneur est le commencement de la sagesse» ( *Ps* 111: 10).
+
+Vous avez parlé aimablement de la contribution de l'Église au développement du Kenya. Vous avez fait état de la satisfaction qu'a éprouve votre pays en prenant connaissance du rôle du Saint-Siège en matière de paix, de dignité humaine et d'égalité. Il s'agit ici de questions-clé tant pour le Saint-Siège que pour l'Église Catholique tout entière dans l'exercice de leur mission au service de l'homme et en faveur de la cause de l’«Évangile de paix» ( *Ep*. 6, 15).
+
+En particulier, l'Église attache une grande valeur à la promotion de l'unité du genre humain, et le principe de cette unité, elle le trouve dans la paternité de Dieu et dans son amour créateur. En même temps l'Église ne cesse de se concentrer sur les exigences de cette unité qui comprennent un amour mutuel, un soutien fraternel, une collaboration solidaire, aussi bien que le refus de toute théorie ou pratique en désaccord avec cette vérité fondamentale.
+
+L'intérêt que l'Église porte à l'homme et qu'elle traduit en le servant, trouve sa racine dans l'enseignement qui, selon les paroles de [Paul VI](http://www.vatican.va/holy_father/paul_vi/index_fr.htm), «reflète pleinement la conception de l'homme lui-même créé à la ressemblance de Dieu et racheté par le Christ» ( *Discours du 22 mai 1974 adressé au Comité spécial des Nations Unies pour l'Apartheid*). Le motif en est le concept d'authentique fraternité qui "tient compte de l'origine commune, de la nature et des destinées de tous les membres de la famille humaine et de l’égalité de leurs droits fondamentaux" ( *ibidem*).
+
+Au Kenya et partout ailleurs, c’est ce critère qui guide l'Église dans ses efforts pour édifier les communautés chrétiennes, et ce sont ces principes qu'elle cherche à mettre en pratique offrant ainsi l'exemple d'un leadership chrétien. L'Église s'est irrévocablement engagée dans ce genre de service et elle est heureuse de poursuivre son activité en collaboration avec les individus et avec les nations. Aujourd'hui, en votre personne, elle fait bon accueil à la promesse d'une collaboration poursuivie avec le Kenya; et, devant le témoignage de l'histoire, elle vous donne l'assurance réitérée qu'elle tendra tous ses efforts pour resserrer l'unité du genre humain dans un climat de .justice et de vérité, de paix et d'amour.
+
+C'est animé de ces sentiments que je souhaite à Votre Excellence la bienvenue au Vatican, invoquant d'abondantes faveurs divines pour vous, pour toutes les autorités et pour la bien-aimée population du Kenya.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.21 p. 5.
+
+© Copyright 1979 - Libreria Editrice Vaticana

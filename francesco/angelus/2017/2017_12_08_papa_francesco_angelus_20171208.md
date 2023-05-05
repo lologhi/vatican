@@ -1,0 +1,39 @@
+SOLENNITÉ DE L'IMMACULÉE CONCEPTION
+
+DE LA BIENHEUREUSE VIERGE MARIE
+
+**PAPE FRANÇOIS**
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Vendredi 8 décembre 2017*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/12/8/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour et bonne fête!*
+
+Aujourd’hui, nous contemplons la beauté de Marie Immaculée. L’Evangile, qui raconte l’épisode de l’Annonciation, nous aide à comprendre ce que nous fêtons, en particulier à travers la salutation de l’ange. Il s’adresse à Marie avec une parole qui n’est pas facile à traduire, qui signifie «comblée de grâce», «créée par la grâce», «pleine de grâce» (Lc 1, 28). Avant de l’appeler Marie il l’appelle *pleine de grâce*, et révèle ainsi le nom nouveau que Dieu lui a donné et qui est plus indiqué pour elle que le nom qui lui a été donné par ses parents. Nous aussi, nous l’appelons ainsi à chaque *Je vous salue Marie*.
+
+Que veut dire «pleine de grâce»? Que Marie est pleine de la présence de Dieu. Et si elle est entièrement habitée par Dieu, il n’y pas de place en elle pour le péché. C’est quelque chose d’extraordinaire, parce que dans le monde, malheureusement, tout est contaminé par le mal. Chacun de nous, en regardant à l’intérieur de soi, voit des côtés sombres. Même les plus grands saints étaient des pécheurs et toutes les réalités, jusqu’aux plus belles, sont entachées par le mal: toutes, sauf Marie. Elle est l’unique «oasis toujours verte» de l’humanité, la seule qui ne soit pas contaminée, créée immaculée pour accueillir pleinement, par son «oui», Dieu qui venait dans le monde et commencer ainsi une histoire nouvelle.
+
+Chaque fois que nous la reconnaissons *pleine de grâce*, nous lui faisons le plus grand compliment qui soit, comme l’a fait Dieu. Un beau compliment à faire à une dame est de lui dire, avec courtoisie, qu’elle a l’air jeune. Quand nous disons à Marie *pleine de grâce*, en un certain sens, nous lui disons aussi cela, à un niveau plus élevé. En effet, nous la reconnaissons toujours jeune, parce que jamais vieillie par le péché. Il n’y a qu’une chose qui fasse vraiment vieillir, vieillir intérieurement: non pas l’âge, mais le péché. Le péché nous vieillit parce qu’il *sclérose le cœur*. Il le ferme, le rend inerte, le fait se faner. Mais la *pleine de grâce* est vide du péché. Alors, elle est toujours jeune, elle est «plus jeune que le péché», elle est «la plus jeune du genre humain» (G. Bernanos, *Journal d’un curé de campagne*, ii, 1988, p. 175).
+
+Aujourd’hui, l’Eglise félicite Marie en l’appelant la toute belle, *tota pulchra*. De même que sa jeunesse n’est pas une question d’âge, ainsi, sa beauté ne consiste pas dans son aspect extérieur. Marie, comme le montre l’Evangile d’aujourd’hui, n’excelle pas en apparence: d’une famille simple, elle vivait humblement à Nazareth, un petit village presque inconnu. Et elle n’était pas connue: même quand l’ange l’a visitée, personne ne l’a su, ce jour-là, il n’y avait pas de *reporter*. La Vierge Marie n’a pas eu non plus une vie aisée, mais des préoccupations et des craintes: elle fut «toute troublée» (v. 29), dit l’Evangile, et quand l’ange «la quitta» (v. 38), les problèmes ont commencé à se multiplier.
+
+Pourtant, la «pleine de grâce» a vécu une *belle vie*. Quel était son secret? Nous pouvons le comprendre en regardant encore la scène de l’Annonciation. Dans de nombreuses peintures, Marie est représentée assise devant l’ange avec un petit livre à la main. Ce livre est l’Ecriture. Ainsi, Marie avait l’habitude d’écouter Dieu et de s’entretenir avec lui. La Parole de Dieu était son secret: proche de son cœur, elle a ensuite pris chair en son sein. En restant avec Dieu, en dialoguant avec Lui en toutes circonstances, Marie a embelli sa vie. Ce n’est pas l’apparence, ce n’est pas ce qui passe, mais d’avoir le cœur tourné vers Dieu qui rend la vie belle. Aujourd’hui, regardons avec joie la *pleine de grâce*. Demandons-lui de nous aider à rester jeunes en disant *«non» au péché*, et à vivre une belle vie, en disant *«oui» à Dieu*.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs, je vous salue tous avec affection, pèlerins présents aujourd’hui, en particulier les familles et les groupes paroissiaux.
+
+En cette fête de Marie Immaculée, l’Action catholique italienne vit le renouvellement de l’adhésion. J’adresse ma pensée à ses associations diocésaines et paroissiales, en encourageant chacun à renforcer son engagement à la formation pour être un témoin crédible de l’Evangile. Que la Vierge bénisse l’Action catholique et rende féconde sa résolution à servir la mission évangélisatrice de l’Eglise.
+
+Cet après-midi, je me rendrai place d’Espagne, pour renouveler le traditionnel acte d’hommage et de prière au pied du monument dédié à l’Immaculée. Je vous demande de vous unir spirituellement à moi dans ce geste, qui exprime la dévotion filiale à notre Mère du ciel. Tous ensemble, en esprit, devant la Vierge Marie.
+
+Je souhaite à tous une bonne fête et un bon chemin de l’Avent. S’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

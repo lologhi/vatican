@@ -1,0 +1,37 @@
+***ADDRESS OF THE HOLY FATHER***
+
+***POPE JOHN PAUL II***
+
+***TO H.E. MR ADNAN BAHJAT AL TALHOUNI***
+
+***NEW AMBASSADOR OF THE HASHEMITE KINGDOM OF JORDAN***
+
+***TO THE HOLY SEE\****
+
+*28 May 1998*
+
+Monsieur l’Am bassadeur,
+
+1\. Je suis heureux de vous accueillir aujourd’hui et d’accepter les Lettres par lesquelles Sa Majesté le Roi Hussein Bin Talal vous nomme Ambassadeur extraordinaire et plénipotentiaire du Royaume hachémite de Jordanie près le Saint-Siège. Depuis l’établissement des relations diplomatiques, vous êtes le troisième d’une lignée distinguée d’Ambassadeurs à œuvrer de façon efficace pour renforcer les liens qui nous unissent. Je vous présente mes meilleurs vœux pour le succès de votre mission. Je vous remercie pour les salutations que vous me présentez de la part du Roi Hussein et je vous demande de lui transmettre les miennes en retour et de l’assurer de mes prières pour la paix et la prospérité de la nation.
+
+La paix et la prospérité de la Jordanie sont liées de façon inévitable à la situation dans tout le Moyen-Orient. Au cours des dernières années est apparu l’espoir que des négociations pourraient conduire à une solution pacifique des nombreux problèmes de la région. Mais ces espoirs n’ont pas encore été comblés. En effet, en ce moment présent, la perspective de pouvoir les réaliser un jour semble même s’être éloignée.
+
+2\. Il est certain qu’il ne pourra y avoir de paix s’il n’existe pas la volonté de poursuivre sur la voie du dialogue et de la compréhension, qui seules peuvent conduire à la paix. Lorsque cette détermination n’est pas présente de part et d’autre, la frustration et la colère prennent le pas, et conduisent à la violence. Je rends hommage à votre pays et à Sa Majesté le Roi, car la Jordanie a démontré une ferme volonté à poursuivre sur la voie du dialogue et de la com­préhension et à œuvrer avec patience et courage pour la paix. Les négociations les plus récentes démontrent que face à la perspective d’un échec du processus de paix, qui se révélerait certainement désastreux pour tous, il existe encore une ferme détermination de trouver des solutions non-violentes. Je forme le vœu fervent que prévale la voix de la raison. Je répète une fois de plus qu’il n’existe qu’une voie qui peut être empruntée — celle du respect, de la justice et de la coopération. L’histoire a prouvé à plusieurs reprises que le rejet du dialogue en faveur de l’agression est une décision qui engendre encore plus de problèmes qu’elle n’en résout; ce n'est donc pas une solution raisonnable. La seule option raisonnable, au Moyen-Orient comme ailleurs, demeure celle du dialogue et de la compréhension.
+
+Dans la situation actuelle, complexe et difficile, l’Église cherche à apporter sa contribution spécifique, non pas en faveur de tel ou tel peuple, mais en faveur de la paix, et donc en faveur de tous les peuples de cette région. En cela, l’Église est motivée non par des intérêts personnels égoïstes et institutionnels, ni même par le calcul politique, mais par un profond respect pour tous les peuples du Moyen-Orient et par le devoir solennel qu’impose l’Évangile. C’est l’Évangile, plutôt que toute autre idéologie, qui permet à l’Église de voir la vérité sur la personne humaine et la société humaine, une vérité souvent voilée lorsque les pressions sont si fortes et les difficultés si décourageantes. Dans une telle situation, l’Église s’efforce de prononcer des paroles de vérité sur la personne humaine et sur la société humaine, car sans cette vérité, tout accord susceptible d’être négocié se révélerait illusoire. Il lui manquerait le seul fondement certain sur lequel une paix juste et durable peut être fondée.
+
+3\. L’Église est inspirée par une vision morale, née de la foi, il est vrai, mais allant au-delà du cercle de foi chrétienne devant être partagé par tous les peuples engagés en vue du bien commun. Il s’agit d’une vision morale que les juifs, les chrétiens et les musulmans peuvent partager, car tous trois sont issus d’une tradition de monothéisme éthique. Nous sommes tous fils d’une tradition religieuse qui insiste sur le fait que l’homme ne peut rendre un culte au Dieu véritable sans respecter les impératifs moraux qui ont leur racine en Dieu. Une telle vision considère qu’un processus de paix qui ignore la justice tombera tôt ou tard dans le pragmatisme aveugle, la recherche de l’intérêt privé, ou l’opportunisme.
+
+En effet, il ne peut y avoir de justice sans paix. Tous les peuples du Moyen-Orient ont subi un tort d’une façon ou d’une autre, et tous ont des droits inaliénables. La justice exige que les torts soient réparés et que les droits soient respectés. Mais il n’y aura pas non plus de justice sans vérité. Saisir la relation nécessaire entre la paix, la justice et la vérité, c’est comprendre la structure morale de la paix. C’est cela que tout processus de paix doit respecter pardessus tout; et c’est à ce stade que l’Église s’engage à coopérer par tous les moyens possibles.
+
+4\. L’histoire du Moyen-Orient montre comment la religion, lorsqu’elle est liée à l’idéologie, peut diviser et même conduire au conflit violent. Mais il est tout aussi clair que lorsque l’on permet à la religion d’être ce qu’elle doit être véritablement, alors, elle peut unir, en faisant en sorte que les croyants marchent côte à côte dans la confiance et le respect mutuels. A travers sa Constitution éclairée et les initiatives en faveur du dialogue interreligieux prises par Sa Majesté le Roi et par le Prince héritier Hassan, le Royaume de Jordanie a montré qu’un tel chemin est possible. Je souhaite que les chrétiens dans votre pays continuent à participer à tous les secteurs de la vie sociale et aux institutions publiques. Mais également au-delà des frontières de la Jordanie, il est maintenant vital que les juifs, les chrétiens et les musulmans trouvent un chemin commun qui puisse conduire à un renforcement du respect, de la compréhension et de la coopération mutuels.
+
+5\. En méditant sur la paix, mes pensées se tournent inévitablement vers la Ville Sainte, si souvent détruite et pourtant toujours reconstruite, avec ses pierres, symbole de la désolation humaine et de la puissance de l’espérance humaine. L’histoire longue et troublée de Jérusalem atteindra un nouveau seuil en l’An 2000, à l’approche du troisième millénaire chrétien. Je souhaite avec ferveur que cet événement puisse encourager la reconnaissance officielle, accompagnée des garanties internationales, du caractère unique et sacré de la Ville Sainte. En effet, nous appartenons nous-mêmes à Jérusalem, puisque nous sommes tous ses fils; et si cela est vrai, alors la Ville devrait devenir un lieu où tous les peuples du monde peuvent se rencontrer dans la paix. La Ville Sainte a toujours occupé une place importante dans l’histoire de la Jordanie et dans le cœur des Jordaniens.
+
+Monsieur l’Ambassadeur, je suis sincèrement convaincu que les liens d’amitié et de compréhension qui existent entre le Royaume de Jordanie et le Saint-Siège seront renforcés par votre service à Rome, afin que nous puissions collaborer toujours plus efficacement à la recherche de la paix. Je vous assure de l’assistance des différents bureaux et agences du Saint-Siège dans l’accomplissement de vos fonctions. Sur vous, sur votre famille et sur votre bien-aimé pays, j’invoque une abondance de Bénédictions de Dieu tout-puissant.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.30 pp.3, 6.
+
+© Copyright 1998 - Libreria Editrice Vaticana

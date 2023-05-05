@@ -1,0 +1,23 @@
+***DISCOURS DU PAPE BENOÎT XVI******À******S.E. M. SURESH PRASAD PRADHAN,*********NOUVEL AMBASSADEUR DU NÉPAL PRÈS LE SAINT-SIÈGE******
+
+*Salle Clémentine*
+
+*Jeudi 16 décembre* *2010*
+
+*Monsieur l’ambassadeur,*
+
+En vous souhaitant la bienvenue au Vatican et en acceptant les Lettres qui vous accréditent comme ambassadeur de la République démocratique fédérale du Népal près le Saint-Siège, je désire exprimer ma satisfaction pour les relations cordiales que nous entretenons. Je vous suis reconnaissant de me transmettre les salutations courtoises de votre président, M. Ram Baran Yadav, et je vous prie de bien vouloir lui transmettre en retour mes meilleurs vœux, ainsi qu’à tout le peuple de la République démocratique fédérale.
+
+Au cours des dernières années, de nombreux changements ont eu lieu dans votre pays et les responsables du Népal ont cherché à tracer une nouvelle route politique pour le bien de son peuple. A cet égard, parmi les devoirs les plus importants figure la rédaction d’une nouvelle Constitution. Assurer les garanties juridiques des droits civils et politiques, et garantir ceux de nature économique, sociale et culturelle, représente assurément l’une des mesures les plus délicates et exigeantes de la vie politique d’une nation. Pour cette raison, le Saint-Siège espère que lorsque les difficultés actuelles seront surmontées, l’Assemblée constituante sera en mesure de mener à terme son travail et de contribuer de cette façon à assurer un avenir stable, harmonieux et prospère.
+
+Le Saint-Siège note avec satisfaction l’engagement exprimé à l’égard des idéaux et des principes démocratiques contenus dans les dispositions politiques *ad interim* actuellement en vigueur dans votre pays. Celles-ci incluent le désir de promouvoir une démocratie pluripartite compétitive, les libertés civiles et les droits humains fondamentaux, le droit de vote aux adultes, les élections régulières, la liberté de la presse, une autorité juridique indépendante et l’Etat de droit. Chacun est conscient qu’il reste encore beaucoup à faire pour consolider ces bonnes intentions, mais l’expression publique d’un tel engagement de la part des responsables du Népal promet déjà beaucoup.
+
+Comme vous le savez, Excellence, sur les plus d’un million de chrétiens dans votre pays, l’Eglise catholique ne compte que très peu de fidèles et pourtant, à travers ses institutions, elle s’est efforcée d’apporter une contribution significative au bien-être de tous les citoyens. L’institution caritative de l’Eglise, la *Caritas,* dirige plusieurs projets dans les régions les plus pauvres et s’occupe des réfugiés. Poussée par l’amour de Jésus Christ (cf. 2 *Co* 5, 14-15), l’Eglise est toujours prête et désireuse de faire tout ce qu’elle peut pour aider les personnes en détresse, quelles que soient leur race, leur couleur ou leur croyance.
+
+Si les premiers contacts de l’Eglise catholique avec le Népal remontent aux XVIIe et XVIIIe siècles, au cours des soixante-dix dernières années, celle-ci a été particulièrement active au service des personnes à travers ses hôpitaux, ses organismes d’assistance et ses écoles. Je suis heureux de noter la liberté avec laquelle ces institutions importantes accomplissent leur œuvre et le respect dont elles font l’objet. Il faut espérer que votre gouvernement continuera de soutenir la présence de l’Eglise dans les domaines de l’éducation et de la santé et garantira que les droits humains en général et la liberté religieuse en particulier sont pleinement respectés.
+
+En contraste avec la longue tradition de tolérance du peuple népalais, certains incidents regrettables de violence contre la vie des catholiques ont eu lieu au cours des dernières années, ainsi que des dommages perpétrés contre les propriétés de l’Eglise. Permettez-moi d’exprimer l’espérance qu’un esprit de tolérance prévaudra, et que la coopération pour le bien général et la réconciliation à travers le dialogue sera renforcée et continuera de caractériser les relations fraternelles entre les catholiques népalais et leurs concitoyens d’autres religions.
+
+Enfin, Monsieur l’ambassadeur, je suis certain que les relations cordiales qui existent déjà entre le Saint-Siège et le Népal contribueront dans une large mesure à promouvoir cette fraternité, ce respect et ce dialogue. En vous offrant mes meilleurs vœux au début de votre mission comme ambassadeur près le Saint-Siège, je vous assure de l’assistance de la Curie romaine dans l’exercice de vos hautes fonctions. Sur vous et sur tout le peuple népalais, j’invoque une abondance de Bénédictions divines.
+
+© Copyright 2010 - Libreria Editrice Vaticana

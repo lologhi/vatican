@@ -1,0 +1,43 @@
+.
+
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 28 août  2016*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/8/28/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+L’épisode de l’Évangile d’aujourd’hui nous montre Jésus dans la maison d’un des chefs des pharisiens, observant la façon dont les invités au déjeuner se donnent du mal pour choisir les premières places. C’est une scène que nous avons vue tant de fois: chercher la meilleure place, même « en jouant des coudes ». En voyant cette scène, il raconte deux brèves paraboles avec lesquelles il offre deux indications: l’une concerne la place, l’autre concerne la récompense.
+
+La première similitude se déroule lors d’un banquet nuptial. Jésus dit : « Lorsque quelqu’un t’invite à un repas de noces, ne va pas t’étendre sur le premier divan, de peur qu’un plus digne que toi n’ait été invité par ton hôte, et que celui qui vous a invités, toi et lui, ne vienne te dire : “Cède-lui la place”... Au contraire, lorsque tu es invité, va te mettre à la dernière place  » ( Lc 14, 8-9 ). Avec cette recommandation, Jésus n’entend pas donner des règles de comportement social, mais une leçon sur la valeur de l’humilité. L’histoire enseigne que l’orgueil, l’arrivisme, la vanité, l’ostentation sont la cause de nombreux maux. Et Jésus nous fait comprendre la nécessité de choisir la dernière place, c’est-à-dire de chercher à rester petit et caché : l’humilité. Quand nous nous plaçons devant Dieu dans cette dimension d’humilité, alors Dieu nous exalte, se penche vers nous pour nous élever à lui ; « Car quiconque s’élève sera abaissé, et celui qui s’abaisse sera élevé » (v. 11).
+
+Les paroles de Jésus soulignent des attitudes totalement différentes et opposées : l’attitude de celui qui choisit la première place et l’attitude de celui qui se la laisse attribuer par Dieu et attend de Lui la récompense. N’oublions pas : Dieu paie beaucoup plus que les hommes! Il nous donne une place beaucoup plus belle que celle que nous donnent les hommes! La place que nous donne Dieu est proche de son cœur et sa récompense est la vie éternelle. « Heureux seras-tu — dit Jésus —... cela te sera rendu lors de la résurrection des justes » (v. 14).
+
+C’est ce qui est décrit dans la deuxième parabole, dans laquelle Jésus indique l’attitude de désintéressement qui doit caractériser l’hospitalité et dit ceci : « Lorsque tu donnes un festin, invite des pauvres, des estropiés, des boiteux, des aveugles ; heureux seras-tu alors de ce qu’ils n’ont pas de quoi te le rendre ! » (vv. 13-14). Il s’agit de choisir la gratuité au lieu du calcul opportuniste qui cherche à obtenir une récompense, qui cherche l’intérêt et qui cherche à s’enrichir davantage. En effet, les pauvres, les simples, ceux qui ne comptent pas, ne pourront jamais rendre une invitation à manger. Ainsi, Jésus montre sa préférence pour les pauvres et les exclus, qui sont les privilégiés du Royaume de Dieu, et lance le message fondamental de l’Évangile qui est de servir son prochain par amour pour Dieu. Aujourd’hui, Jésus se fait la voix de celui qui n’a pas de voix et adresse à chacun de nous un appel implorant à ouvrir notre cœur et à faire nôtres les souffrances et les angoisses des pauvres, de ceux qui ont faim, des exclus, des réfugiés, des vaincus par la vie, de ceux qui sont écartés par la société et par les abus des plus forts. Et ces personnes rejetées représentent en réalité la très grande majorité de la population.
+
+En ce moment, je pense avec gratitude aux cantines des pauvres, où tant de volontaires offrent leur service, en donnant à manger à des personnes seules, défavorisées, sans travail ou sans domicile fixe. Ces cantines et d’autres œuvres de miséricorde — comme visiter les malades, les prisonniers... — sont des ateliers de charité qui diffusent la culture de la gratuité, parce que ceux qui y prêtent service sont animés par l’amour de Dieu et éclairés par la sagesse de l’Évangile. Ainsi, le service à leurs frères devient un témoignage d’amour, qui rend l’amour du Christ crédible et visible.
+
+Demandons à la Vierge Marie de nous conduire chaque jour sur le chemin de l’humilité, Elle qui a été humble toute sa vie, et de nous rendre capables de gestes gratuits d’accueil et de solidarité envers les exclus, pour devenir dignes de la récompense divine.
+
+* * *
+
+**À l’issue de l’Angélus**
+
+*Chers frères et sœurs,*
+
+Je désire renouveler ma proximité spirituelle aux habitants du Latium, des Marches et d’Ombrie, durement touchés par le tremblement de terre de ces jours-ci. Je pense en particulier aux habitants d’Amatrice, d’Accumoli, d’Arquata et de Pescara del Tronto, de Norcia. Encore une fois, je dis à ces chères populations que l’Église partage leur souffrance et leurs préoccupations. Nous prions pour les défunts et pour les survivants. La sollicitude avec laquelle œuvrent les autorités, les forces de l’ordre, la protection civile et les bénévoles, démontre combien la solidarité est importante pour surmonter des épreuves aussi douloureuses. Chers frères et sœurs, j’espère moi aussi venir vous rendre visite dès que possible, pour vous apporter en personne le réconfort de la foi, l’étreinte du père et du frère, et le soutien de l’espérance chrétienne. Prions tous ensemble pour nos frères et sœurs.
+
+\[ *Je vous salue Marie...*\]
+
+Hier, à Santiago del Estero, en Argentine, a été proclamée bienheureuse sœur Maria Antonia de San José; le peuple l’appelle Mama Antula. Que son témoignage chrétien exemplaire, en particulier son apostolat dans la promotion des Exercices spirituels, puissent susciter le désir d’adhérer toujours plus au Christ et à l’Évangile.
+
+Jeudi prochain, 1er septembre, nous célébrerons la Journée mondiale de prière pour la protection de la création, avec nos frères orthodoxes et d’autres Églises: ce sera l’occasion de renforcer notre engagement commun en vue de sauvegarder la vie, en respectant l’environnement et la nature.
+
+Je souhaite à tous un bon dimanche et, s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

@@ -1,0 +1,45 @@
+***MESSAGE DU PAPE BENOÎT XVI***
+
+***AU DIRECTEUR GÉNÉRAL DE L’ORGANISATION***
+
+***DES NATIONS UNIES POUR L’ALIMENTATION***
+
+***ET L’AGRICULTURE (FAO) À L'OCCASION***
+
+***DE LA JOURNÉE MONDIALE DE L'ALIMENTATION 2008***
+
+*À Son Excellence*
+
+*Monsieur Jacques Diouf*
+
+*Directeur général*
+
+*de l’Organisation des Nations Unies pour l’Alimentation et l’Agriculture (FAO)*
+
+Le thème choisi cette année pour la Journée mondiale de l’Alimentation : *« La sécurité alimentaire mondiale : les défis du changement climatique et des bioénergies »* permet de réfléchir sur ce qui est réalisé dans la lutte contre la faim et sur les obstacles à l’action de l’Organisation des Nations Unies pour l’Alimentation et l’Agriculture (FAO) face aux nouveaux défis qui menacent la vie de la famille humaine.
+
+Cette Journée se célèbre à un moment particulièrement difficile pour la situation nutritionnelle mondiale, alors que la disponibilité d’aliments semble insuffisante par rapport à la consommation et que les conditions climatiques contribuent à mettre en péril la survivance de millions d’hommes, de femmes et d’enfants, contraints à abandonner leur terre pour rechercher de quoi se nourrir. Ces circonstances impliquent qu’avec la FAO tous puissent répondre en termes de solidarité, par des actions libres de tout conditionnement et réellement au service du bien commun.
+
+En juin dernier, la *Conférence de haut niveau* a été l’occasion pour la FAO de rappeler à la Communauté internationale ses responsabilités directes face à l’insécurité alimentaire alors que les formes d’aide de base pour les situations d’urgence risquent de se voir limiter. Dans le message que j’avais adressé aux participants, j’avais alors indiqué la nécessité d’adopter des « mesures courageuses, qui ne capitulent pas face à la faim et à la malnutrition, comme s’il s’agissait simplement de phénomènes endémiques et sans solution » *( [Message à la Conférence de haut niveau sur la sécurité alimentaire mondiale, 2 juin 2008](/content/benedict-xvi/fr/messages/pont-messages/2008/documents/hf_ben-xvi_mes_20080602_fao.html)).*
+
+Le premier engagement est celui d’éliminer les raisons qui empêchent un respect authentique de la dignité de la personne. Les moyens et les ressources dont le monde dispose aujourd’hui peuvent procurer une nourriture suffisante pour satisfaire les nécessités croissantes de tous. Les premiers résultats des efforts pour augmenter les niveaux globaux de production face à la carence enregistrée dans les récoltes récentes le montrent. Alors, pourquoi n’est-il pas possible d’éviter que tant de personnes souffrent de la faim jusqu’aux conséquences les plus extrêmes?
+
+Les motifs de cette situation dans laquelle souvent coexistent abondance et pénurie sont nombreux. On peut ainsi nommer la course à la consommation qui ne s’arrête pas malgré une disponibilité plus faible d’aliments et qui impose des réductions forcées à la capacité nutritionnelle des régions les plus pauvres de la planète, ou le manque de volonté résolue pour conclure des négociations et pour freiner les égoïsmes d’États et de groupes de pays, ou encore pour mettre fin à cette « spéculation effrénée » qui touche les mécanismes des prix et des consommations. L’absence d’administration correcte des ressources alimentaires causée par la corruption dans la vie publique ou les investissements croissants vers des armes et des technologies militaires sophistiquées au détriment des nécessités primaires des personnes jouent aussi un grand rôle.
+
+Ces motifs très divers trouvent une origine dans un faux sens des valeurs sur lesquelles devraient se baser les relations internationales, et en particulier dans cette attitude diffuse dans la culture contemporaine qui privilégie seulement la course aux biens matériels, oubliant la véritable nature de la personne humaine et ses aspirations les plus profondes. Le résultat est, malheureusement, l’incapacité de beaucoup de prendre en charge les besoins des pauvres, de les comprendre et de nier leur dignité inaliénable.
+
+Une campagne efficace contre la faim demande donc beaucoup plus qu’une simple étude scientifique pour faire face aux changements climatiques ou pour destiner en premier lieu la production agricole à l’usage alimentaire. Il est nécessaire, avant tout, de redécouvrir le sens de la personne humaine, dans sa dimension individuelle et communautaire, depuis le fondement de la vie familiale, source d’amour et d’affection dont provient le sens de la solidarité et du partage. Ce cadre répond à la nécessité de construire des relations entre les peuples basées sur une constante et authentique disponibilité, de rendre chaque pays capable de satisfaire les nécessités des personnes dans le besoin, mais aussi de transmettre l’idée de relations fondées sur l’échange de connaissances réciproques, de valeurs, d’assistance rapide et de respect.
+
+Il s’agit là d’un engagement pour la promotion d’une justice sociale effective dans les relations entre les peuples, qui demande à chacun d’être conscient que les biens de la Création sont destinés à tous et que dans la communauté mondiale la vie économique devrait être orientée vers le partage de ces biens, vers leur usage durable et la juste répartition des bénéfices qui en découlent.
+
+Dans le contexte changeant des relations internationales, où semblent s’accroître les incertitudes et s’entrevoir de nouveaux défis, l’expérience jusqu’ici acquise par la FAO – avec celle des autres Institutions qui opèrent dans la lutte contre la faim – peut jouer un rôle fondamental pour promouvoir une façon renouvelée d’entendre la coopération internationale. Une condition essentielle pour augmenter les niveaux de production, pour garantir l’identité des communautés indigènes, et aussi la paix et la sécurité dans le monde, est de garantir l’accès à la terre, favorisant ainsi les travailleurs agricoles et promouvant leurs droits.
+
+Dans tous ces efforts, l’Église catholique vous est proche, comme en témoigne l’attention avec laquelle le Saint-Siège suit l’activité de la FAO depuis 1948, soutenant constamment vos efforts, pour que puisse se poursuivre l’engagement pour la cause de l’homme. Ceci signifie concrètement l’ouverture à la vie, le respect de l’ordre de la Création et l’adhésion aux principes éthiques qui sont depuis toujours à la base du vivre social.
+
+Avec ces souhaits j’invoque la Bénédiction du Très-Haut sur vous, Monsieur le Directeur général, ainsi que sur tous les représentants des Nations, pour que vous puissiez travailler avec générosité et sens de la justice envers les personnes les plus délaissées.
+
+*Du Vatican, le 13 octobre 2008.*
+
+**BENOÎT XVI**
+
+© Copyright 2008 - Libreria Editrice Vaticana

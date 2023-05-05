@@ -1,0 +1,35 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 9 septembre 2018*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/9/9/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+L’Evangile de ce dimanche (cf. Mc 7, 31-37) rapporte l’épisode de la guérison miraculeuse d’un sourd-muet, accomplie par Jésus. On lui amena un sourd-muet, en le priant de lui imposer les mains. Jésus, en revanche, accomplit sur lui différents gestes: avant tout il l’emmena à l’écart, loin de la foule. A cette occasion, comme dans d’autres, Jésus agit toujours avec discrétion. Il ne veut pas faire sensation auprès des gens, il n’est pas à la recherche de la popularité ou du succès, mais il désire seulement faire du bien aux personnes. A travers cette attitude, Il nous enseigne que le *bien doit être réalisé sans bruit*, sans ostentation, sans «cors ni trompettes». Il doit être réalisé en silence.
+
+Quant il se trouva à l’écart, Jésus plaça ses doigts dans les oreilles du sourd-muet, et, avec sa salive, lui toucha la langue. Ce geste renvoie à l’Incarnation. Le Fils de Dieu est un homme inséré dans la réalité humaine: il s’est fait homme, c’est pourquoi il peut comprendre la condition pénible d’un autre homme et intervient avec un geste dans lequel est impliquée son humanité. En même temps, Jésus veut faire comprendre que le miracle advient en raison de son union avec le Père: pour cela, il leva le regard au ciel. Puis il émit un soupir et prononça la parole décisive: «Effatà!», qui signifie: «Ouvre-toi!. Et aussitôt l’homme fut guéri: ses yeux s’ouvrirent, sa langue se délia. La guérison fut pour lui une «ouverture» aux autres et au monde.
+
+Ce récit de l’Evangile souligne l’exigence d’ *une double guérison*. D’abord, la guérison de la maladie et de la souffrance physique, pour restituer la santé du corps; même si cette finalité ne peut pas être complètement atteinte dans l’horizon terrestre, malgré les nombreux efforts de la science et de la médecine. Mais il y a une seconde guérison, peut-être plus difficile, et c’est la guérison de la peur. La guérison de la peur qui nous pousse à marginaliser le malade, à marginaliser le souffrant, le porteur de handicap. Et il existe de nombreuses façons de marginaliser, même avec une pseudo-pitié ou en éliminant le problème; on reste sourd et muet face aux douleurs des personnes marquées par les maladies, les angoisses et les difficultés. Trop souvent le malade et le souffrant deviennent un problème, alors qu’ils devraient être l’occasion de manifester la sollicitude et la solidarité d’une société à l’égard des plus faibles.
+
+Jésus nous a révélé le secret d’un miracle que nous pouvons répéter nous aussi, en devenant protagonistes de l’«Effatà», de ce mot, «Ouvre-toi» par lequel il a redonné la parole et l’ouïe au sourd-muet. Il s’agit de nous ouvrir aux nécessités de nos frères et sœurs souffrants et ayant besoin d’aide, en refusant l’égoïsme et la fermeture du cœur. C’est précisément le cœur, c’est-à-dire le noyau profond de la personne, que Jésus est venu «ouvrir», libérer, pour nous rendre capables de vivre pleinement la relation avec Dieu et avec les autres. Il s’est fait homme afin que l’homme, rendu intérieurement sourd et muet par le péché, puisse écouter la voix de Dieu, la voix de l’Amour qui parle à son cœur, et apprenne ainsi à parler à son tour le langage de l’amour, en le traduisant en gestes de générosité et de don de soi.
+
+Que Marie, Celle qui s’est totalement «ouverte» à l’amour du Seigneur, nous obtienne de faire l’expérience chaque jour, dans la foi, du miracle de l’«Effatà», pour vivre en communion avec Dieu et avec nos frères.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs, hier, à Lorette, au sanctuaire pontifical de la Sainte Maison, a été célébrée la fête de la Nativité de Marie et a été lancée une proposition de spiritualité pour les familles: la Maison de Marie Maison de chaque famille. Confions à la Sainte Vierge les initiatives du sanctuaire et ceux qui, à divers titres, y prendront part.
+
+Aujourd’hui, à Strasbourg, est célébrée la béatification d’Alphonse Marie Eppinger, fondatrice des sœurs du Très Saint Sauveur. Rendons grâce à Dieu pour cette femme courageuse et sage qui, en souffrant, en se taisant et en priant, témoigna de l’amour de Dieu surtout à ceux qui étaient malades dans leur corps et dans leur esprit. Un applaudissement pour la nouvelle bienheureuse, tous ensemble!
+
+Je vous salue tous avec affection, romains et pèlerins provenant de divers pays: les familles, les groupes paroissiaux, les associations.
+
+Je souhaite à tous un bon dimanche. Et s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

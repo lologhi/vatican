@@ -1,0 +1,37 @@
+***DISCOURS DU SAINT-PÈRE JEAN-PAUL II***
+
+***À NEUF NOUVEAUX AMBASSADEURS À L'OCCASION***
+
+***DE LA PRÉSENTATION DES LETTRES DE CRÉAN*** ***CE\****
+
+*Salle Clémentine - Jeudi 24 avril 1997*
+
+*Messieurs les Ambassadeurs,*
+
+1\. C'est avec plaisir que je reçois des mains de Vos Excellences les Lettres qui Les accréditent auprès du Saint-Siège comme Ambassadeurs extraordinaires et plénipotentiaires de leurs nations respectives. Au début de votre nouvelle mission, je forme pour vous des vœux cordiaux et je vous souhaite la bienvenue à Rome, dans cette ville où une civilisation antique a laissé son empreinte, non seulement dans les pierres, mais aussi dans la culture et dans l'expression des valeurs morales et spirituelles que les hommes ont vécues au cours des temps.
+
+2\. Mon récent [voyage à Sarajevo](http://www.vatican.va/holy_father/john_paul_ii/travels/sub_index1997/trav_sarajevo-1997_fr.htm) m'invite à lancer à nouveau, par votre intermédiaire, un vibrant appel en faveur de la paix entre les communautés humaines à l'intérieur de chaque pays et entre les nations. Vous savez le prix que l'Église attache à la bonne entente entre les peuples, pour permettre à chacun de vivre dans la sérénité et pour édifier ensemble la cité terrestre. Les phénomènes de mondialisation qui se développent sont parfois à l'origine de tensions sociales. Cependant, ils peuvent être une source de dynamisme pour les pays et pour les échanges amicaux des hommes. Cela suppose que soient sans cesse approfondies les règles de la vie internationale, en s'inspirant des principes éthiques.
+
+Il convient tout d'abord de rappeler *la place première de l'homme*, fait pour vivre en société, mais qui ne peut être réduit à cette dimension communautaire de son existence. En raison de ses prérogatives et de ses fonctions, l'État est le premier garant des libertés et des droits de la personne humaine, c'est-à-dire du respect de toute personne, en vertu de sa dignité propre; en effet, parce qu'il est un être spirituel, l'homme est la valeur fondamentale et compte plus que toutes les structures sociales auxquelles il participe. « Toute menace contre les droits de l'homme, que ce soit dans le cadre de ses biens spirituels ou dans celui de ses biens matériels, fait violence à cette dimension fondamentale » (Ioannis Pauli PP. II *[Oratio ad Educativam, Scientificam et Culturalem Nationum Unitarum Institutionem (UNESCO) Lutetiae Parisiorum habita](http://www.vatican.va/holy_father/john_paul_ii/speeches/1980/june/documents/hf_jp-ii_spe_19800602_unesco_fr.html)* [, 4, die 2 iun. 1980](http://www.vatican.va/holy_father/john_paul_ii/speeches/1980/june/documents/hf_jp-ii_spe_19800602_unesco_fr.html): *Insegnamenti di Giovanni Paolo II*, III, 1 (1980) 1638). Cette attention aux droits de l'homme de la part des Autorités donne à tous les citoyens confiance dans les institutions nationales, chargées d'assurer leur protection.
+
+3\. Dans la vie publique comme dans les différents domaines de la vie sociale, tous les hommes doivent aussi favoriser *le dialogue*. Cela permet à chaque personne, à chaque groupe d'être reconnu dans sa diversité et, en même temps, de se sentir appelé à servir sa patrie. Il appartient à ceux qui, a un titre ou à un autre, exercent une responsabilité publique de veiller à l'intégration des personnes vivant sur un même territoire, pour faire concourir leur action au bénéfice de tous. Lorsque des membres de la communauté nationale ne sont pas partie prenante du destin de leur pays, leur marginalisation progressive ouvre la voie à de multiples formes de violence. À l'inverse, la reconnaissance des différences religieuses et culturelles, leur prise en compte par l'État, ainsi que l'appel pour que chacun travaille en vue du bien commun, sont des éléments qui renforcent chez l'ensemble des citoyens l'amour de leur patrie, le désir de se dépenser pour son unité et pour sa croissance, ainsi que l'ouverture aux autres qui va jusqu'à l'accueil fraternel de personnes déplacées et d'étrangers.
+
+4\. Au niveau de chaque pays et de la communauté internationale, les Autorités et les partenaires sociaux ont le souci de développer *une solidarité effective entre les citoyens et entre les peuples*. Face aux difficultés croissantes que traversent de nombreux pays, une solidarité accrue se traduit tout d'abord par des aides d'urgence. À ce propos, je salue les efforts de la communauté internationale et de nombreux organismes en faveur de l'aide humanitaire, pour assister les pays les plus pauvres de la planète, pour porter secours aux populations civiles des zones de conflits, pour accueillir des personnes contraintes de fuir leur terre et pour offrir une assistance aux régions confrontées à différentes catastrophes naturelles.
+
+Mais cette solidarité se manifeste aussi autrement. En effet, *par une assistance technique et une formation appropriée*, il convient d'encourager les pays qui sortent de périodes difficiles à se doter d'institutions démocratiques stables, à mettre en valeur leurs richesses propres pour le bien de tous les habitants et à assurer aux populations une éducation morale, civique et intellectuelle. C'est au prix de la promotion intégrale des personnes que l'on aidera réellement les pays à se développer, à être des acteurs de leur progrès et des partenaires de la vie internationale, et à envisager l'avenir avec confiance. Pour sa part, grâce aux finalités de la décennie pour l'éradication de la pauvreté, déterminées au sommet de Copenhague, l'ONU lance un appel particulièrement opportun à tous les pays, pour redoubler leurs efforts en ce domaine.
+
+5\. Vos concitoyens catholiques, clergé et laïcs, sont soucieux de s'engager dans la société nationale, en s'appuyant sur les principes moraux que le Saint-Siège ne cesse d'enseigner et de développer. En particulier, ils prennent une part active dans les domaines de l'éducation, de la santé et de l'action caritative, qui sont trois formes de service grâce auxquels ils veulent aider les jeunes à construire leur personnalité et accompagner les personnes qui souffrent. Ils manifestent ainsi à ceux qui les entourent, dans le respect des croyances spécifiques et sans esprit de prosélytisme, le visage d'amour de Dieu. La liberté de religion et la liberté de conscience dont ils doivent jouir, ainsi que tous leurs compatriotes, au titre de l'équité entre tous les citoyens d'une nation, leur laissent la possibilité d'épanouir leur vie spirituelle, en trouvant dans la prière personnelle et dans les célébrations communautaires la source de leur dynamisme dans le monde.
+
+6\. Messieurs les Ambassadeurs, notre rencontre est l'occasion de vous livrer ces quelques réflexions. Au terme de cette cérémonie, ma pensée se tourne vers les États que vous représentez auprès du Successeur de Pierre et vers leurs dirigeants. Je vous saurais gré de leur exprimer les sentiments profonds que j'éprouve à leur égard et l'attention que je leur porte. Dans la prière, je forme pour vos compatriotes des vaux de paix et de prospérité.
+
+Sur vos personnes, vos familles, vos collaborateurs comme sur vos compatriotes, j'invoque l'abondance des bienfaits divins.
+
+* * *
+
+\* *Insegnamenti di Giovanni Paolo II*, vol.  XX, 1 p. 788-791.
+
+*L'Osservatore Romano* 25.4.1997 p.4.
+
+*L'Osservatore Romano. Edition hebdomadaire en langue française* n.21 p.5.
+
+© Copyright 1997 - Libreria Editrice Vaticana

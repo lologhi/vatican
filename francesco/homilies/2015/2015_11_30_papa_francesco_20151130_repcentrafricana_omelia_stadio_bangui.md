@@ -1,0 +1,35 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS \
+\
+AU KENYA, EN OUGANDA ET EN RÉPUBLIQUE CENTRAFRICAINE](http://w2.vatican.va/content/francesco/fr/travels/2015/outside/documents/papa-francesco-africa-2015.html)
+
+(25-30 NOVEMBRE 2015)
+
+**MESSE**
+
+***HOMÉLIE*** ***DU SAINT-PÈRE***
+
+*Complexe sportif Barthélemy Boganda, Bangui (République centrafricaine)* *Fête de saint André - Lundi 30 novembre 2015*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/11/30/repcentrafricanastadio.html)\]**
+
+* * *
+
+Nous pouvons être étonnés, entendant la première lecture, de l’enthousiasme et du dynamisme missionnaires qui habitent l’Apôtre Paul. « Comme il est beau de voir courir les messagers de la Bonne Nouvelle » ( *Rm* 10, 15) ! C’est pour nous un appel à rendre grâce pour le don de la foi que nous avons reçu de ces messagers qui nous l’ont transmis. C’est aussi un appel à nous émerveiller devant l’œuvre missionnaire qui a porté pour la première fois - il n’y a pas si longtemps - la joie de l’Évangile sur cette terre bien aimée de Centrafrique. Il est bon, surtout lorsque les temps sont difficiles, lorsque les épreuves et les souffrances ne manquent pas, lorsque l’avenir est incertain et que l’on se sent fatigué, craignant de ne plus y arriver, il est bon de se réunir autour du Seigneur, ainsi que nous le faisons aujourd’hui, pour se réjouir de sa présence, de la vie nouvelle et du salut qu’il nous propose, comme une *autre rive* vers laquelle nous devons tendre.
+
+Cette *autre rive* c’est, bien sûr, la vie éternelle, le ciel où nous sommes attendus. Ce regard porté vers le monde à venir a toujours soutenu le courage des chrétiens, des plus pauvres, des plus petits, dans leur pèlerinage terrestre. Cette vie éternelle n’est pas une illusion, elle n’est pas une fuite du monde ; elle est une puissante réalité qui nous appelle et qui nous engage à la persévérance dans la foi et dans l’amour.
+
+Mais *l’autre rive*, plus immédiate, que nous cherchons à rejoindre, ce salut procuré par la foi et dont parle Saint Paul, est une réalité qui transforme déjà notre vie présente et le monde dans lequel nous vivons : « Celui qui croit du fond du cœur devient juste » ( *Rm* 10,10). Il accueille la vie même du Christ qui le rend capable d’aimer Dieu et d’aimer ses frères d’une façon nouvelle, au point de faire naître un monde renouvelé par l’amour.
+
+Rendons grâce au Seigneur pour sa présence et pour la force qu’il nous donne dans le quotidien de nos vies lorsque nous sommes confrontés à la souffrance physique ou morale, à une peine, à un deuil ; pour les actes de solidarité et de générosité dont il nous rend capables ; pour la joie et l’amour qu’il fait briller dans nos familles, dans nos communautés, malgré, parfois, le dénuement, la violence qui nous entoure ou la crainte du lendemain ; pour l’audace qu’il met en nos âmes de vouloir créer des liens d’amitié, de dialoguer avec celui qui ne nous ressemble pas, de pardonner à celui qui nous a fait du mal, de nous engager dans la construction d’une société plus juste et plus fraternelle où personne n’est abandonné. En tout cela, le Christ ressuscité nous prend par la main, et nous entraîne à sa suite. Et je veux rendre grâce avec vous au Seigneur de miséricorde pour tout ce qu’il vous a donné d’accomplir de beau, de généreux, de courageux, dans vos familles et dans vos communautés, lors des évènements que connaît votre pays depuis plusieurs années.
+
+Pourtant, il est vrai aussi que nous ne sommes pas encore parvenus au terme, nous sommes comme au milieu du fleuve, et il nous faut décider courageusement, dans un engagement missionnaire renouvelé, de *passer sur l’autre rive*. Tout baptisé doit sans cesse rompre avec ce qu’il y a encore en lui de l’homme ancien, de l’homme pécheur, toujours prêt à se réveiller à la suggestion du démon – et combien il est agissant en notre monde et en ces temps de conflits, de haine et de guerre –, pour l’entrainer à l’égoïsme, au repli sur soi et à la méfiance, à la violence et à l’instinct de destruction, à la vengeance, à l’abandon et à l’exploitation des plus faibles…
+
+Nous savons aussi combien nos communautés chrétiennes, appelées à la sainteté, ont encore de chemin à parcourir. Certainement nous avons tous à demander pardon au Seigneur pour trop de résistances et de lenteur à rendre témoignage de l’Évangile. Que l’Année Jubilaire de la Miséricorde, qui vient de commencer dans votre pays, en soit l’occasion. Et vous, chers Centrafricains, vous devez surtout regarder vers l’avenir, et, forts du chemin déjà parcouru, décider résolument de franchir une nouvelle étape dans l’histoire chrétienne de votre pays, vous élancer vers de nouveaux horizons, avancer plus au large, en eau profonde. L’Apôtre André, avec son frère Pierre, n’ont pas hésité un seul instant à tout laisser sur place à l’appel de Jésus, pour le suivre : « Aussitôt, laissant leurs filets, ils le suivirent » ( *Mt* 4, 22). Nous sommes émerveillés, là encore, par tant d’enthousiasme chez les Apôtres, tellement le Christ les attire à lui, tellement ils perçoivent qu’ils peuvent tout entreprendre et tout oser avec lui.
+
+Alors, chacun dans son cœur peut se poser la question si importante de son lien personnel avec Jésus, examiner ce qu’il a déjà accepté – ou encore refusé – pour répondre à son appel afin de le suivre de plus près. Le cri des messagers retentit plus que jamais à nos oreilles, alors même que les temps sont difficiles ; ce cri qui « retentit par toute la terre, et \[…\] jusqu’au bout du monde » ( *Rm* 10,18). Et il retentit ici, aujourd’hui, en cette terre de Centrafrique ; il retentit dans nos cœurs, dans nos familles, dans nos paroisses, partout où nous vivons, et il nous invite à la persévérance dans l’enthousiasme de la mission, une mission qui a besoin de nouveaux messagers, encore plus nombreux, encore plus donnés, encore plus joyeux, encore plus saints. Et nous sommes tous appelés à être, chacun, ce messager que notre frère, quelle que soit son ethnie, sa religion, sa culture, attend, souvent sans le savoir. Comment, en effet, ce frère croira-t-il au Christ, se demande saint Paul, si la Parole n’est pas entendue ni proclamée ?
+
+Nous aussi, à l’exemple de l’Apôtre, nous devons être remplis d’espérance et d’enthousiasme pour l’avenir. L’ *autre rive* est à portée de main, et Jésus traverse le fleuve avec nous. Il est ressuscité des morts ; dès lors les épreuves et les souffrances que nous vivons sont toujours des occasions qui ouvrent à un avenir nouveau si nous acceptons de nous attacher à sa personne. Chrétiens de Centrafrique, chacun de vous est appelé à être, par la persévérance de sa foi et par son engagement missionnaire, artisan du renouveau humain et spirituel de votre pays. Je souligne, artisan du renouveau humain et spirituel.
+
+Que la Vierge Marie, qui après avoir partagé les souffrances de la passion partage maintenant la joie parfaite avec son Fils, vous protège et vous encourage sur ce chemin d’espérance.
+
+Amen.

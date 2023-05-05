@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AU NOUVEL AMBASSADEUR DE SIERRA LEONE***
+
+***PRÈS LE SAINT-SIÈGE À L'OCCASION***
+
+***DE LA PRÉSENTATION DES LETTRES DE CRÉANCE\****
+
+*Vendredi 13 décembre 2002*
+
+*Votre Excellence,*
+
+Je vous souhaite une cordiale bienvenue, alors que j'accepte les Lettres de Créance qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République de Sierra Leone près le Saint-Siège. En vous remerciant pour les salutations que vous me transmettez de la part du Président, M. Ahmad Tejan Kabbah et du gouvernement, j'offre volontiers en retour mes meilleurs voeux aux autorités et au peuple de votre pays, et, conscient des grandes difficultés auxquelles la population doit faire face à cause d'années de conflits, je vous demande de transmettre à la nation l'assurance de mes prières.
+
+Au cours du siècle qui vient de s'écouler, d'importants progrès ont été accomplis dans le domaine social, économique et scientifique. Toutefois, au cours de cette même période, l'humanité a également été le témoin de la violence, de la destruction et de la mort qui surviennent lorsque les peuples et les nations ont recours aux armes plutôt qu'au dialogue, lorsque l'on choisit la guerre au lieu du chemin plus difficile de la compréhension et du respect mutuel. De façon plus triste encore, le début de ce siècle a été marqué par une terrible violence sous la forme du terrorisme international. C'est pourquoi, en dépit des nombreux progrès culturels et technologiques qui ont été accomplis au cours des cent dernières années, il reste d'importants domaines qui ont vu peu d'amélioration ou dont la situation s'est même aggravée.
+
+Dans les cas où des tensions et des conflits ont lieu dans un pays ou entre des nations, la réponse adaptée ne peut jamais être la violence ou l'effusion de sang, mais le dialogue, dans le but d'une résolution pacifique de la crise. Le dialogue authentique présuppose une recherche honnête de ce qui est vrai, juste et bon pour chaque personne, chaque groupe et chaque société; il s'agit d'un effort sincère pour identifier ce que les peuples ont en commun en dépit des tensions, des oppositions et des conflits:  tel est, en effet, le seul chemin sûr conduisant à la paix et au progrès authentique. De plus, le dialogue authentique aide les peuples et les nations de la terre à reconnaître leur indépendance mutuelle dans les domaines économiques, politiques et culturels. Précisément à notre époque, qui ne connaît que trop bien les dernières technologies en matière de mort et de destruction, il existe un besoin urgent d'édifier une culture prédominante de la paix, qui aide à anticiper et à contrecarrer les explosions de violence armée qui semblent inévitables. Cela inclut la nécessité de prendre des mesures concrètes pour mettre un terme au trafic d'armes.
+
+A ce point, le devoir des gouvernements et de la Communauté internationale demeure essentiel, car c'est à eux qu'il revient de contribuer à l'établissement de la paix à travers des structures solides qui, en dépit des incertitudes de la politique, garantiront la liberté et la sécurité de tous les peuples en toute circonstance. Les Nations unies elles-mêmes ont assumé des responsabilités toujours plus grandes pour maintenir ou restaurer la paix dans les régions dévastées par la guerre et les conflits. Dans votre pays, les Nations unies viennent d'étendre le mandat de leur mission de maintien de la paix. La Communauté internationale est donc elle-même un partenaire de votre gouvernement dans ses efforts visant à réintégrer les anciens combattants, à faciliter le retour des réfugiés et des personnes déplacées, à assurer le plein respect des droits de l'homme et de la loi, avec une protection spéciale pour les femmes et les enfants. Dans ce contexte, je ne peux manquer d'exprimer mon immense satisfaction pour le fait qu'après des années de conflit armé, de souffrance et de mort, la stabilité civile est revenue en Sierra Leone, apportant des perspectives positives pour la normalisation de la vie nationale:  puisse votre pays continuer le long de ce chemin avec courage et persévérance.
+
+L'Eglise catholique elle aussi prête son soutien aux activités visant à restaurer la paix et à atteindre la réconciliation. En effet, son Divin Fondateur lui a confié une mission religieuse et humanitaire, différente de celle de la communauté politique, mais ouverte à de nombreuses formes de coopération et de soutien mutuel. C'est cette mission qui est à la base de la présence du Saint-Siège dans la Communauté internationale, une présence visant uniquement au bien de la famille humaine:  promouvoir la paix, défendre la dignité humaine et les droits de l'homme, oeuvrer au développement intégral des peuples. Il s'agit d'un devoir qui dérive nécessairement de l'Evangile de Jésus-Christ, et qui est une responsabilité partagée par tous les chrétiens. Pour cette raison, l'Eglise continuera d'être un partenaire actif de votre pays tandis que la Sierra Leone continue sa route le long du chemin du développement politique, social et économique.
+
+Monsieur l'Ambassadeur, je suis certain  que votre mission auprès du Saint-Siège renforcera les liens de compréhension  et  d'amitié  entre  nous. Soyez assuré que les différents bureaux de la Curie romaine seront toujours prêts à vous assister dans l'accomplissement de votre haute fonction. Sur vous et sur le bien-aimé peuple de Sierra Leone, j'invoque cordialement une abondance de Bénédictions de Dieu tout-puissant.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.53 p.3.
+
+© Copyright 2002 \- Libreria Editrice Vaticana

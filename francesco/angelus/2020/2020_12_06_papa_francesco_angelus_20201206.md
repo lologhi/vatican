@@ -1,0 +1,35 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 6 décembre 2020*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/12/6/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+L’Evangile de ce dimanche (Mc 1, 1-8) présente la figure et l’œuvre de Jean-Baptiste. Il a indiqué à ses contemporains un itinéraire de foi semblable à celui que l’Avent nous propose, nous qui nous préparons à recevoir le Seigneur à Noël. Cet itinéraire de foi est un chemin de *conversion*. Que signifie le mot «conversion»? Dans la Bible, cela veut tout d’abord dire changer de direction et d’orientation; et donc aussi changer notre façon de penser. Dans la vie morale et spirituelle, se convertir signifie se tourner du mal vers le bien, du péché vers l’amour de Dieu. C’est ce qu’enseignait jean-Baptiste, qui dans le désert de Judée «proclamait un baptême de conversion pour le pardon des péchés» (v. 4). Recevoir le baptême était le  signe extérieur et visible de la conversion de ceux qui écoutaient sa prédication et qui se décidaient à faire pénitence. Ce baptême avait lieu  par l’immersion dans le Jourdain, dans l’eau, mais il était inutile, il n’était qu’un signe et était inutile  s’il n’y avait pas la disponibilité à se repentir et à  changer de vie.
+
+La conversion comporte la douleur pour les péchés commis, le désir de s’en libérer, l’intention  de les exclure pour toujours de sa vie. Pour exclure le péché, il aussi faut refuser  tout ce qui est lié à lui, les choses qui sont liées au péché et qu’il faut refuser: la mentalité mondaine, l’estime excessive du confort, l’estime excessive du plaisir, du bien-être, des richesses. L’exemple de ce détachement nous est donné encore une fois dans l’Evangile d’aujourd’hui par  la figure de Jean- Baptiste: un homme austère, qui renonce au superflu et recherche l’essentiel. Tel est le premier aspect de la conversion: *détachement du péché et de la mondanité*. Commencer un chemin de détachement vis-à-vis de ces choses.
+
+L’autre aspect de la conversion est la fin du chemin, c’est-à-dire *la recherche de Dieu et de son royaume*. Le détachement  des choses mondaines et la recherche de Dieu et de son Royaume. L’abandon du confort et de la mentalité mondaine n’est pas une fin en soi, ce n’est pas une ascèse seulement pour faire pénitence, le chrétien n’est pas «un fakir». C’est   autre chose. Le détachement n’est pas une fin en soi, mais il vise à l’obtention   de quelque chose de plus grand, c’est-à-dire le royaume de Dieu, la communion avec Dieu, l’amitié avec Dieu. Mais cela n’est pas facile, car de nombreux liens  nous relient au péché, et ce n’est pas facile... La tentation nous tire toujours vers le bas, de même que les liens qui nous rattachent  au péché:  l’inconstance, le découragement, la malice, les environnements nocifs, les mauvais exemples. Parfois l’élan que nous ressentons pour le Seigneur est trop faible et il semble presque que Dieu se taise; ses promesses de consolation, comme l’image du pasteur attentif et zélé, qui retentit aujourd’hui dans la lecture d’Isaïe (cf. Is 40, 1.11), nous semblent lointaines et irréelles. On est  alors tentés de dire qu’il est impossible de se convertir vraiment. Combien de fois avons-nous senti ce découragement: «Non, je n’y arrive pas, je commence un peu et puis je rebrousse chemin». Et cela n’est pas bien. Mais c’est possible, c’est possible. Quand cette pensée du découragement  te vient à l’esprit, ne reste pas là, car ce sont des «sables mouvants», les sables mouvants d’une existence médiocre. C’est cela la médiocrité. Que peut-on faire dans ces cas, quand on voudrait avancer mais que l’on sent que l’on n’y arrive pas? Avant tout, nous souvenir que la conversion est *une grâce*, personne ne peut se convertir par ses propres forces. C’est une grâce que te donne le Seigneur, il faut donc la demander  à Dieu avec force, demander à Dieu qu’Il nous  convertisse, que nous puissions  vraiment nous convertir, dans la mesure où nous nous ouvrons à la beauté, à la bonté, à la tendresse de Dieu. Pensez à la tendresse de Dieu. Dieu n’est pas un père mauvais, un père méchant, non. Il est tendre, il nous aime beaucoup, comme le Bon Pasteur qui cherche la dernière brebis  de son troupeau. Il est amour et  c’est cela la conversion: une grâce de Dieu: Tu commences à marcher, parce que c’est Lui qui t’incite à marcher,  et tu verras qu’Il arrivera. Prie, marche, et tu feras toujours un pas en avant.
+
+Que la Très Sainte Vierge, que nous célébrerons après-demain comme l’Immaculée, nous aide à nous détacher toujours plus du péché et des mondanités, pour nous ouvrir à Dieu, à sa parole, à son amour qui régénère et qui sauve.
+
+* * *
+
+***A l’issue de l’Angelus, le Pape a ajouté les paroles suivantes:***
+
+*Chers frères et sœurs,*
+
+Je vous salue de tout cœur, vous qui êtes ici présents — avec ce mauvais temps, vous êtes courageux! — Romains et pèlerins, et ceux qui sont reliés à travers les *médias*.
+
+Comme vous le voyez, l’arbre de Noël a été dressé sur la place et la crèche est en cours d’installation. Au cours de ces journées,  ces deux signes de Noël sont également  préparés dans de nombreuses maisons, pour la joie des enfants... et aussi des grands! Ce sont des signes d’espérance, en particulier en ce temps difficile. Faisons en sorte de ne pas nous arrêter au signe, mais d’aller à la signification, c’est-à-dire à Jésus, à l’amour de Dieu qu’Il nous a révélé, aller à la bonté infinie qu’il a faite resplendir sur le monde. Il n’y a pas de pandémie, il n’y a pas de crise qui puisse éteindre cette lumière. Laissons-la entrer dans notre cœur, et tendons la main à celui qui en a le plus besoin. Dieu  naîtra ainsi à nouveau en nous et parmi nous.
+
+Je souhaite à tous un bon dimanche. S’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir.
+
+\[Le Pape répond aux acclamations qui s’élèvent de la place\] Ce sont des gens biens, ceux de l’Immaculée!

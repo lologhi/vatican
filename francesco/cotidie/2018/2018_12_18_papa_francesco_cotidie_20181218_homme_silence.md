@@ -1,0 +1,19 @@
+**PAPE FRANÇOIS**
+
+MÉDITATION MATINALE EN LA CHAPELLE DE LA
+
+MAISON SAINTE-MARTHE
+
+***L'homme du silence***
+
+*Mardi 18 décembre 2018*
+
+( *L'Osservatore Romano*, *Édition hebdomadaire n°001 du 3 janvier 2019*)
+
+Au pied de l’autel de la chapelle de la Maison Sainte-Marthe, à côté des cierges de l’Avent, il y avait quatre grandes boules de Noël décorées: elles ont été offertes au Pape par des enfants pauvres et porteurs de handicap de Slovaquie. «On voit qu’elles ne sont pas luxueuses», a dit François: «C’est eux qui les ont faites, avec leurs mains. J’ai pensé que le Seigneur Jésus aurait aimé qu’elle soient ici». Un signe utile également pour rappeler l’«effort éducatif» de ceux qui se consacrent «aux enfants porteurs de handicap ou ayant des limitations».
+
+Le Pape a invité à prier pour eux, sollicité par la liturgie du jour qui invitait à prier sur la figure d’un grand éducateur «dans le silence»: saint Joseph. Dans l’Evangile de Matthieu (1, 18-24) Joseph «est présenté tel qu’il est, avec sa personnalité», et le Pape a voulu s’arrêter sur deux «caractéristiques»: il est «l’homme qui sait accompagner en silence» et «l’homme des rêves».
+
+Dans l’Evangile, «il n’y a pas un seul mot prononcé par Joseph». Les paroles de son discours de consentement ne sont même pas rapportées: «Oui, je le ferai». Matthieu écrit: «“Quand il se réveilla, Joseph fit comme le lui avait ordonné l’ange”. Sans parler». Et Joseph embrassa ainsi, «dans le silence», son rôle de parent qui aide à grandir. Joseph «laisse grandir, protège, aide, mais en silence». Un verbe résume cette attitude: «accompagner». Le Pape a fait référence aux nombreuses situations de la vie quotidienne: «Très souvent, les parents voient leurs enfants qui ne font pas de bonnes choses, et parfois, ils leur parlent, mais d’autres fois, ils sentent qu’ils ne doivent pas parler et regarder de l’autre côté. Telle est la sagesse des bons parents, qui savent éduquer. Même s’ils voient leur enfant qui passe un moment difficile, qui prend un mauvais chemin, ils attendent le moment de parler. Ils ne le réprimandent pas tout de suite: ils attendent et cherchent le moment opportun pour prononcer le mot qui fait grandir». C’est un style qui renvoie à celui de Dieu, à sa «patience» à l’égard de l’homme.
+
+Dans l’Evangile du jour apparaît ensuite la deuxième caractéristique de Joseph, «l’homme des rêves». «Dans les rêves, nous sommes un peu plus libres, nous nous libérons...». Joseph était «l’homme des rêves, mais ce n’était pas un rêveur. Ce n’était pas un fantaisiste». Joseph «avait les pieds sur terre. Mais il était ouvert et laissa la parole de Dieu se réaliser en rêve, dans sa liberté, dans son cœur ouvert. Il comprit et poursuivit ce rêve. C’était un homme concret. Qu’est-ce que cette caractéristique peut enseigner à l’homme? «Réfléchissons si nous avons la capacité de rêver ou si nous l’avons perdue. Pensons à un couple de fiancés: ils rêvent d’un avenir ensemble, des nombreux enfants qu’ils auront, de tant de choses... C’est beau. Et ils vont de l’avant, ils se marient... Ensuite, les difficultés arrivent et ils se découragent un peu, certains deviennent amers, ils se disputent, et cet amour peut être un échec, parce qu’ils ne regardent que les difficultés et ils ne se rappellent pas des rêves qu’ils avaient faits». Il ne faut pas «perdre la capacité de rêver l’avenir». Cela vaut pour tous: «Faire des rêves pour notre famille, pour nos enfants, pour nos parents. Imaginer comment je voudrais que leur vie soit». Et cela vaut aussi pour les prêtres. Saint Joseph peut être une référence pour chaque chrétien: l’homme qui accompagne dans le silence et l’homme qui sait rêver de la juste manière». A lui, «demandons la grâce de savoir rêver en cherchant toujours la volonté de Dieu dans les rêves, et la grâce d’accompagner en silence, sans bavardages».

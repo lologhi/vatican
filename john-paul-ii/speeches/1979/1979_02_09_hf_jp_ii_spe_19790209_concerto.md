@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***À LA FIN D'UNE REPRÉSENTATION***
+
+***DONNÉE DANS LA SALLE PAUL VI AU VATICAN***
+
+*Vendredi 9 février 1979*
+
+1\. Au nom de tous ceux qui sont ici, je voudrais d’abord remercier les organisateurs et les artistes qui nous ont offert cet instant de joie spirituelle. Je leur exprime donc ma sincère et cordiale reconnaissance, à eux et à tous ceux qui ont collaboré au bon succès de cette manifestation.
+
+2\. Je me tourne maintenant vers le compositeur Krzysztof Penderecki. Ce n’est pas la première fois que je participe à l’exécution d’une de ses œuvres. Je me souviens de *la Passion et la Mort de Notre-Seigneur Jésus-Christ selon saint Luc* au château de Wawel ; de l’ *Utrenia* dans l’église Sainte- Catherine de Cracovie. Jamais je n’aurais pu imaginer qu’il me serait donné de le recevoir dans la salle Paul VI au Vatican, dans les premiers mois de mon pontificat.
+
+J’en suis profondément ému.
+
+3\. Je veux me réjouir avec vous, maître, de ce chef-d'œuvre, dont le contenu confirme la ligne des précédentes recherches artistiques. Il m’est difficile de dire quelque chose de plus sur l’essentiel qui est l’aspect strictement musical, pour lequel je dois me borner à exprimer une simple impression. Je dois reconnaître que cette impression est profonde.
+
+Pour ce qui est du contenu, je pense à ce qu’avait dit, avant la guerre, un artiste que je connaissais bien : « Toute grande œuvre d’art est religieuse dans son inspiration et dans sa source. » Je pense que les grandes œuvres de maître Penderecki confirment ce principe.
+
+Cette fois-ci, il s’est tourné vers Milton. Je pense que le *Paradise Lost* est devenu une occasion d’exprimer dans le langage si original de sa composition certaines questions que l’homme se pose au sujet des problèmes fondamentaux de son existence et de sa destinée.
+
+La réponse à ces questions, que nous trouvons dans les premières pages de la Sainte Écriture, aux premiers chapitres du Livre de la Genèse, ne peut manquer de frapper par sa profondeur et sa logique.
+
+Il ne s’agit pas là simplement de la chronique de certains événements. On y trouve enregistrées les expériences fondamentales auxquelles l’homme, au cours de son existence, doit toujours revenir, quelles que soient les précisions apportées par l’herméneutique de la Bible. Je dirai que les premiers chapitres du Livre de la Genèse protègent contre le risque d’aliénation ce qu’il y a en chacun de nous de substantiellement humain.
+
+Je veux donc me réjouir avec vous, maître, que vous ayez eu l’idée de revenir à cette source à travers le poème du grand écrivain anglais.
+
+Personnellement, je me réjouis beaucoup que cette musique soit l’œuvre d’un compositeur polonais. C’est encore un témoignage de l’origine chrétienne qui imprègne toute notre culture. Et parce que le langage de la musique est plus universel que celui de la littérature, je souhaite que ce fruit de la créativité artistique de l’un de mes compatriotes puisse devenir une source d’émotion artistique pour tous les hommes d’aujourd’hui, quelle que soit leur nationalité.
+
+J’en remercie le Seigneur du fond du cœur.
+
+Je félicite enfin sincèrement chacun des artistes, les excellents solistes, les membres de l’orchestre du théâtre de la Scala et le chœur de l’opéra de Chicago, qui ont su interpréter si magistralement cette composition inspirée.
+
+À tous, ma bénédiction apostolique.
+
+© Copyright 1979 - Libreria Editrice Vaticana

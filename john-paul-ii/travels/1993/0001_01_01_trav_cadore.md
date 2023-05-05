@@ -1,0 +1,6 @@
+|     |
+| --- |
+|  |
+| ***Visite pastorale dans la vallée de Cadore (Belluno)***<br>***7 - 16 juillet 1993***<br>- **Aux hôtes de la maison de convalescence «Giovanni Paolo II» à Santo Stefano di Cadore (Bellune, 11 juillet 1993)**<br>  <br>   \[ [Italien](/content/john-paul-ii/it/speeches/1993/july/documents/hf_jp-ii_spe_19930711_casa-riposo-cadore.html)\]<br>- **11 juillet 1993, Célébration Eucharistique sur la Place Roma à Santo Stefano di Cadore (Bellune)** \[ [Italien](/content/john-paul-ii/it/homilies/1993/documents/hf_jp-ii_hom_19930711_s-stefano-cadore.html)\]<br>- **Angelus, 11 juillet 1993**<br>  <br>   \[ [Espagnol](/content/john-paul-ii/es/angelus/1993/documents/hf_jp-ii_ang_19930711.html), [Italien](/content/john-paul-ii/it/angelus/1993/documents/hf_jp-ii_ang_19930711.html)\]<br>- **Récitation du Rosaire avec les jeunes de l'Action Catholique de Trévise à Lorenzago di Cadore (Bellune, 15 juillet 1993)**<br>  <br>   \[ [Italien](/content/john-paul-ii/it/speeches/1993/july/documents/hf_jp-ii_spe_19930715_rosario-lorenzago.html)\]<br>- **Bénédiction conclusive au terme de la messe à Lorenzago di Cadore (Bellune, 16 juillet 1993)**<br>  <br>   \[ [Italien](/content/john-paul-ii/it/speeches/1993/july/documents/hf_jp-ii_spe_19930716_benediz-lorenzago.html)\] |
+|  |
+|  |

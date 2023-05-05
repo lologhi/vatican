@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS À L'ASSEMBLÉE DE LA***
+
+***RÉUNION DES ŒUVRES D'AIDE AUX ÉGLISES ORIENTALES***
+
+***(R.O.A.C.O.)***
+
+*Salle Clémentine*
+
+*Jeudi 26 juin 2014*
+
+*Chers amis,*
+
+Il y a un mois, j’ai eu la grâce d’accomplir un [pèlerinage en Terre Sainte](/content/francesco/fr/travels/2014/outside/documents/papa-francesco-terra-santa-2014.html), et aujourd’hui cette rencontre avec la [Congrégation pour les Eglises orientales](http://www.vatican.va/roman_curia/congregations/orientchurch/index_fr.htm) et avec les représentants de la [ROACO](http://www.vatican.va/roman_curia/congregations/orientchurch/roaco/rc_con_corient_doc_20030121_indice_roaco_fr.html) me permet de renouveler mon accolade à toutes les Eglises d’Orient. Ce pèlerinage a fait naître un grand réconfort ainsi qu’un grand encouragement et une grande responsabilité, en vue de poursuivre le chemin vers la pleine unité de tous les chrétiens, ainsi que le dialogue interreligieux.
+
+Je remercie le cardinal-préfet d’avoir évoqué les étapes du pèlerinage. Je salue de tout cœur chacun de vous et les communautés auxquelles vous appartenez. Ensemble, rendons grâce à Dieu et prions afin que ce voyage apostolique, comme une bonne graine, porte des fruits abondants. C’est le Seigneur qui les fait germer et croître, si nous nous confions à Lui à travers la prière et que nous persévérons, en dépit des contrariétés, sur les sentiers de l’Evangile.
+
+L’olivier que j’ai planté dans les Jardins du Vatican avec le patriarche de Constantinople et les présidents israéliens et palestiniens, rappelle cette paix qui n’est assurée que si on la cultive à plusieurs mains. Qui s’engage à cultiver ne doit toutefois pas oublier que la croissance dépend du véritable Agriculteur qui est Dieu. Du reste, la vraie paix, celle que le monde ne peut pas donner, c’est Jésus Christ qui nous la donne. C’est pourquoi, malgré les graves blessures qu’elle subit malheureusement encore aujourd’hui, elle peut sans cesse renaître. Je vous remercie toujours parce que vous collaborez à ce «chantier» à travers la charité, qui constitue la finalité la plus vraie de vos organisations. Avec l’unité et la charité, les disciples du Christ cultivent la paix pour chaque peuple et communauté en surmontant les discriminations persistantes, à commencer par celles à motif religieux.
+
+Les premiers appelés à cultiver la paix sont justement les frères et les sœurs d’Orient, avec leurs pasteurs. En espérant parfois contre toute espérance, en demeurant là où ils sont nés et où, dès le début, a retenti l’Evangile du Fils de Dieu fait homme, ils peuvent faire l’expérience que sont «Heureux les artisans de paix, car ils seront appelés fils de Dieu» (Mt 5, 9). Et ils peuvent avoir toujours le soutien de l’Eglise universelle, pour conserver la certitude que le feu de la Pentecôte, la puissance de l’Amour, peut arrêter le feu des armes, de la haine et de la vengeance. Leurs larmes et leurs peurs sont les nôtres, comme du reste leur espérance. Ce sera notre solidarité qui le démontrera, si elle réussit à être concrète et efficace, capable de stimuler la communauté internationale en défense des droits des individus et des peuples.
+
+C’est en particulier aux frères et aux sœurs de Syrie et d’Irak, à leurs évêques et prêtres, que j’exprime avec vous la proximité de l’Eglise catholique. Et je l’étends à la Terre Sainte et au Proche Orient, mais aussi à la bien-aimée Ukraine, en cette heure si grave qu’elle est en train de vivre, et à la Roumanie, auxquelles vous vous êtes intéressés au cours de vos travaux. Je vous exhorte à poursuivre l’engagement démontré en leur faveur. Votre aide aux nations les plus touchées peut répondre aux besoins fondamentaux, notamment des plus petits et des plus faibles, comme des nombreux jeunes tentés d’abandonner leur patrie d’origine. Et parce que les communautés orientales sont présentes dans le monde entier, vous essayez d’apporter partout soulagement et soutien aux nombreux réfugiés et personnes déplacées, en leur rendant dignité et sécurité, avec le respect dû à leur identité et à leur liberté religieuse.
+
+Chers amis, je vous encourage à faire avancer les priorités établies lors de votre dernière session plénière, en particulier la formation des nouvelles générations et des éducateurs. Dans le même temps, alors qu’approche l’ [assemblée extraordinaire du synode des évêques dédiée à la famille](http://www.vatican.va/roman_curia/synod/index_fr.htm#III_Assemblea_Generale_straordinaria_del_Sinodo_dei_Vescovi), je vous invite à donner la priorité également à ce domaine, à la lumière de l’exhortation apostolique *[Ecclesia in Medio Oriente](http://www.vatican.va/holy_father/benedict_xvi/apost_exhortations/documents/hf_ben-xvi_exh_20120914_ecclesia-in-medio-oriente_fr.html)* (nn. 58-61). En effet, la Sainte Famille de Nazareth «qui a vécu... la douleur de la persécution, de l’émigration et le dur labeur quotidien», nous enseigne «à faire confiance au Père, à imiter le Christ et à se laisser guider par l’Esprit Saint» ( *ibid*., n. 59). Que la Sainte Mère de Dieu accompagne les familles une à une pour que, grâce à elles, l’Eglise, avec la joie et la force de l’Evangile, soit toujours une mère féconde et pleine de sollicitude dans l’édification de la famille universelle de Dieu.
+
+Merci à tous pour votre travail. Je vous bénis de tout cœur.

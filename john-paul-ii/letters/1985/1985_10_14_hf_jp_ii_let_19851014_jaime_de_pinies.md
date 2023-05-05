@@ -1,0 +1,73 @@
+***MESSAGE DU PAPE JEAN-PAUL II***
+
+***À MONSIEUR JAIME DE PINIÈS, PRÉSIDENT DE***
+
+***LA XLème ASSEMBLÉE GÉNÉRALE DES NATIONS UNIES\****
+
+*A Son Excellence*
+
+*Monsieur Jaime de Piniès*
+
+*Président de la XLème Assemblée générale des Nations Unies à l’occasion du XLème anniversaire de l’entrée en vigueur de la Charte des Nations Unies*
+
+En s’associant à la célébration du XLème anniversaire de l’entrée en vigueur de la Charte des Nations Unies signée à San Francisco, le Saint-Siège désire réaffirmer son soutien moral et son offre de collaboration aux nobles objectifs que “les Peuples des Nations Unies” se sont fixés au lendemain du deuxième conflit mondial, et les encourager à relever, grâce aux enseignements de l’expérience accumulée et à une meilleure connaissance des difficultés encore à surmonter, les défis nouveaux de la coopération internationale.
+
+1\. A la suite de mes prédécesseurs Jean XXIII et Paul VI, j’ai déjà eu l’honneur, en m’adressant personnellement, le 2 octobre 1979, à cette éminente Assemblée, de rappeler toute l’estime avec laquelle le Saint-Siège accompagne les activités que la Charte du 26 juin 1945 assigne aux Nations qui ont “décidé d’unir leurs forces” pour promouvoir les biens suprêmes que sont la paix, la justice et la solidarité entre elles.
+
+Sans être membre de votre Organisation, pour des raisons bien compréhensibles, le Saint-Siège est associé à ses travaux et aux objectifs qu’elle poursuit, dans la mesure où ceux-ci s’accordent avec les exigences de sa propre mission dans le monde. Sa présence, par l’intermédiaire d’un observateur permanent au siège de New York comme à Genève et auprès des organismes spécialisés de Rome, Paris et Vienne, atteste son intérêt pour les travaux des Nations Unies et souligne la convergence des buts que visent, chacune sur le terrain qui lui est propre, votre Organisation qui se veut mondiale d’une part et la communauté religieuse à vocation universelle qu’est l’Eglise catholique d’autre part. Celle-ci est bien consciente de la spécificité de sa contribution éventuelle, qui est essentiellement de faire appel à la conscience de l’humanité devant les forces qui divisent les hommes et les Nations, pour chercher inlassablement de nouvelles voies de paix, d’entente et de coopération entre les personnes et les communautés.
+
+Entre votre Organisation et l’Eglise catholique la collaboration est d’ailleurs d’autant plus aisée et fructueuse qu’elles se réfèrent l’une et l’autre au principe fondamental, solennellement affirmé dans le préambule de la “Déclaration universelle des droits de l’homme” de 1948, et que le Saint-Siège lui-même enseigne avec force, selon lequel “la reconnaissance de la dignité personnelle et des droits égaux et inaliénables de tous les membres de la famille humaine est le fondement de la liberté, de la justice et de la paix dans le monde”.
+
+2\. Le Saint-Siège, vous le savez, a considéré l’Organisation des Nations Unies, dès son commencement, comme une institution irremplaçable dans la phase actuelle de l’histoire de l’humanité. Mon prédécesseur Paul VI n’hésitait pas à voir en elle “le chemin obligé de la civilisation moderne et de la paix mondiale”, allant jusqu’à l’appeler “l’ultime espoir de la concorde et de la paix” (PAULI VI *Allocutio ad Nationum Uniarum Legatos*: AAS 57 (1965) 878 et 879).  Ce soutien constant de la part du Saint-Siège est né de la conviction de l’Eglise selon laquelle les Nations forment une unité solidaire et ont le devoir, malgré et même à cause des échecs répétés du passé et du présent, de découvrir et de perfectionner toujours davantage les mécanismes institutionnels qui assurent leurs rapports pacifiques.
+
+Déjà en août 1917, Benoît XV, dans son appel resté célèbre aux belligérants, proposait le désarmement général et la constitution d’une autorité internationale capable de jouer un rôle d’arbitre et d’imposer des sanctions (Cfr. *AAS* 9 (1917) 417-420).  Toujours dans un contexte de guerre, Pie XII en appelait, dès 1939, à une organisation internationale vraiment apte à s’élever contre l’arbitraire des Etats.  Dans son Message de Noël de la même année, il indiquait les conditions auxquelles le pire pouvait encore être évité et une paix durable envisagée: une de ces conditions était la création d’une nouvelle organisation mondiale, sur la base du droit international (Cfr. *AAS* 32 (1940) 5-15). Jean XXIII, dans son inoubliable encyclique “ [Pacem in Terris](/content/john-xxiii/fr/encyclicals/documents/hf_j-xxiii_enc_11041963_pacem.html)”, affirmait quant à lui que l’ordre moral naturel exige que soit instituée “une Autorité publique de compétence universelle” pour stimuler “la reconnaissance, le respect, la tutelle et la promotion des droits de la personne” partout dans le monde ( *Ibid*. 55 (1963) 293-294).  Une telle Autorité, précisait-il, ne pouvant être imposée par la force, devait être librement instaurée et consentie par les Etats souverains. Sa finalité est de servir le bien commun universel, c’est-à-dire les intérêts suprêmes de la communauté mondiale en tant que telle, dont le critère dernier reste toujours le respect et la promotion des droits universels et inaliénables de la personne humaine. Votre Organisation paraît réunir toutes les conditions pour constituer d’une manière de plus en plus efficace cette Autorité régulatrice nécessaire. C’est ce que mon prédécesseur Paul VI et moi-même avons eu l’occasion de souligner devant votre noble Assemblée (Cfr. *AAS* 57 (1965) 888 et *AAS* 71 (1979) 1160).
+
+3\. Quarante ans, c’est sans doute peu lorsqu’il s’agit de renverser la tendance immémoriale des hommes et des peuples à régler leurs conflits par la force et à défendre leurs intérêts par la violence. C’est encore peu, malheureusement, au regard du but ultime poursuivi: une civilisation de la paix. Les égoïsmes nationaux, les durcissements idéologiques, le repliement sur soi-même, les hésitations ou même le refus de recourir à des instances internationales en cas de crise, la tentation de détourner ces mêmes instances à des fins de propagande intéressée sont des écueils encore très difficiles à éviter. Mais 40 ans d’expérience ont montré combien les objectifs qui sont communs au Saint-Siège et aux Nations Unies doivent absolument être poursuivis, malgré les échecs possibles et de nombreuses désillusions. Notre foi au Dieu de la Bible, tout en nous rappelant que la perfection de la paix et de la justice ne peut être atteinte sur terre par le seul effort des hommes, nous assure que c’est justement la tension permanente vers cette visée ultime qui donne sens et grandeur à toute l’aventure humaine.
+
+Il serait injuste de passer sous silence tout ce que les Nations Unies ont accompli au cours de cette première période de leur existence. Nous devons nous poser la question de ce qu’aurait pu être l’histoire du monde sans votre Organisation, pendant les 40 ans qui ont suivi la deuxième guerre mondiale: ces temps si riches et si tumultueux, à la fois prometteurs et pleins d’interrogations, qui ont connu la fin presque totale du colonialisme et un accroissement sans pareil du nombre des Nations ayant accédé à l’indépendance, qui ont vu se développer tant de progrès dans le domaine des sciences et des techniques, à côté de tant de tensions dangereuses - tout particulièrement la profonde division idéologique de la planète - tensions et divisions qui ne sont certes pas le fruit de l’Organisation des Nations Unies, mais dont celle-ci a souvent pu contenir les développements les plus fâcheux. Les dysfonctions, difficilement évitables mais toujours surmontables, ne doivent pas être un motif de découragement, mais une indication de la direction des efforts et des corrections à entreprendre.
+
+Plus les vieux réflexes du recours à la force restent à l’ordre du jour, plus il devient clair que l’on risque d’aller vers l’échec total, non seulement de la coopération internationale que l’on s’efforce patiemment de reconstruire depuis 40 ans, mais de la civilisation humaine tout court. Déjà Pie XII, à la veille de la deuxième guerre mondiale, rappelait solennellement qu’“avec la paix rien n’est perdu, tout peut l’être avec la guerre” ( *AAS* 31 (1939) 33).  Aujourd’hui, la perspective de ce que serait une guerre nucléaire ne nous laisse pas le choix. Elle nous oblige, certains diraient elle nous condamne, à créer un avenir autre où les solutions de droit et de justice l’emportent sur la loi du plus fort. 40 ans après la signature de la Charte des Nations Unies, les enjeux de la paix et des droits de l’homme doivent être traités avec un sens des responsabilités plus aigu qu’auparavant. Les engagements solennellement contractés par les signataires de cette Charte doivent être respectés et exécutés selon son esprit et sa lettre.
+
+Il me plaît de rappeler à titre tout à fait particulier, dans ce contexte, le vaste travail accompli par votre Organisation, depuis 40 ans, dans l’élaboration d’instruments juridiques qui explicitent et développent la tutelle des droits fondamentaux de la personne humaine. En ce domaine, qui est celui de la création d’une véritable jurisprudence des droits universels de l’homme et de la justice internationale, des progrès importants ont été réalisés. Dans ce long et patient travail d’éveil de la conscience universelle et d’édification progressive d’un ordre mondial plus juste, le Saint-Siège et l’Eglise catholique, vous le savez bien, n’ont pas manqué d’offrir leur propre contribution.
+
+4\. Votre Organisation n’est pas un gouvernement mondial; elle ne dispose pas elle-même d’une véritable souveraineté. Elle se veut une association d’Etats souverains. Si elle n’a pas de pouvoir de contrainte, elle est cependant revêtue d’une autorité appuyée sur les plus hautes valeurs morales de l’humanité et sur le droit. Les événements des 40 dernières années semblent confirmer la nécessité qu’une telle autorité soit dotée des moyens juridiques et politiques qui lui permettent de promouvoir toujours plus effectivement le bien commun universel et de faire triompher les solutions du droit et de la justice lorsque des conflits menacent d’éclater entre les Nations. Le Saint-Siège ne saurait trop encourager les Nations Unies à intensifier ce rôle de service de la paix qui est leur raison d’être, et à rechercher, d’un commun accord, des moyens appropriés de dissuasion et d’intervention lorsque des Etats membres sont tentés de recourir, ou, malheureusement, recourent à la force des armes pour régler leurs conflits. Votre Organisation est, par nature et par vocation, le forum mondial où les problèmes doivent être examinés à la lumière de la vérité et de la justice, en renonçant aux égoïsmes étroits et aux menaces du recours à la force.
+
+5\. Il est un problème d’actualité internationale sur lequel le Saint-Siège partage les soucis des membres de votre Organisation, car il présente aussi un aspect éthique et humanitaire: c’est la question de la dette extérieure du Tiers-Monde, en particulier de l’Amérique Latine.
+
+Il existe aujourd’hui un consensus sur le fait que le problème de l’endettement global du Tiers-Monde et des nouveaux rapports de dépendance qu’il crée, ne peut pas se poser uniquement en termes économiques et monétaires. Il est devenu plus largement un problème de coopération politique et d’éthique économique.
+
+Le coût économique, social et humain de cette situation est souvent tel qu’il place des pays entiers au bord de la rupture. Du reste, ni les pays créanciers ni les pays débiteurs n’ont rien à gagner à ce que se développent des situations de désespoir qui échapperaient à tout contrôle. La justice et l’intérêt de tous exigent qu’au niveau mondial la situation soit envisagée dans sa globalité et dans toutes ses dimensions, non seulement économiques et monétaires, mais aussi sociales, politiques et humaines.
+
+Votre Organisation a certainement un rôle de premier plan à jouer dans la coordination et l’animation de l’effort international que la situation réclame, dans un esprit d’équité bien compris, qui s’accorde d’ailleurs avec une appréciation réaliste des choses.
+
+6\. En concluant, je soulignerai que le Saint-Siège partage avec votre Organisation le sentiment que les objectifs prioritaires de l’action commune doivent être:
+
+\- dans l’immédiat, l’intensification du processus de désarmement général, équilibré et contrôlé;
+
+\- le renforcement de l’autorité morale et juridique des Nations Unies pour la sauvegarde de la paix et la coopération internationale en faveur du développement de tous les peuples;
+
+\- l’exécution des accords signés et la défense des droits fondamentaux de la personne humaine;
+
+\- la reconnaissance effective par tous les Etats membres des principes de droit et des règles du jeu contenus dans la Charte de 1945, la “Déclaration universelle des droits de l’homme” de 1948 et les autres instruments juridiques internationaux.
+
+La communauté internationale ne peut pas tolérer que des Etats membres de cette Organisation violent systématiquement et ouvertement les droits fondamentaux de l’homme, en pratiquant la discrimination raciale, la torture, la répression politique et idéologique, l’étouffement des libertés d’opinion et de conscience. Il en va non seulement de l’intérêt des individus et des peuples, mais de la cause de la paix dans les différentes parties du monde.
+
+Pour atteindre ces objectifs, il est indispensable que s’instaure une plus grande confiance entre les nations des différents systèmes sociaux-politiques, et d’abord entre les grandes puissances qui ont, à cet égard, une responsabilité particulière.
+
+Les Nations Unies rempliront d’autant plus efficacement leur haute mission si, dans les Etats membres et chez leurs dirigeants, se développe la conviction que gouverner les hommes, c’est servir un dessein qui les dépasse. La vision pleine d’espérance et de courage des rédacteurs de la Charte de 1945 n’a pas été démentie par les difficultés et les obstacles, et elle ne peut l’être tant que tous les peuples du monde seront décidés à les surmonter ensemble. C’est l’encouragement que je vous adresse; c’est le vœu ardent que je formule de tout cœur et que je confie à la protection de Dieu.
+
+*Du Vatican, le 14 octobre 1985.*
+
+**IOANNES PAULUS PP. II**
+
+* * *
+
+\* *Insegnamenti di Giovanni Paolo II*, vol. VIII, 2 p. 982-988.
+
+*L'Osservatore Romano* 19.19.1985 p.7.
+
+*L'Osservatore Romano. Edition hebdomadaire en langue française* n.44 p.6.
+
+*La Documentation Catholique* n.1906 p.1051-1053.
+
+© Copyright 1985 - Libreria Editrice Vaticana

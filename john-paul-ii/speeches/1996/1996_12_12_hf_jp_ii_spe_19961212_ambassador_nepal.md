@@ -1,0 +1,23 @@
+***ADDRESS OF HIS HOLINESS JOHN PAUL II***
+
+***TO H.E. Mr NOVEL KISHORE RAI,***
+
+***NEW AMBASSADOR OF NEPAL TO THE HOLY SEE\****
+
+*Thursday, 12 December 1996*
+
+1\. Je suis heureux de vous accueillir au Vatican et d'accepter les Lettres par lesquelles Sa Majesté le Roi Birendra Bir Bikram Shah Dev vous accrédite comme Ambassadeur extraordinaire et plénipotentiaire du Népal près le Saint-Siège. Je vous remercie pour les salutations cordiales que vous m'avez transmises au nom de votre Souverain et c'est avec joie que j'adresse en retour mes meilleurs vœux à Sa Majesté, ainsi qu'au peuple du Népal.
+
+2\. Les relations diplomatiques entre le Népal et le Saint-Siège expriment notre conviction commune selon laquelle une plus grande compréhension entre les peuples et la paix dans le monde ne peuvent être construites que sur le respect et la confiance mutuelles dans les relations bilatérales et multilatérales. Ces relations sont elles-mêmes fondées sur le dialogue sincère de l'esprit et du cœur, qui les rend possibles. En même temps, elles revêtent un caractère particulier. La présence et l'activité du Saint-Siège au sein de la Communauté internationale répond à la nature particulière de sa mission essentiellement religieuse et humanitaire. Elle conçoit donc son rôle diplomatique comme devant servir le progrès de la personne humaine et de la société, à travers l'affirmation de valeurs universelles comme la paix, la solidarité, la justice et la liberté (cf. Discours à la 50e Assemblée générale de l'Organisation des Nations unies, New York, 5 octobre 1995, n. 18). L'objet central de sa préoccupation dans chaque situation et dans chaque partie du monde est la dignité qui revient à chaque être humain par le simple fait d'être humain. Cette dignité est un bien propre inaliénable et inhérent qui ne vient ni de la Communauté, ni de l'État, ni même de la loi, mais qui précède les institutions, les lois et les accords et qui détermine leur valeur et leur rectitude. De cet aspect de la dignité humaine, découle la tâche de défendre et de promouvoir les dimensions morales et spirituelles de la vie, personnelle et sociale sans lesquelles les êtres humains ne peuvent atteindre ta plénitude, ni construire une société qui respecte leur nature transcendante.
+
+3\. J'ai noté l'observation de Votre Excellence selon laquelle plus le progrès matériel atteint un niveau élevé, plus les personnes ont besoin d'être illuminés spirituellement, afin de soutenir ce progrès. C'est, en effet, une vérité importante qui ne reçoit pas toujours l'attention qu'elle mérite dans le choix des politiques publiques; car le progrès véritable ne consiste pas à posséder toujours davantage, mais à savoir utiliser ce que l'on possède de façon plus sage et plus responsable. Lorsque nous y parvenons, nous devenons davantage conscients de la centralité et de la valeur inaliénable de la personne humaine, et nous devenons plus ouverts aux autres, en particulier aux faibles et aux indigents. Une nation qui désire être juste et humaine devrait défendre et promouvoir ces valeurs et s'assurer que ses institutions suivent des principes qui lui permettent d'organiser et de gouverner la vie de la société en vue du bien commun. Votre pays a la chance de posséder des ressources religieuses anciennes, qui peuvent offrir un éclaircissement et un encouragement pour atteindre un développement équilibré qui respecte le bien intégral de ses citoyens.
+
+Bien que petite en nombre, la Communauté catholique du Népal exprime cette préoccupation pour le véritable développement humain de façon pratique, à travers la formation spirituelle de ses membres et à travers leur travail dans le domaine de l'éducation et de la santé. Je forme le vœu que ce travail puisse se poursuivre dans un esprit serein de respect et de coopération mutuelle avec le gouvernement et le peuple. L'Église ne recherche pas de privilège particulier, mais uniquement une garantie de liberté qui permette aux personnes d'être fidèles aux principes de la conscience en matière de religion, et de pratiquer leur foi publiquement et pacifiquement, en harmonie avec les fidèles d'autres religions.
+
+Monsieur l'Ambassadeur, tandis que vous oeuvrez à renforcer les relations entre votre pays et le Saint-Siège, je vous assure de la coopération des services de la Curie romaine. J'invoque sur Votre Excellence et sur le Royaume du Népal une abondance de Bénédictions divines.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.52 p.5,6.
+
+© Copyright 1996 - Libreria Editrice Vaticana

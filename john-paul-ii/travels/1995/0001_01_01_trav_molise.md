@@ -1,0 +1,6 @@
+|     |
+| --- |
+|  |
+| ***Visite Pastorale***<br>***dans la région de Molise (Italie)***<br>***(19 mars 1995)***<br>- **Bénédiction de la première pierre du centre biomédical de haute spécialisation de l'Université Catholique du Sacré-Cœur le jour de la fête de saint Joseph (Campobasso, 19 mars 1995)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1995/march/documents/hf_jp-ii_spe_19950319_campobasso.html)\]<br>- **Messe devant le Sanctuaire de la *Madonna Addolorata* à Castelpetroso le jour de la fête de Saint Joseph (Campobasso, 19 mars 1995)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/homilies/1995/documents/hf_jp-ii_hom_19950319_castelpetroso.html)\]<br>- **Récitation de l'Angelus près le Sanctuaire de la *Madonna Addolorata* à Castelpetroso (Campobasso, 19 mars 1995**\[ [Espagnol](/content/john-paul-ii/es/angelus/1995/documents/hf_jp-ii_ang_19950319.html), [Italien](/content/john-paul-ii/it/angelus/1995/documents/hf_jp-ii_ang_19950319.html)\]<br>- **Rencontre avec les représentants des travailleurs de la région à Agnone le jour de la fête de saint Joseph (Campobasso, 19 mars 1995)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1995/march/documents/hf_jp-ii_spe_19950319_agnone.html)\] |
+|  |
+|  |

@@ -1,0 +1,27 @@
+VOYAGE APOSTOLIQUE À ISTANBUL, EPHÈSE ET IZMIR
+
+***DISCOURS DU PAPE PAUL VI***
+
+***DANS LA CATHÉDRALE DE L’ESPRIT SAINT***
+
+*Istanbul - Mardi 25 juillet 1967*
+
+Vénérables Frères, chers Fils, Evêques, prêtres, religieux, religieuses et fidèles catholiques d’Istanbul, et vous tous qui êtes réunis ici pour Nous recevoir, merci de votre accueil! Merci de votre filial et affectueux empressement! Merci de la joie que vous manifestez et de celle que vous Nous procurez!
+
+Eh oui, c’est le Pape qui vient vous rendre visite. Vous ne pensiez pas, sans doute, que cela pourrait se faire un jour. Et Nous-même n’aurions pas cru que cela pourrait se faire si tôt. Dieu soit béni, qui Nous a amené jusqu’ici, et qui Nous permet de célébrer parmi vous ces débuts de l’«Année de la Foi» instituée par Nous afin de commémorer dignement le grand événement du dix-neuvième centenaire du martyre des Saints Apôtres Pierre et Paul.
+
+Nous ne Nous sentons pas étranger dans cette église, où Nous avons l’impression de mettre Nos pas dans ceux de Nos prédécesseurs. N’est-ce pas Benoît XV, de vénérée et chère mémoire, qui Nous a accueilli tout à l’heure à l’entrée? Benoît XV, dont la statue est là pour rappeler aux générations successives le grand cœur de ce pontife magnanime, qui ressentit si douloureusement le déchirement de la première guerre mondiale, et fit tant - dans ce pays comme dans bien d’autres - pour en atténuer les désastreuses conséquences.
+
+Et puis, plus près de nous, le bon Pape Jean, qui, comme Délégué Apostolique, vous parla si souvent ici même, et qui, dans le *Journal de l’Ame*, manifeste toute l’estime et l’affection qu’il portait à ceux dont la Providence l’avait institué le pasteur. Nous avons inauguré son monument, il y a quelques semaines, dans la basilique vaticane, et Nous Nous réjouissons de voir qu’ici aussi son souvenir est honoré et qu’une plaque rappelle la bienfaisante présence en Turquie, pendant dix années, de celui qui devint ensuite et qui restera pour l’histoire l’inoubliable Pape Jean XXIII.
+
+C’est avec le même cœur, avec la même estime, la même affection, que Nous venons à vous aujourd’hui. Nous connaissons vos mérites. Nous admirons votre esprit de foi, votre dévouement, votre énergie, la vôtre surtout, chers Fils et Filles qui appartenez à des ordres religieux, et qui faites honneur à l’Eglise par votre présence dans ce Pays. Nous pensons en particulier aux Pères Assomptionnistes et à leurs magnifiques réalisations dans le champ de la culture; aux Capucins, qui se dévouent depuis tant d’années au Petit Séminaire, aux Lazaristes, aux Frères des Ecoles chrétiennes, aux Salésiens, si méritants dans le domaine de l’éducation chrétienne. Et pouvons-Nous oublier les fils de Saint François, de Saint Dominique, de Saint Ignace, leur coopération à l’apostolat et à la bonne marche du Vicariat? Et que dire des si dévouées Congrégations féminines? Leur action discrète et efficace au service des jeunes, des pauvres et des déshérités, mérite Notre éloge et toute Notre reconnaissance. Soyez tous et toutes, chers Fils et Filles, félicités et encouragés. Et poursuivez vos activités, là où l’obéissance vous a placés, dans un esprit de compréhension, de respect et de collaboration fraternelle. Ce sera votre façon de rendre témoignage au Christ et à son Eglise. Et que ce vous soit à tous et à toutes un réconfort de savoir que le Pape connaît vos travaux et les bénit!
+
+Et puis aidez-Nous, aidez-Nous tous, pasteurs et brebis, dans la grande tâche que Nous avons entreprise et qui a été un, des motifs déterminants de ce voyage: la recomposition de l’unité chrétienne. Vous en sentez ici plus que d’autres la nécessité, vous en voyez aussi, mieux que d’autres, les progrès.
+
+Le récent Concile du Vatican a rappelé que ces progrès étaient basés d’abord sur le renouveau de l’Eglise et sur la conversion du cœur. Cela veut dire que vous contribuerez à cette marche vers l’unité dans la mesure où vous entrerez dans l’esprit du Concile. Un effort est demandé à chacun de nous, pour réviser ses modes habituels de pensée et d’action, pour les rendre plus conformes à l’Evangile et aux exigences d’une vraie fraternité chrétienne. Faisons le généreusement, avec la confiance que l’heure de Dieu viendra, et que nous pouvons en hâter la venue par nos prières et par nos efforts.
+
+Nous sommes heureux de vous adresser cette exhortation dans cette ville au glorieux passé chrétien; la cité dont fut évêque Saint Jean Chrysostome, le grand docteur de l’orient et de l’Occident; celle où l’Eglise célébra jadis quatre de ses Conciles Oecuméniques, et où la présence aujourd’hui du vénérable Patriarche Athénagoras, si zélé, lui aussi, pour la cause de l’unité remplit nos cœurs d’espérance.
+
+Prions ensemble pour obtenir la grâce d’une réponse généreuse à l’appel de l’Eglise et du Concile et la grâce de l’unité plénière de tous ceux qui croient au Christ et professent de cœur et de bouche l’une et indivisible Trinité, Père, Fils et Saint-Esprit. Amen.
+
+To Our beloved sons and daughters, the Catholic people of Istanbul and of Turkey, We extend Our heartfelt greetings, and, in pledge of richest divine graces and heavenly favours, We lovingly impart to you, your families and loved ones, Our special paternal Apostolic Blessing.

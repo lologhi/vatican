@@ -1,0 +1,7 @@
+***DISCOURS DU PAPE JEAN-PAUL II*** ***À UNE DÉLÉGATION OECUMÉNIQUE DE FINLANDE***
+
+*Lundi 19 janvier 2004*
+
+*Chers amis de Finlande,*
+
+Une fois de plus, cette année, je suis heureux d'accueillir votre Délégation oecuménique, à l'occasion de sa visite à Rome pour la fête de saint Henri, Patron de Finlande. En cette Semaine de Prière pour l'unité des chrétiens, je désire exprimer ma gratitude pour le progrès oecuménique accompli entre les catholiques et les luthériens au cours des cinq années qui ont suivi la signature de la [Déclaration commune sur la Doctrine de la Justification](http://localhost/roman_curia/pontifical_councils/chrstuni/documents/rc_pc_chrstuni_doc_31101999_cath-luth-joint-declaration_fr.html). Un signe prometteur de ce progrès sur notre chemin vers la pleine et visible unité a été l'établissement d'un nouveau groupe de dialogue entre luthériens et catholiques en Finlande et en Suède. Je souhaite que les luthériens et les catholiques pratiquent toujours plus une spiritualité de communion, qui puise aux éléments de la vie ecclésiale qu'ils partagent déjà et qui renforcera leur amitié dans la prière et le témoignage de l'Evangile de Jésus Christ. J'invoque cordialement sur vous tous une abondance de Bénédictions de Dieu.

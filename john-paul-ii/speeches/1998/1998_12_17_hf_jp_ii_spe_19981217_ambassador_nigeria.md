@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***LORS DE LA PRÉSENTATION DES LETTRES DE CRÉANCE***
+
+***DU NOUVEL AMBASSADEUR***
+
+***D*** ***U NIGERIA PRÈS LE SAINT-SIÈGE,***
+
+***S.E. M. ISAAC AGBOOLA ALUKO-OLOKUN***
+
+Jeudi 17 décembre 1998
+
+*Monsieur l'Ambassadeur,*
+
+Je vous souhaite une cordiale bienvenue, tandis que j'accepte les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République fédérale du Nigeria près le Saint-Siège. Je saisis cette occasion pour réitérer mes sentiments d'affection et d'estime pour le peuple nigérian, dont j'ai eu la chance de constater personnellement l'hospitalité, l'enthousiasme et les espoirs sincères au cours de ma seconde visite pastorale dans votre pays, au début de cette année. Je suis arrivé «en tant qu'ami, profondément concerné par le destin du Nigeria» (cf. *Discours d'arrivée à Abuja, 21 mars 1998*, n. 2); et c'est avec la même amitié et la même considération pour votre peuple et votre nation, Excellence, que je vous reçois aujourd'hui.
+
+A cet égard, je suis très heureux de noter votre référence au ferme engagement de la part de votre gouvernement à poursuivre le programme de transition au régime civil et votre mention des efforts accomplis pour mettre en place les structures et institutions nécessaires pour assurer un régime démocratique durable au cours du nouveau millénaire. En effet, je ne peux manquer d'être encouragé par les perspectives de stabilité politique et de progrès social que ces mesures représentent, non seulement pour le Nigeria, mais pour tous les autres pays africains également. En ce moment de l'histoire, votre nation peut devenir un phare pour le reste du continent, en montrant que la coopération du gouvernement, des groupes d'intérêt privé et de tous les secteurs de la population - lorsqu'ils sont véritablement engagés à œuvrer ensemble pour l'harmonie et l'unité nationale - peut véritablement édifier une société qui respecte tous ses membres dans leur dignité, leurs droits et leurs libertés.
+
+Une telle société n'est bien sûr possible que si elle est fondée sur les idéaux de la vérité et de la justice, qui sont également les conditions d'une autre recherche importante de notre monde moderne: la recherche de la réconciliation et de la paix. En effet, aucune paix durable ne peut être atteinte uniquement comme résultat de structures et de mécanismes; elle dépend au contraire d'un type de coexistence humaine marqué par le respect mutuel et par la capacité de rechercher et de garantir le pardon. Ce pardon n'exclut pas la recherche de la vérité, mais l'exige au contraire; tout tort infligé doit être reconnu et, autant que possible, réparé. Il n'y a pas de contradiction entre le pardon et la justice, car «le pardon n'élimine pas ni ne diminue l'exigence de la réparation, qui est le propre de la justice, mais il cherche à réintégrer les personnes et les groupes dans la société, ou bien les Etats dans le concert des nations. Aucune punition ne peut altérer l'inaliénable dignité de celui qui a commis le mal. La porte qui ouvre sur le repentir et la réhabilitation doit rester toujours ouverte» ( *Message pour la Journée mondiale de la Paix 1997*, n. 5). C'est dans ce contexte que je voudrais adresser une parole de reconnaissance pour la disponibilité avec laquelle le Général Abubakar et le gouvernement nigérian ont écouté les appels lancés par le Saint-Siège et d'autres personnes en faveur des prisonniers politiques détenus dans votre pays. L'action entreprise par vos dirigeants en réponse à ces appels est un témoignage de leur sincérité et de leur engagement à servir le bien commun de tous les Nigérians et à surmonter les tensions et les divisions du passé.
+
+Excellence, comme vous l'avez remarqué, l'Eglise catholique au Nigeria œuvre depuis de nombreuses années avec zèle pour le développement humain, en particulier dans le domaine de l'éducation et de la santé, apportant un grand bénéfice pour la société. Etant profondément convaincus de la fraternité universelle de tous les hommes et femmes en tant qu'enfants bien-aimés de Dieu créés à son image et ressemblance, les catholiques cherchent à promouvoir le bien commun et à encourager les personnes à ressentir une saine et légitime fierté pour leur pays. Dans ce contexte, et considérant la nouvelle ère politique qui est sur le point de commencer au Nigeria, j'exprime le souhait que les Etats nigérians, encouragés et soutenus par le gouvernement fédéral, prennent les mesures nécessaires pour commencer le processus visant à rendre à l'Eglise les écoles qui ont été confisquées il y a plus de vingt ans. De cette façon, un vaste réseau d'écoles catholiques recommencera à fleurir et pourra apporter une contribution précieuse à l'avenir de la nation.
+
+Un autre facteur important du développement et du progrès de tout pays est la solidarité envers les membres, individus ou groupes, les plus pauvres et les plus indigents de la population. Cela devrait également inclure les personnes durement frappées par les catastrophes naturelles ou causées par l'homme. Mes pensées s'adressent en particulier aux centaines de victimes de la récente explosion et de l'incendie de l'oléoduc dans le sud Nigeria. Une assistance immédiate et des programmes à long terme pour soulager tant de souffrances sont urgents. L'objectif doit être de préserver la dignité humaine de ceux qui sont confrontés à des difficultés; la société doit montrer son engagement à préserver les droits de tous ses membres, sans aucune distinction.
+
+Monsieur l'Ambassadeur, je suis reconnaissant pour les salutations cordiales que vous me transmettez de la part du général Abubakar, et je vous demande de lui transmettre, ainsi qu'au gouvernement, mes meilleurs vœux. Tandis que vous assumez vos hautes responsabilités, je vous assure de la pleine coopération des dicastères de la Curie Romaine pour le succès de votre mission. Sur vous, ainsi que sur le bien-aimé peuple du Nigeria, j'invoque les Bénédictions abondantes de Dieu tout-puissant.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* 1999 n.3 p.5, 6.
+
+© Copyright 1998 - Libreria Editrice Vaticana

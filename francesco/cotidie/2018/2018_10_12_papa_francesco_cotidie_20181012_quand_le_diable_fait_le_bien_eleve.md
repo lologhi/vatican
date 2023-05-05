@@ -1,0 +1,19 @@
+**PAPE FRANÇOIS**
+
+MÉDITATION MATINALE EN LA CHAPELLE DE LA
+
+MAISON SAINTE-MARTHE
+
+***Quand le diable fait le bien élevé***
+
+*Vendredi 12 octobre 2018*
+
+( *L'Osservatore Romano*, *Édition hebdomadaire n°045 du 6 novembre 2018*)
+
+François a mis en garde contre la stratégie du diable, qui fait «le bien élevé» et sonne même à la porte de la maison en se présentant comme un ami. Prière, examen de conscience, ainsi que «vigilance et calme» comme l’enseignait Isaïe, sont les réponses justes pour démasquer les astuces du diable et ne pas finir «sur la route de la médiocrité et de la mondanité». En se référant au passage évangélique de Luc (11, 15-26) proposé par la liturgie, le Pape a fait remarquer que «Jésus chasse le démon». «L’essence du démon est détruire». Pourtant, «nous sommes comme des enfants, très souvent, nous suçons notre pouce et nous croyons: “Non, mais ce n’est pas ainsi, ce sont des inventions des prêtres, non, ce n’est pas vrai”».
+
+«Dans l’Evangile le diable détruit et quand il ne peut pas détruire face à face, parce qu’en face il y a une force de Dieu qui défend la personne, le démon est plus malin qu’un renard, il est astucieux et cherche la manière de reprendre possession de cette maison, de cette âme, de cette personne». «Quand le diable ne peut pas s’imposer par la force, ne peut pas détruire une personne par des vices évidents, ne peut pas détruire un peuple par les guerres, les persécutions, il pense à une autre stratégie et c’est la stratégie qu’il utilise avec nous tous». En effet, «nous sommes chrétiens, catholiques, nous allons à la Messe, nous prions: tout semble en ordre, nous avons nos défauts, nos petits péchés, mais tout semble en ordre». Alors le diable «fait “le bien élevé”: il part, il voit, il cherche un beau groupe, il frappe à la porte — “je peux? Je peux entrer?” — il sonne et ces démons bien élevés sont pires que les premiers, parce que tu ne t’aperçois pas que tu les as chez toi». «C’est l’esprit mondain».
+
+Et en agissant ainsi, «nous tombons dans cette médiocrité spirituelle, dans cet esprit du monde: “Mais cela n’est pas si mal”». Et «l’esprit du monde nous abîme, nous corrompt de l’intérieur». «Quand on me dit: “Nous avons besoin d’une exorciste parce qu’une personne est possédée par le diable”, je ne suis pas aussi préoccupé que quand je vois ces gens qui ont ouvert la porte aux démons bien élevés, à ceux qui persuadent de ne pas être des ennemis: “Nous sommes amis”». Car, comme le dit l’Evangile d’aujourd’hui, «la dernière condition de cet homme devient pire que la première». Le Pape a souligné: «Je me demande très souvent ce qui est pire dans la vie d’une personne: un péché évident ou vivre dans l’esprit du monde, de la mondanité? Que le démon t’entraîne vers un péché — pas un, même vingt, trente péchés, mais évidents, dont tu as honte — ou que le démon soit à table avec toi et habite avec toi et que tout soit normal, mais qu’il s’insinue et te possède avec l’esprit de la mondanité?».
+
+«La prière de Jésus lors de la dernière Cène me vient à l’esprit: “Père je te le demande pour ceux-là, défends-les de l’esprit du monde”». Et «l’esprit de la mondanité est celui-ci: celui qu’apportent les démons bien élevés». «Prions sans peur» a invité le Pape en rappelant l’avertissement d’Isaïe à Achaz. «Quand un jour, le peuple d’Israël a vu venir contre lui une grande armée, capable de tout détruire, il a prit peur et le prophète, au nom de Dieu a dit: “Vigilance et calme”». Et ainsi, «devant ces démons bien élevés qui veulent entrer par la porte de la maison comme des invités à un mariage, nous disons: “vigilance et calme”». Ainsi «la vigilance est le message de Jésus, la vigilance chrétienne». En conclusion, le Pape a suggéré un examen de conscience sur ce point: «Que se passe-t-il dans mon cœur? Pourquoi suis-je si médiocre? Pourquoi suis-je si tiède? Combien de démons “bien élevés” logent chez nous sans payer le loyer?».

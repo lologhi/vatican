@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE JEAN-PAUL II* *À SA SAINTETÉ BARTHOLOMAIOS I,***
+
+***PATRIARCHE OECUMÉNIQUE DE CONSTANTINOPLE***
+
+*Mardi 29 juin 2004*
+
+*Votre Sainteté,*
+
+*vénérés et bien-aimés frères du Patriarcat oecuménique!*
+
+1. Soyez les bienvenus au nom du Seigneur! C'est à lui que nous adressons notre remerciement, car il nous donne aujourd'hui de nous rencontrer, en la Fête des Saints Pierre et Paul, vénérés également par la *Liturgie orthodoxe* comme *Protóthronoi*, c'est-à-dire ceux qui siègent sur les premiers trônes.
+
+Nous rendons, en outre, grâce à Dieu en commémorant ensemble la bienheureuse rencontre qui eut lieu il y a quarante ans entre mon vénéré prédécesseur, le *Pape Paul VI*, et le vénéré *Patriarche Athénagoras I*. Celle-ci eut lieu à Jérusalem, où Jésus fut élevé sur la croix pour racheter l'humanité et la réunir dans l'unité. Combien cette rencontre fut providentielle pour la vie de l'Eglise, et combien fut-elle à la fois courageuse et joyeuse! Poussés par la confiance et par l'amour pour Dieu, nos prédécesseurs éclairés ont su surmonter les préjugés et les incompréhensions séculaires et ont offert un admirable exemple de pasteurs et de guides du Peuple de Dieu. En se redécouvrant frères, ils ont ressenti un sentiment de profonde joie, qui les a poussés à reprendre avec confiance les relations entre l'Eglise de Rome et l'Eglise de Constantinople. Que Dieu les récompense dans son Royaume!
+
+2. Votre Sainteté, je vous accueille avec une grande affection, et je suis véritablement heureux de pouvoir vous accueillir dans cette maison, qui garde la mémoire vivante des saints Apôtres. Avec vous, je salue ceux qui vous accompagnent et, en particulier, les Métropolites et la Délégation du Patriarcat. Je salue également le groupe de fidèles de l'archidiocèse grec-orthodoxe d'Amérique et le groupe de professeurs et d'étudiants de l'Institut de Théologie orthodoxe d'Etudes supérieures de Chambésy, guidés par l'Evêque Makarios. Je vous remercie tous pour votre présence cordiale.
+
+Au cours de ces quarante ans, nos Eglises, dans le cadre de leurs relations, ont vécu des *occasions importantes de contact*, qui ont favorisé l'esprit de réconciliation réciproque. Nous ne pouvons pas oublier, par exemple, l'échange de visites entre le Pape Paul VI et le Patriarche Athénagoras en 1967. Je conserve également un vif souvenir de ma visite au Phanar en 1979, et de l'annonce, avec le Patriarche Dimitrios I, du début du dialogue théologique. Je me souviens, en outre, de la visite à Rome du Patriarche Dimitrios I en 1987, et de celle de Votre Sainteté, en 1995, qui ont été suivies par d'autres occasions importantes de rencontre. Il s'agit d'autant de signes de l'engagement commun de continuer à parcourir le chemin entrepris, afin que se réalise au plus tôt la volonté du Christ:  *Ut unum sint!*
+
+3. *Le long de ce chemin, ont bien sûr pesé les souvenirs des événements douloureux de l'histoire passée.* En particulier, en cette circonstance, nous ne pouvons oublier ce qui a eu lieu au mois d'avril de l'année 1204. Une armée partie pour rendre la Terre Sainte aux chrétiens, se dirigea vers Constantinople pour s'en emparer et la piller, versant le sang de nos frères dans la foi. Comment ne pas partager nous aussi, huit siècles plus tard, l'indignation et la douleur qu'exprima immédiatement le Pape Innocent III en apprenant ce qui s'était passé? Après tant de temps, nous pouvons analyser les événements d'alors avec une plus grande objectivité, même si nous sommes conscients de la difficulté de rechercher la pleine vérité historique.
+
+A cet égard, nous sommes soutenus par l'avertissement de l'Apôtre Paul:  *"Ainsi donc, ne portez pas de jugement prématuré. Laissez venir le Seigneur; c'est lui qui éclairera le secret des ténèbres et rendra manifestes les desseins des coeurs"* (1 *Co* 4, 5). Prions donc afin que le Seigneur de l'histoire purifie notre mémoire de tout préjugé et ressentiment, et nous accorde d'avancer librement sur la voie de l'unité.
+
+4. C'est à cela que nous invite également l'exemple laissé par le Patriarche Athénagoras I et par le Pape Paul VI, que nous commémorons aujourd'hui. Que le souvenir de cette rencontre favorise un nouveau bond en avant dans le dialogue et le renforcement des relations fraternelles réciproques. Le dialogue théologique, à travers la "Commission mixte", demeure à cette fin un instrument important. C'est pourquoi je souhaite qu'il soit rétabli au plus tôt. En effet, je suis convaincu de cette urgence, et mes collaborateurs et moi-même souhaitons mettre à profit tous les moyens possibles pour alimenter l'esprit d'accueil et de compréhension réciproque, dans la fidélité à l'Evangile et à la Tradition apostolique commune. Nous sommes poussés sur cette voie par le commandement ancien et toujours nouveau de l'amour, dont l'Apôtre Paul se faisait l'écho à travers ses célèbres paroles:  *"Que l'amour fraternel vous lie d'affection entre vous, chacun regardant les autres comme plus méritants"* ( *Rm* 12, 10).
+
+5. Je confie ces intentions de réconciliation et de pleine communion aux Saints Apôtres que nous rappelons aujourd'hui. Nous les invoquons avec confiance, afin que leur intercession céleste nous renforce dans la foi et nous rende persévérants pour chercher à réaliser au plus tôt la volonté du Christ. Que Marie, la Mère de Celui qui nous appelle tous à la pleine unité dans son amour, nous obtienne ce don.
+
+Avec ces sentiments, je renouvelle à Votre Sainteté, ainsi qu'à vous tous, hôtes éminents, une très cordiale bienvenue.

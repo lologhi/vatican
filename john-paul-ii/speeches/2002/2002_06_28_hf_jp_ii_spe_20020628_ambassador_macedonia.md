@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***À L'AMBASSADEUR DE L'EX-RÉPUBLIQUE YOUGOSLAVE***
+
+***DE MACÉDOINE PRÈS LE SAINT-SIÈGE\****
+
+*Vendredi 28 juin 2002*
+
+*Monsieur l'Ambassadeur,*
+
+Au moment où j'accepte les Lettres qui vous accréditent en tant qu'Ambassadeur extraordinaire et plénipotentiaire de l'ex-République de Macédoine près le Saint-Siège, je vous adresse une cordiale bienvenue. Reconnaissant pour les voeux cordiaux que, par votre aimable intermédiaire, Son Excellence le Président de la République, M. Boris Trajkovski, m'a adressés, je vous demande de bien vouloir lui faire parvenir mes voeux cordiaux, que j'accompagne d'une prière particulière à Dieu afin que le bien-aimé peuple de son pays puisse continuer d'agir avec sagesse en vue du développement humain authentique de la nation, ainsi que de la paix et de la justice dans la région. Ce faisant, ses concitoyens démontreront qu'ils sont de fidèles héritiers de la riche tradition chrétienne qui leur a été léguée par l'Apôtre Paul et par les saints frères Cyrille et Méthode.
+
+L'acte solennel d'aujourd'hui de la présentation des Lettres de Créance se déroule dans un contexte mondial tout autre que pacifique. Dans diverses parties du monde ont lieu d'alarmantes manifestations de violence, souvent motivées par d'anciennes inimitiés et par la tentation d'alimenter des animosités passées.
+
+Malheureusement, votre pays également a connu par le passé des épreuves douloureuses. Les autorités de votre nation, en étroite collaboration avec les responsables de la Communauté internationale, ont affronté ces difficultés avec soin. Les réformes constitutionnelles nécessaires ont été effectuées. Les lois qui conduisent au respect des droits des minorités ont été promulguées, à travers la promotion des diverses composantes de la population aux divers niveaux du processus politique. Cela aidera à avancer sur la voie du dialogue, de la réconciliation et de la coexistence pacifique.
+
+Sur ce chemin, l'Eglise ne cesse de rappeler que l'attention principale doit se concentrer sur le coeur humain. C'est là, en effet, que peuvent se nicher la haine et l'esprit de domination, des sentiments qui sont à l'origine de tout acte d'oppression. C'est donc du coeur que l'on devra partir pour déraciner de tels sentiments et les remplacer par une attitude de fraternité et d'ouverture à l'égard des autres, en voyant davantage en eux ce qui unit que ce qui divise. En réalité, une société qui veut être véritablement civile et désire contribuer au progrès des peuples doit cultiver chez tous ses membres une compréhen-sion objective et impartiale des autres. Une telle compréhension revêt une valeur inestimable pour aider les personnes à accepter les traditions culturelles et religieuses différentes des leurs. Cela constitue, en réalité, le premier pas vers la réconciliation, étant donné que le respect des diversités est une condition indispensable pour un rapport authentique entre individus et groupes. Une culture ethnocentrique, même lors-qu'elle prétend résoudre les problèmes présents, ne réussit qu'à exacerber les difficultés et engendrer d'autres divisions.
+
+L'Eglise est profondément préoccupée par la dimension sociale de la vie humaine, et cette préoccupation pour le bien-être de la société est une partie essentielle du message chrétien (cf. *[Centesimus annus](/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_01051991_centesimus-annus.html)*, n. 5). C'est pourquoi elle invite ses membres à prendre une part active à la vie politique, économique et sociale dans les pays respectifs, afin de diffuser en chacun d'eux la lumière de la foi et le message évangélique de la réconciliation et du pardon.
+
+Toutefois, les conditions de la justice exigent que, à chaque fois qu'une erreur est commise ou que l'on fait du mal, on le reconnaisse et que, dans la mesure du possible, on le répare.
+
+Mais la justice humaine trouve son fondement ultime dans la loi de Dieu et dans son plan de salut pour l'humanité (cf. *[Dives in misericordia](/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_30111980_dives-in-misericordia.html)*, n. 14). C'est pourquoi, dans sa pleine acception, la justice ne se limite pas à établir ce qui est juste entre les parties en conflit, mais présuppose également que soit recomposée la juste harmonie de chacun avec Dieu, avec les autres, et avec soi-même. C'est pour cette raison qu'il n'y a pas de contradiction entre pardon et justice; le pardon, en effet, ne diminue pas les exigences de la justice, mais tente de réintégrer les personnes et les groupes dans la société et les Etats dans la communauté des nations, à travers un sens renouvelé de responsabilité et, là où cela est possible, à travers la solidarité avec les victimes des injustices passées.
+
+Tel est la raison pour laquelle tous les secteurs de la société doivent agir ensemble pour édifier une coexistence civile dans laquelle la dignité de la personne et le respect des droits humains soient la norme de conduite pour tous:  personnes, gouvernements et organismes internationaux. Oui, la véritable paix est le fruit de la justice, "vertu morale et garantie légale qui veille sur le plein respect des droits et des devoirs et sur la répartition équitable des profits et des charges" ( *[Message pour la Journée mondiale de la Paix 2002](/content/john-paul-ii/fr/messages/peace/documents/hf_jp-ii_mes_20011211_xxxv-world-day-for-peace.html)*, n. 3, cf. ORLF n. 49 du 11 décembre 2002). Tel doit être le contexte plus vaste pour les diverses priorités que - dans la longue tradition de tolérance et de respect envers les divers groupes ethniques auxquels vous avez fait référence - le gouvernement poursuit, tout en s'efforçant d'introduire une nouvelle ère de paix et de stabilité pour la nation.
+
+Je suis heureux de pouvoir vous assurer que les catholiques, en dépit de leur situation de petite minorité dans le pays, ne manqueront pas de participer à l'édification de la société civile, en particulier à la promotion et à la sauvegarde des droits humains, à l'assistance dans les situations de pauvreté et à l'éducation de la jeunesse.
+
+Monsieur l'Ambassadeur, la décision de Votre gouvernement de nommer un Ambassadeur près le Saint-Siège avec résidence à Rome ne peut que renforcer les liens d'amitié et de compréhension qui existent déjà. Je suis certain que vos responsabilités serviront à approfondir cette relation, et je vous assure que les divers bureaux du Saint-Siège contribueront de toutes les façons possibles à vous faciliter l'accomplissement de votre mission. Avec ces sentiments, j'invoque sur vous et sur le bien-aimé peuple de l'ex-République de Yougoslavie les abondantes Bénédictions du Très-Haut.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.36 p.5.
+
+© Copyright 2002 - Libreria Editrice Vaticana

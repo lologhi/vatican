@@ -1,0 +1,59 @@
+***DISCOURS DU PAPE JEAN-PAUL II******AUX ÉVÊQUES D'ARGENTINE***
+
+***EN VISITE AD LIMINA APOSTOLORUM***
+
+*28 octobre 1979*
+
+*Bien-aimés frères en l'épiscopat,*
+
+1. Je rends grâces au Seigneur qui m'accorde cette rencontre très désirée avec vous, évêques de l'Église d'Argentine. C'est une rencontre dont la joie est obscurcie par le récent décès du Cardinal Antonio Caggiano qui durant sa longue vie a donné tant d'exemples de vertu et créé des  œuvres si fécondes. Votre visite *ad limina* qui est aussi comme un complément de celle d'autres évêques argentins qui vous ont précédés, arrive aujourd'hui à son point culminant. J'ai pu déjà avoir des contacts personnels avec chacun de vous et, par vous, avec vos collaborateurs : les prêtres, les religieux et religieuses et les laïcs de chaque diocèse d'un pays géographiquement lointain, mais très proche de mon cœur de Pasteur de l'Église universelle.
+
+Je désire exprimer dès à présent ma gratitude et ma satisfaction pour votre zèle apostolique et j'aime à vous dire combien me plaît l'esprit chrétien qui rayonne dans les communautés ecclésiales confiées à vos responsabilités.
+
+2. Je suis, avec tout spécial intérêt, votre louable sollicitude à mettre sur pied une pastorale organique de la famille et j'envisage avec espérance le plein développement du "Programme d'Action Pastorale Mariage et Famille" que, comme vient de le rappeler Son Excellence l'Archevêque de Corrientes, votre Conférence épiscopale a pu lancer avec caractère prioritaire; il y a déjà quelques années et qui intéresse toutes les Églises particulières en Argentine.
+
+Il me plaît que vous ayez pu, en vue de cet objectif, élaborer une pastorale d'ensemble, capable d'unir et de valoriser les forces apostoliques à tous les niveaux, les faisant converger harmonieusement vers des objectifs de portée nationale. Cette manière contribue efficacement à cet heureux résultat que seule la convergence des intentions, de l'action et des méthodes permet d'obtenir dans une œuvre si importante, celle de former et guider les familles dans toute la dimension d'une vie véritablement chrétienne.
+
+3. Je trouve également un motif de joie dans votre décision de présenter à la Très Sainte Vierge Marie le fruit de votre travail au Congrès marial national que vous célébrerez l'an prochain à Mendoza. Soyez assurés que ce sera un fruit très agréable au Seigneur parce qu'il mûrira sous la protection de sa Mère : surtout du fait que vous vous efforcez de développer la dévotion envers elle dans vos communautés ecclésiales et dans les familles, pour garantir la bonne fin de vos projets.
+
+Je vous encourage à continuer sur cette voie et ce, avec toute l'ampleur et la profondeur possibles afin que ses effets bénéfiques se fassent sentir tant dans l'Église que dans la société civile.
+
+De cette manière, vous cheminerez par les sentiers que le Concile Vatican II a tracés en insistant sur l'importance du mariage et de la famille (cf. *[Lumen Gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, n. 11, 41 ; *[Gaudium et Spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, nn. 47-52 ; *[Apostolicam actuositatem](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651118_apostolicam-actuositatem_fr.html)*, n. 11 ; *[Gravissimum educationis momentum](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_gravissimum-educationis_fr.html)*, n. 3...). C'est également un sujet auquel je me suis référé de nombreuses fois durant cette première année de mon pontificat.
+
+4\. Parlant à des évêques latino-américains, je ne puis manquer de rappeler que dans le [discours inaugural de la Conférence de Puebla](http://www.vatican.va/holy_father/john_paul_ii/speeches/1979/january/documents/hf_jp-ii_spe_19790128_messico-puebla-episc-latam_fr.html) j'ai indiqué, le thème de la famille comme une des tâches prioritaires des pasteurs (IV, a). Je lui ai consacré également mon [homélie au Séminaire Palafoxian](http://www.vatican.va/holy_father/john_paul_ii/homilies/1979/documents/hf_jp-ii_hom_19790128_messico-puebla-seminario_fr.html). J'appelle votre attention sur tout ce que j'y ai dit.
+
+Les pasteurs ont le devoir précis d'enseigner et de défendre la doctrine de l'Église au sujet du mariage et de l'institution familiale afin de sauvegarder ses éléments constitutifs, ses exigences et ses valeurs éternelles.
+
+Grâce à Dieu, le sentiment de la famille est resté profondément enraciné dans votre peuple. Mais nous ne saurions méconnaître que les tendances permissives de la société moderne ont un impact de plus en plus fort sur ce secteur vital que l'Église doit protéger de toutes ses forces.
+
+Le mariage, qui donne une base à la famille, est une communauté de vie et d'amour instituée par le Seigneur pour la continuation du genre humain et dont le destin n'est pas seulement terrestre, mais aussi éternel (cf.*[Gaudium et Spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, n. 48). Efforcez-vous donc de défendre son unité et son indissolubilité, appliquant à la vie de la famille la pensée centrale de la Conférence de Puebla : communion et participation.
+
+Communion, c'est-à-dire disposition interne de compréhension et d'amour des parents entre eux et de ceux-ci à l'égard de leurs enfants. Participation, c'est-à-dire mutuel respect et don réciproque, dans les moments heureux comme aux jours d'épreuve.
+
+Au sein de cette unité, vivifiée par l'amour, le mariage resolendit comme une source de la vie humaine, d'accord avec les lois établies par Dieu lui-même. Ceci nous démontre la nécessité d'insister sur le sentiment chrétien de la paternité responsable, conformément à l'esprit de l'Encyclique *[Humanae Vitae](http://www.vatican.va/holy_father/paul_vi/encyclicals/documents/hf_p-vi_enc_25071968_humanae-vitae_fr.html)* de Paul VI. Ne vous lassez donc jamais de proclamer un droit fondamental de l'être humain: celui de naître (cf. *[Discours inaugural de Puebla](http://www.vatican.va/holy_father/john_paul_ii/speeches/1979/january/documents/hf_jp-ii_spe_19790128_messico-puebla-episc-latam_fr.html)*, n. 2).
+
+Une pastorale familiale adéquate devra vivement tenir compte de la triple fonction que doivent remplir les familles latino-américaines comme "éducatrices à la foi, formatrices de la personne, promotrices du développement" ( [*Homélie* *au Séminaire de Puebla*](http://www.vatican.va/holy_father/john_paul_ii/homilies/1979/documents/hf_jp-ii_hom_19790128_messico-puebla-seminario_fr.html), 2).
+
+En effet le foyer chrétien doit être la première école de la foi où la grâce baptismale s'ouvre à la connaissance et à l'amour de Dieu, de Jésus-Christ, de la Vierge et où l'on approfondit progressivement la connaissance des vérités chrétiennes devenues normes de comportement pour les parents et les enfants. La catéchèse familiale, à tout âge et selon des pédagogies diverses, est des plus importantes. Elle doit être rendue efficace grâce à une initiation chrétienne déjà avant la première communion et se développer moyennant la fréquentation consciente et responsable des autres sacrements. Ainsi, la famille sera authentiquement une "Eglise domestique" (cf.*[Lumen Gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, n. 11 ; *[Apostolicam actuositatem](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651118_apostolicam-actuositatem_fr.html)*, n. 11).
+
+Comme formatrice de la personne, la famille a un rôle tout spécial qui lui confère un certain caractère sacré, avec des droits propres fondés en dernière instance sur la dignité de la personne humaine et, pour cette raison elle doit toujours être respectée. J'ai eu l'occasion de l'exprimer dans mon discours à l'Organisations des États Américains : "Quand nous parlons du droit à la vie, à l'intégrité physique et morale, à la nourriture, au logement, à l'éducation, à la santé, au travail, à la responsabilité partagée dans la vie de la nation, nous parlons de la personne humaine. C'est cette personne humaine-là que la foi nous fait reconnaître comme créée à l'image de Dieu et destinée à une fin éternelle". Une pastorale familiale doit donc veiller à la défense de ces droits. Elle contribue ainsi à faire également de la famille un véritable et efficace agent de développement.
+
+D'autre part, il est évident que pour pouvoir travailler efficacement en la matière, il faut s'efforcer sérieusement d'éliminer les causes profondes des nombreux déséquilibres dans la société et, par conséquent, dans la famille. Ne manquez pas de considérer, à cet égard les répercussions énormes, et non seulement d'ordre moral, qu'ont certaines situations d'évidente injustice sociale ou qui affectent également le secteur des relations de travail.
+
+Aussi, ne manquez pas, comme faisant partie de votre ministère, de proposer et de propager une saine doctrine morale publique, parfaitement en harmonie avec l'enseignement social de l'Église qui, si elle conduit à une mise en pratique fidèle et sans concessions d'aucune sorte, transformera en réalités fécondes les exigences d'ordre humain et évangélique qu'elle entend protéger.
+
+5. Si, justement préoccupés de sauvegarder ces droits humains, vous mettez, bien en relief les principes ci-dessus énoncés, vous découvrirez dans le manque de respect dû à ces principes la raison du déchaînement de la violence.
+
+Afin de contribuer autant qu'il est en votre pouvoir à liquider définitivement le cycle de la violence, procédez, vénérables frères, avec le plus grand zèle à l'accomplissement de vos devoirs pastoraux ; faites en sorte que la société et la cellule première de la société, c'est-à-dire la famille, s'intègrent dans cette civilisation de l'amour que désirait si vivement mon prédécesseur [Paul VI](http://www.vatican.va/holy_father/paul_vi/index_fr.htm).
+
+6. Si, devant les exigences de votre vaste et peu facile programme, le nombre des collaborateurs dont vous disposez vous parait inadéquat — malgré la récente augmentation des vocations — que vous encourage cette prometteuse affirmation conciliaire : "L'aide la plus précieuse est fournie par les familles, animées d'un esprit de foi, d'espérance et de charité, qui sont comme le premier séminaire" (cf. *[Optatam totius](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651028_optatam-totius_fr.html)*, n. 2). Leur contribution est extrêmement utile pour susciter des vocations à la vie sacerdotale, religieuse et, en général, à celles d'une vie consacrée.
+
+Dieu a voulu nous laisser un modèle dans la sainte famille de Nazareth. Que Jésus Marie et Joseph inspirent, soutiennent et encouragent votre pastorale familiale et la tâche de tous vos collaborateurs.
+
+7. Avant de conclure cette rencontre je désire faire allusion à la reconnaissance que vous m'avez exprimée pour la mission de médiateur que j'ai acceptée afin de contribuer à la paix et à l'amitié entre deux nations-sœurs : l'Argentine et le Chili.
+
+Sachez que j'apprécie beaucoup le fait que vous avez facilité ma tâche avec votre action pastorale qui, fondée sur la prière et les enseignements de l'Évangile, a contribué efficacement à créer un climat favorable à la solution ardemment désirée, pour le bien de tous.
+
+Je vous charge finalement d'une mission particulière : que vous portiez à vos prêtres, diacres, religieux, religieuses, séminaristes, artisans de l'apostolat et à tous vos fidèles, le salut et la bénédiction du Pape qui pense à tous et prie pour tous avec grande affection et une vive espérance. Avec eux je vous bénis tous.
+
+© Copyright 1979 - Libreria Editrice Vaticana

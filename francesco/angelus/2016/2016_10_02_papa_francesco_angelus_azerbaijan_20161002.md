@@ -1,0 +1,31 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS](http://w2.vatican.va/content/francesco/fr/travels/2016/outside/documents/papa-francesco-messico-2016.html) [EN GÉORGIE ET AZERBAÏDJAN](http://w2.vatican.va/content/francesco/fr/travels/2016/outside/documents/papa-francesco-georgia-azerbaijan-2016.html)
+
+(30 SEPTEMBRE - 2 OCTOBRE 2016)
+
+***ANGÉLUS***
+
+*Centre Salésien - Bakou*
+
+*Dimanche, 2 octobre 2016*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/10/2/azerbaijan-angelus.html)\]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Au cours de cette célébration eucharistique j’ai rendu grâce à Dieu avec vous, mais aussi pour vous : ici, la foi, après les années de la persécution, a accompli des merveilles. Je voudrais rappeler les nombreux chrétiens courageux qui ont fait confiance au Seigneur et qui ont été fidèles dans l’adversité. Comme le fit saint Jean-Paul II, je vous adresse à tous les paroles de l’Apôtre Pierre : « Honneur à vous qui croyez ! » (1P 2, 7 ; *[Homélie](http://w2.vatican.va/content/john-paul-ii/fr/homilies/2002/documents/hf_jp-ii_hom_20020523_sport-palace-baku.html)*, Baku, 23 mai 2002 : *Enseignements* XXV, 1 \[2002\], 852).
+
+Notre pensée va maintenant à la Vierge Marie, qui est vénérée dans ce pays, pas seulement par les chrétiens. Nous nous adressons à elle avec les paroles par lesquelles l’Ange Gabriel lui porta la joyeuse annonce du salut préparé par Dieu pour l’humanité.
+
+Dans la lumière qui resplendit du visage maternel de Marie, je vous adresse un salut cordial, chers frères de l’Azerbaïdjan, encourageant chacun à témoigner avec joie de la foi, de l’espérance et de la charité, unis entre vous et à vos pasteurs. Je salue et je remercie en particulier la famille salésienne, qui prend beaucoup soin de vous et qui promeut diverses bonnes œuvres, ainsi que les Sœurs Missionnaires de la Charité : continuez avec enthousiasme votre travail au service de tous !
+
+Confions ces vœux à l’intercession de la Très Sainte Mère de Dieu et invoquons sa protection pour vos familles, pour les malades et les personnes âgées, pour tous ceux qui souffrent dans leur corps ou dans leur esprit.
+
+\[ *Angélus*\]
+
+\[ *Bénédiction*\]
+
+On peut penser que le Pape perd beaucoup de temps : faire tant de kilomètres de voyage pour visiter une petite communauté de 700 personnes, dans un pays de 2 millions… Cependant c’est une communauté qui n’est pas uniforme parce que parmi vous on parle l’azéri, l’italien, l’anglais, l’espagnol… : tant de langues… C’est une communauté de périphérie. Mais le Pape, en cela, imite l’Esprit Saint : Lui aussi est descendu du ciel dans une petite communauté de périphérie enfermée au Cénacle. Et à cette communauté qui avait peur, se sentait pauvre et peut-être persécutée, ou laissée de côté, il donne le courage, la force, l’assurance pour aller de l’avant et proclamer le nom de Jésus ! Et les portes de cette communauté de Jérusalem, qui étaient fermées par la peur ou la honte, s’ouvrent tout grand et en sort la force de l’Esprit. Le Pape perd du temps comme l’a perdu l’Esprit Saint à ce moment !
+
+Deux choses seulement sont nécessaires : dans cette communauté, il y avait la Mère – n’oubliez pas la Mère !- ; et dans cette communauté, il y avait la charité, l’amour fraternel que l’Esprit Saint a reversé sur eux. Courage ! En avant ! *Go ahead !* Sans peur, en avant !

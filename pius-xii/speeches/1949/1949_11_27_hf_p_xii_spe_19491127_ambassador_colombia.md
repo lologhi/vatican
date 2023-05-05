@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE PIE XII***
+
+***AU NOUVEL AMBASSADEUR DE COLOMBIE PRÈS LE SAINT-SIÈGE,***
+
+***S.E.M.*** ***FRANCISCO DE PAULA PÉREZ\****
+
+*Dimanche 27 novembre 1949*
+
+Afin d’accomplir l’honorable mission que Monsieur le Président de la République a confiée à Votre Excellence, Elle a abandonné sa regrettée patrie, pour la représenter au centre même de la chrétienté en qualité d’Ambassadeur extraordinaire et plénipotentiaire d’une nation qui a su faire de la fidélité à ses traditions catholiques et de la dévotion à ce Siège de Pierre un de ses plus précieux héritages et de ses plus énergiques impératifs au cours de son histoire ; d’une histoire où semblent resplendir les dons de Dieu les plus opposés, car cette nation s’enrichit aussi bien des gestes héroïques d’un Alonse d’Ojeda, d’un Jean de la Cosa et surtout d’un Gonzalve Jimenez de Quesada que des délicatesses d’esprit qui remplissent les pages de ces grands érudits qui furent les deux Caros et Ruffin Joseph Cuervo. Votre Excellence, homme de lettres, apparaît à Nos yeux comme l’héritier légitime de ce glorieux Parnasse, qu’un maître des lettres espagnoles n’hésita pas d’appeler : « aristocratique, cultivé et parfait ».
+
+Une vie d’austère travail scientifique, consacrée avec un sincère dévouement aux diverses branches du savoir juridique, a fait de Votre Excellence un des professeurs les plus estimés de droit constitutionnel, dans les principales universités de son pays.
+
+Le contact vivant avec les fondements et les réalités du monde économique et social, en leurs zones de lumière et d’ombre, non moins qu’en ses aspects multiples et souvent douloureux, ont imprimé dans la pensée et dans la volonté, dans le discernement et dans la manière d’agir de Votre Excellence ce sens social, qui est aujourd’hui une condition indispensable pour pouvoir affronter les problèmes de notre société avec ce haut degré de sérieux et de constance qui est une prémisse indispensable et fondamental pour arriver aux solutions saines et durables parmi le contraste des opinions et des intérêts.
+
+Les nombreuses années que Votre Excellence a aussi vouées à son activité de journaliste lui ont permis de pénétrer, avec un regard expert, dans les diverses classes de la nation ; dans les aspirations et dans les désirs, dans les nécessités et dans les misères de ses multitudes, comprenant pleinement le rôle principal qui correspond aux énergies qui naissent d’une foi robuste pour pouvoir prendre part aux grandes luttes spirituelles de notre temps, sous tous les cieux et sous toutes les latitudes.
+
+Il est naturel que, lorsqu’un homme de gouvernement, de la valeur de Votre Excellence quitte son pays, même en accomplissant son devoir, pour continuer à le servir à un autre endroit et avec d’autres moyens, ses partisans et admirateurs croient que ce déplacement pour des plages lointaines est une perte pour la nation. Mais si le départ de Votre Excellence semble une perte pour la Colombie, par contre, pour Rome et pour le Corps diplomatique accrédité auprès de Nous, elle est une richesse et un gain. Et pour Votre Excellence elle-même Nous sommes sûr qu’elle procurera aussi une singulière satisfaction, puisque celui qui avait été appelé par la confiance de ses compatriotes pour faire partie du Comité colombien de l’année sainte, pourra maintenant contempler de ses propres yeux, à Rome même et d’une position si élevée, le déroulement du grand Jubilé, aux fins duquel il aurait collaboré dans son lointain pays ; il pourra vivre de près dans son cœur l’exultant *sursum corda* des grandes solennités qui approchent ; il pourra, finalement, prêter ses conseils et son aide à ceux de ses compatriotes, Nos bien-aimés fils les pèlerins colombiens, qui, à travers les mers, arriveront à la maison du Père commun.
+
+Nous voulons voir, dans les expressions élevées que Nous venons d’entendre des lèvres de Votre Excellence, la garantie sûre que le soin et le perfectionnement des heureuses relations qui existent entre ce Siège Apostolique et la République colombienne, ont été confiées à une personnalité qui sait voir et apprécier en sa charge une mission aussi importante que méritoire.
+
+En cette consolante confiance, Nous vous souhaitons, Monsieur l’Ambassadeur, Notre cordiale bienvenue, conjointement avec la certitude de trouver toujours en Nous le plus bienveillant accueil.
+
+La Colombie est un pays qui semble spécialement appelé à l’harmonie et à la paix, par le fait même que la nature s’est plu à réunir en elle tous les climats, toutes les terres et toutes les cultures. Depuis ses côtes très fertiles jusqu’à ses féconds plateaux c’est un échelonnage successif de production, de fécondité et de prospérité ; tous sont d’accord pour dire que le meilleur de l’Amérique se trouve entre votre Sierra Nevada et votre Mer des Antilles. Avec une émotion profonde Nous incluons dans Nos prières de tous les jours et dans le Sacrifice quotidien de l’Autel, les nécessités et les désirs, les espoirs et les souhaits de ce bien- aimé peuple que la Providence a appelé à occuper ce jardin privilégié. Tandis que les nouvelles qui Nous arrivent de là-bas, viennent, par un contraste douloureux, enveloppées parfois dans les rumeurs d’âpres divisions et de passions politiques opposées, le Père commun sent qu’il est de son devoir d’envoyer à ces fils qu’il aime tant, un mot de lui, pour les avertir que le sort de leur peuple et de leur nation ne doit pas dépendre de la pure violence.
+
+Qu’elle monte jusqu’à Dieu, auteur et amateur de la paix ; qu’elle monte jusqu’à la Très Sainte Vierge, Reine de la paix, Notre fervente prière, pour que, en la terre colombienne, triomphent finalement cette harmonie d’idées et de sentiments, ce rapprochement et cette réconciliation des esprits, qui sont l’unique base sur laquelle peut surgir le vrai progrès et l’unique garantie de l’authentique bien commun.
+
+* * *
+
+*\\* Documents Pontificaux* 1949, p. 496-499.

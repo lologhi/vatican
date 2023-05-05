@@ -1,0 +1,29 @@
+***ADDRESS OF HIS HOLINESS JOHN PAUL II***
+
+***TO H.E. MR WILBUR DOVEY***
+
+***AMBASSADOR OF NEW ZEALAND TO THE HOLY SEE\****
+
+*Thursday, 23 May 1996*
+
+Monsieur l’Ambassadeur,
+
+1\. Je suis heureux de vous accueillir au Vatican et d'accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la Nouvelle-Zélande près le Saint-Siège. J'apprécie vos paroles à propos de nos relations chaleureuses et anciennes, et je vous prie de bien vouloir transmettre au Gouverneur général mes salutations ainsi que mon amitié cordiale.
+
+La Nouvelle-Zélande est un pays à la beauté naturelle magnifique qui se distingue également par un riche pluralisme culturel et ethnique. Lors de ma visite pastorale dans votre pays, en 1986, j'ai pu me rendre compte personnellement de la remarquable diversité qui caractérise votre société. Le défi auquel vous devez répondre consiste à permettre aux personnes de cultures différentes d'œuvrer ensemble pour le bien commun dans un esprit de respect et de coopération mutuels. L'expérience historique de la Nouvelle-Zélande dans la construction d'une société harmonieuse se poursuit dans la recherche de structures de dialogue toujours plus justes et stables entre ses citoyens, ainsi que dans la participation de votre pays aux efforts de la Communauté internationale en vue d'atteindre la paix, de contribuer à éviter que ne se répètent les crimes contre l'humanité, et à agir de façon responsable pour protéger les ressources du monde.
+
+2\. Pour sa part, le Saint-Siège est convaincu que les objectifs tant recherchés de la justice, de la paix et du développement intégral des peuples du monde, exigent le plus grand respect pour les droits des individus et des peuples, et pour les structures internationales établies en vue de garantir et de promouvoir partout ce respect. Le pluralisme, qu'il se rapporte aux sociétés individuelles ou à la Communauté internationale dans son ensemble, doit être fondé sur une vision partagée de notre humanité commune et sur un engagement infaillible à défendre la dignité inaliénable et la nature transcendante de chaque homme, femme et enfant. A travers sa présence et son activité dans la Communauté internationale, le Saint-Siège s'efforce d'attirer l'attention sur ces conditions essentielles de la coexistence humaine et, dans le cadre d'un dialogue sincère entre les personnes de bonne volonté, il s'efforce de les promouvoir comme fondement d'un ordre international véritablement juste.
+
+3\. Ainsi que vous l'avez souligné, la Nouvelle-Zélande est activement engagée dans les efforts de la Communauté internationale visant à maintenir la paix dans des régions du monde encore touchées par la guerre et les conséquences tragiques qu'elle entraîne. Vous soutenez également fortement le désir de la Communauté internationale de considérer comme responsables les individus ou les groupes qui violent les exigences les plus élémentaires de justice et d'humanité dans les situations de conflit. Ce développement portera ses fruits s'il s'avère capable de promouvoir une justice fondée non pas sur la force, mais sur un engagement moral de tous en faveur des droits humains et de la dignité humaine. En définitive, l'antidote le plus efficace contre l'inhumanité de l'homme contre l'homme ne peut être qu'une «justice qui intègre les idéaux d'une solidarité sociale et qui se modèle sur la justice de Dieu» (Homélie à Christchurch, 24 novembre 1986, n. 6).
+
+4\. Malheureusement, l'exigence croissante d'un critère objectif de responsabilité morale au niveau international est allée de pair, dans de nombreuses parties du monde, avec la diffusion d'une approche relativiste de la vérité, dans laquelle tout critère objectif de bien et de mal est véritablement nié. La cause la plus profonde de ce dilemme, qui entraîne de graves conséquences pour la vie de la société, réside dans la tendance à exalter l'autonomie individuelle, aux dépens des liens qui nous unissent et nous rendent responsables les uns des autres. La société a besoin d'une vision cohérente qui englobe à la fois la dignité et les droits inaliénables de chaque individu, en particulier les plus faibles et les plus vulnérables, et la hiérarchie des valeurs, qui constitue, en dernière analyse, le bien commun (cf. Centesimus annus, n. 47). Les symptômes de crise qui apparaissent aujourd'hui dans de nombreuses démocraties, soulignent le besoin urgent d'une éducation solide aux valeurs civiles et morales, et d'un débat sain et libre sur les dimensions éthiques de la vie politique et sociale.
+
+Inspirés par leur foi, les membres de la communauté catholique de Nouvelle Zélande sont engagés à bâtir une société plus juste, non seulement à travers leurs activités sociales et caritatives, mais également à travers leur témoignage quotidien des vérités et valeurs morales qui ont à la base de toute vie civique. Comme l'a souligné le Concile Vatican II, c'est précisément à travers ce service évangélique que «l'Église croit pouvoir largement contribuer à humaniser toujours plus la famille des hommes et de son histoire» (Gaudium et spes, n. 40).
+
+Monsieur l'Ambassadeur alors que vous commencez officiellement votre mission d'Ambassadeur de Nouvelle-Zélande près le Saint-Siège, je vous donne l'assurance que les membres de la Curie romaine seront toujours prêts à vous assister dans l'accomplissement de vos tâches. J'invoque cordialement sur vous et sur tous les Néo-Zélandais, l'abondance des Bénédictions de Dieu tout-puissant.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.24 p.11.
+
+© Copyright 1996 - Libreria Editrice Vaticana

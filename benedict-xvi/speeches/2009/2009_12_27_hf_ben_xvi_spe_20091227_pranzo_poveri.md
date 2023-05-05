@@ -1,0 +1,39 @@
+***REPAS******DE BENOÎT XVI AVEC LES PAUVRES***
+
+***ASSISTÉS PAR LA COMMUNAUTÉ DE SANT'EGIDIO***
+
+***DANS LE FOYER******DU QUARTIER DE TRASTEVERE À ROME***
+
+*Dimanche 27 décembre 2009*
+
+> [**DISCOURS**](#Discours%20repas) [**DU PAPE AU TERME DU** **REPAS**](#Discours%20repas)
+>
+> **[SALUT FINAL](#Salut%20final)**
+
+*Chers amis!*
+
+C'est pour moi une expérience émouvante d'être avec vous, d'être ici dans la famille de la Communauté de Sant'Egidio, d'être avec les amis de Jésus, car Jésus aime en particulier les personnes qui souffrent, les personnes en difficulté et il veut les recevoir comme ses frères et ses sœurs. Merci pour cela! Je suis très heureux et je remercie ceux qui, avec amour et compétence, ont préparé le repas — j'ai réellement apprécié cette cuisine, tous mes compliments! — et également ceux qui l'ont servi avec zèle, si bien qu'en une heure nous avons fait un grand repas! Merci et tous mes compliments! J'adresse ma pensée cordiale au vice-gérant, Mgr Luigi Moretti, et à Mgr Vincenzo Paglia, évêque de Terni-Narni-Amelia. Je salue avec affection le professeur Andrea Riccardi, fondateur de la communauté - mon ami depuis longtemps, ainsi que Mgr Paglia et Mgr Spreafico - le remerciant pour les paroles courtoises et profondes qu'il a voulu m'adresser. Avec le professeur Riccardi je salue également le président, le professeur Marco Impagliazzo, et le curé de Santa Maria in Trastevere, Mgr Matteo Zuppi, assistant ecclésiastique. J'adresse enfin une pensée particulière à tous les amis de Sant'Egidio et à chacune des personnes présentes.
+
+Au cours du repas, j'ai pu connaître un peu l'histoire de certains d'entre vous, comme reflet des situations humaines ici présentes; j'ai écouté des histoires douloureuses et riches d'humanité, également des histoires d'un amour retrouvé ici, à Sant'Egidio: des expériences de personnes âgées, d'immigrés, de personnes sans domicile fixe, de gitans, de porteurs de handicap, de personnes avec des problèmes économiques ou d'autres difficultés, toutes, d'une façon ou d'une autre, éprouvées par la vie. Je suis ici parmi vous pour vous dire que je suis proche de vous, que je vous aime et que vos personnes et vos histoires ne sont pas loin de mes pensées, mais au centre et au cœur de la communauté des croyants et donc également de mon cœur.
+
+A travers les gestes d'amour de ceux qui suivent Jésus, la vérité apparaît selon laquelle « (Dieu) le premier nous a aimés; c'est pourquoi, nous aussi, nous pouvons répondre par l'amour » (Enc. *[Deus caritas est](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html),* n. 17). Jésus dit: « car j'avais faim, et vous m'avez donné à manger; j'avais soif, et vous m'avez donné à boire; j'étais un étranger, et vous m'avez accueilli; j'étais nu, et vous m'avez habillé; j'étais malade, et vous m'avez visité; j'étais en prison, et vous êtes venus jusqu'à moi » ( *Mt* 25, 35-36). Et il conclut: « chaque fois que vous l'avez fait à l'un de ces petits qui sont mes frères, c'est à moi que vous l'avez fait » (v. 40). En écoutant ces paroles, comment ne pas se sentir vraiment les amis de ceux en qui le Seigneur se reconnaît? Et pas seulement des amis, mais aussi des membres de leur famille. Je suis venu parmi vous précisément en la fête de la Sainte-Famille car, dans un certain sens, celle-ci vous ressemble. En effet, dès ses premiers pas, la famille de Jésus a elle aussi rencontré des difficultés: elle a vécu le problème de ne pas trouver l'hospitalité, elle fut obligée d'émigrer en Egypte en raison de la violence du roi Hérode. Vous savez bien ce que signifie la difficulté, mais vous trouvez ici quelqu'un qui vous aime et qui vous aide, et certains ont même trouvé ici leur famille, grâce au service plein d'attention de la Communauté de Sant'Egidio, qui offre un signe de l'amour de Dieu pour les pauvres.
+
+Ici, se réalise aujourd'hui ce qui se passe à la maison: celui qui sert et qui aide se confond avec celui qui est aidé et servi, et à la première place se trouve celui qui en a davantage besoin. L'expression suivante du Psaume me revient à l'esprit: « Voyez! Qu'il est bon, qu'il est doux d'habiter en frères tous ensemble! » ( *Ps* 133, 1). L'engagement pour que ceux qui sont seuls ou en difficulté se sentent en famille, mené à bien d'une manière digne d'éloges par la Communauté de Sant'Egidio, naît de l'écoute attentive de la Parole de Dieu et de la prière. Je désire encourager chacun à persévérer sur ce chemin de foi. Avec les paroles de saint Jean Chrysostome, je voudrais rappeler à chacun: « Penses que tu deviens prêtre du Christ, en donnant avec ta propre main non de la chair mais du pain, non du sang, mais un verre d'eau » ( *Homélies sur l'Evangile de Matthieu*, 42, 3). Quelle richesse offre à la vie l'amour de Dieu, qui s'exprime dans le service concret envers nos frères qui sont dans le besoin! A l'époque, lorsque les magistrats romains intimèrent à saint Laurent, diacre de l'Eglise de Rome, de remettre les trésors de l'Eglise, il montra les pauvres de Rome comme le vrai trésor de l'Eglise. En rappelant le geste de saint Laurent, nous pouvons bien dire que vous qui êtes pauvres êtes aussi le trésor précieux de l'Eglise.
+
+Aimer, servir donne la joie du Seigneur qui dit: « Il y a plus de bonheur à donner qu'à recevoir » ( *Ac* 20, 35). En cette époque de difficultés économiques particulières, que chacun soit signe d'espérance et témoin d'un monde nouveau pour celui qui, enfermé dans son propre égoïsme et ayant l'illusion de pouvoir être heureux tout seul, vit dans la tristesse ou dans une joie éphémère qui laisse le cœur vide.
+
+Quelques jours se sont écoulés depuis le [Saint Noël](http://www.vatican.va/liturgical_year/christmas/2009/christmas09_fr.html): Dieu s'est fait Enfant, il s'est fait proche de nous pour nous dire qu'il nous aime et qu'il a besoin de notre amour. Je souhaite à tous avec affection de bonnes fêtes et la joie de connaître toujours plus l'amour de Dieu. J'invoque la protection de la Vierge de la Visitation, Celle qui nous enseigne à nous « hâter » de répondre aux besoins de nos frères et je vous bénis avec affection.
+
+*Avant de quitter le foyer de la Communauté de Sant'Egidio, le Pape Benoît XVI a adressé un salut à la foule qui s'était rassemblée à l'extérieur:*
+
+*Chers frères et sœurs,*
+
+Après avoir participé au repas de fête du foyer de la Communauté de Sant'Egidio et avoir salué quelques étudiants de l'Ecole de langues et de culture de la Communauté, j'adresse mes vœux les plus chaleureux à vous tous qui n'avez pas pu rentrer, mais qui avez pris part à cette rencontre de l'extérieur, depuis déjà une heure ou deux m'a-t-on dit. Merci!
+
+De nombreuses personnes, provenant de divers pays, marquées par le besoin, se retrouvent ici pour chercher une parole, une aide, une lumière pour un avenir meilleur. Engagez-vous afin que personne ne soit seul, que personne ne soit exclu, que personne ne soit abandonné.
+
+Il y a une langue qui, au-delà des différentes langues, unit tout: celle de l'amour. Comme le dit l'apôtre Paul: « J'aurais beau parler toutes les langues de la terre et du ciel, si je n'ai pas la charité, s'il me manque l'amour, je ne suis qu'un cuivre qui résonne, une cymbale retentissante » ( *1 Co* 13, 1). Telle est la langue, également dans cette école, que nous devons apprendre et pratiquer toujours plus. Cela nous est enseigné par l'Enfant Jésus, Dieu qui, par amour, s'est fait l'un de nous et nous parle tout d'abord à travers sa présence, à travers son humilité d'Enfant qui choisit d'être dépendant de notre amour. Cette langue rendra meilleurs notre ville et le monde.
+
+Je vous bénis tous avec affection et avec reconnaissance pour ce que vous faites pour les pauvres, en vue de la construction de la civilisation de l'amour. Merci à vous tous. Bonnes fêtes et bonne année!
+
+© Copyright 2009 - Libreria Editrice Vaticana

@@ -1,0 +1,9 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU COURS***
+
+***ORGANISÉ PAR LA PÉNITENCERIE APOSTOLIQUE***
+
+*Salle des Bénédictions*
+
+*Vendredi 28 mars 2014*

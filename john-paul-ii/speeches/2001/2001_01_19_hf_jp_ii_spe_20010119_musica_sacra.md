@@ -1,0 +1,39 @@
+***DISCOURS DE JEAN PAUL II***
+
+***AUX PROFESSEURS ET ÉLÈVES***
+
+***DE L'INSTITUT PONTIFICAL DE MUSIQUE SACRÉE***
+
+*Vendredi 19 janvier 2001*
+
+*Vénérés frères dans l'épiscopat et le sacerdoce,*
+
+*Chers professeurs et élèves de l'Institut pontifical de Musique sacrée!*
+
+1. Je suis heureux de vous accueillir à l'occasion du 90ème anniversaire de votre Institut fondé par mon vénéré prédécesseur saint Pie X en 1910, et ayant son siège au Palais Saint-Apollinaire. Je repense à la visite que je vous ai rendue, le 21 novembre 1984, et je vous salue cordialement, vous tous ici présents. Je salue également la délégation de la Catalogne. Dans le même temps, je félicite les personnalités qui ont reçu le Doctorat "honoris causa" en raison des mérites acquis dans le domaine de la Musique sacrée.
+
+J'exprime en particulier ma reconnaissance  à  S.Exc. Mgr Zenon Grocholewski, Préfet de la Congrégation pour l'Education catholique, et votre grand Chancelier, pour les voeux cordiaux que, en votre nom également, il a voulu m'adresser. En cette circonstance, je rappelle volontiers mon estime et ma reconnaissance pour le travail que vous accomplissez tous avec un sens de responsabilité et un professionnalisme apprécié.
+
+En cette occasion, en revenant sur l'activité accomplie jusqu'à présent et en considérant les projets pour l'avenir, je rends grâce à Dieu pour l'oeuvre effectuée par l'Institut pontifical de Musique sacrée au profit de l'Eglise universelle. En effet, la musique et le chant ne sont pas une simple décoration ou un ornement se superposant à l'action liturgique. Ils constituent au contraire une réalité commune avec la célébration, en permettant l'approfondissement et l'intériorisation des mystères divins.
+
+Je souhaite donc que vous tous - professeurs, disciples et amateurs de musique sacrée - puissiez croître jour après jour dans l'amour de Dieu "en chantant et célébrant le Seigneur de tout votre coeur" (cf. *Ep* 5, 19) et en aidant les autres à faire de même.
+
+Telle est, en effet, la mission spécifique que, dès le début, les Souverains Pontifes ont confiée à votre Institution de grand mérite. Je pense en particulier au Motu Proprio de saint Pie X, qui en 1903, du fait de sa sensibilité liturgique, souligna que la musique sacrée fait "partie intégrante de la liturgie solennelle, qui est la gloire de Dieu et la sanctification et l'édification des fidèles" ( *Inter sollicitudines*, AAS 36, 1903, 332). Le fruit principal de cette Instruction fut la création, en 1910, de l'Ecole supérieure de Musique sacrée. A peine un an plus tard, saint Pie X approuva publiquement cette Ecole à travers le Bref *Expleverunt desiderii*, et le 10 juillet 1914, il lui conféra le titre de "pontificale".
+
+Le Pape Benoît XV lui aussi, quelques jours après son élection au trône pontifical, le 23 septembre 1914, déclara qu'il considérait l'Ecole comme un héritage très précieux que lui avait laissé son prédécesseur et qu'il la soutiendrait et la promouvrait de la meilleure des façons. Il faut rappeler, en outre, le Motu Proprio *Ad Musicae sacrae* du Pape Pie XI, promulgué le 22 novembre 1922, dans lesquel il rappelait le lien particulier entre l'Ecole et le Siège apostolique.
+
+A travers la Constitution apostolique *Deus scientiarum Dominus*, de 1931, l'Ecole, appelée Institut pontifical de Musique sacrée, entra au nombre des Instituts académiques ecclésiastiques, et, en tant que tel, poursuivit avec un engagement accru son activité louable au service de l'Eglise universelle. De nombreux étudiants, formés en son sein, devinrent à leur tour formateurs dans leurs nations respectives selon l'esprit originel voulu par saint Pie X.
+
+Je voudrais, en cette circonstance, rendre hommage aux professeurs qui ont travaillé dans votre Institut pendant de nombreuses années, et, en particulier, aux Recteurs qui s'y sont consacrés entièrement, avec une mention particulière pour Mgr Higini Anglès, Président de 1947 à sa mort, survenue le 8 décembre 1969.
+
+3. Le Concile oecuménique Vatican II, se plaçant dans la lignée de la riche tradition liturgique des siècles précédents, a affirmé que la musique sacrée constituait "un trésor d'une valeur inestimable qui l'emporte sur les autres arts, du fait surtout que, chant sacré lié aux paroles, il fait partie nécessaire ou intégrante de la liturgie solennelle" ( *Sacrosanctum Concilium*, n. 112).
+
+En effet, depuis toujours, les chrétiens, suivant les divers temps de l'année liturgique, ont exprimé leur reconnaissance et leur louange à Dieu à travers des hymnes et des cantiques spirituels. La tradition biblique, à travers les paroles du Psalmiste, exhorte les pèlerins, arrivés à Jérusalem, à franchir les portes du temple en louant le Seigneur "par l'éclat du cor, par la danse et le tambour, par les cordes et les flûtes, par les cymbales sonores" (cf. *Ps* 150). Le prophète Isaïe, pour sa part, exhorte à chanter sur les harpes dans le temple du Seigneur, en signe de gratitude, tous les jours de la vie (cf. *Is* 38, 20).
+
+La joie chrétienne, que le chant manifeste, doit rythmer tous les jours de la semaine et retentir avec force le dimanche, "jour du Seigneur", marqué par un profond caractère joyeux. Un lien intime relie d'une part, la musique et le chant et, d'autre part, la contemplation des divins mystères et la prière. Le critère qui doit inspirer toute composition et exécution de chants et de musique sacrée est celui d'une beauté qui invite à la prière. Lorsque le chant et la musique constituent des signes de la présence et de l'action de l'Esprit Saint, ils favorisent, en un certain sens, la communion avec la Trinité. La liturgie devient alors " *opus Trinitatis*". Il est nécessaire que le "chant dans la liturgie" jaillisse du " *sentire cum Ecclesia*". Ce n'est qu'ainsi que l'union avec Dieu et la capacité artistique se fondent en une heureuse synthèse dans laquelle les deux éléments - le chant et la louange - imprègnent toute la liturgie.
+
+4. Très chers frères et soeurs! Quatre-vingt dix ans après sa fondation, votre Institut, reconnaissant au Seigneur pour le bien accompli, désire tourner son regard vers les nouveaux horizons qui l'attendent. Nous sommes entrés dans un nouveau millénaire et l'Eglise est entièrement engagée dans l'oeuvre de la nouvelle évangélisation. Que votre contribution ne fasse pas défaut à cette vaste action missionnaire. A chacun de vous, il est demandé une étude académique rigoureuse, qui se double d'une attention constante à la liturgie et à la pastorale. A vous, professeurs et élèves, il est demandé de valoriser au mieux vos dons artistiques, en conservant et en promouvant l'étude et la pratique de la musique et du chant dans les milieux et à travers les instruments que le Concile Vatican II a indiqués comme privilégiés:  le chant grégorien, la polyphonie  sacrée, et l'orgue. Ce n'est qu'ainsi que la musique liturgique pourra accomplir dignement son devoir dans le cadre de la célébration des sacrements et, de façon particulière, de la Sainte Messe.
+
+Que Dieu vous aide à accomplir fidèlement cette mission au service de l'Evangile et de la Communauté ecclésiale. Que Marie vous serve de modèle, elle qui sut élever à Dieu le Magnificat, le chant du véritable bonheur. Au cours des siècles, sur les paroles de ce cantique, la musique a tissé d'infinies harmonies et les poètes ont développé un recueil vaste et émouvant de louanges. Qu'à ces voix puisse également s'associer la vôtre, en exaltant le Seigneur et en exultant en Dieu le Sauveur.
+
+Pour ma part, je vous assure de mon souvenir constant dans la prière et, tandis que je souhaite que l'année qui vient de s'écouler soit emplie de grâce, de réconciliation et de renouveau intérieur, je donne à tous avec affection une  Bénédiction  apostolique  particulière.

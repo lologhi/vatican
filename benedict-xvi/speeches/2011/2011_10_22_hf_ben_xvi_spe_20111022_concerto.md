@@ -1,0 +1,27 @@
+CONCERT OFFERT PAR LE "BAYERISCHE STAATSOPER"
+
+***PAROLES*** ***DU PAPE BENOÎT XVI***
+
+***À LA FIN DU CONCERT***
+
+S*alle Paul VI*
+
+*Samedi* *22 octobre 2011*
+
+*Messieurs les cardinaux,*
+
+*vénérés frères dans l’épiscopat,et dans le sacerdoce,*
+
+*MM. les ministres Heubischet Spaenle,*
+
+*Mesdames et Messieurs,*
+
+Je remercie sincèrement le *Bayerisches Staatsorchester*, et le *Audi-Jugendchorakademie*, ainsi que le directeur Kent Nagano et les solistes, pour le grand don qu’ils nous ont fait. La splendide exécution des deux chefs-d’œuvre d’Anton Bruckner, le *Te Deum* et la *Symphonie n. 9* nous a permis de nous plonger d’une manière profonde dans la musique de ce grand compositeur. Je remercie le *Bayerische Staatsoper* pour avoir offert ce très beau concert, et tous ceux qui ont rendu possible ce moment.
+
+Lorsque, le 11 octobre 1896, Bruckner mourut, il était encore en train de composer sa neuvième symphonie, commencée presque dix ans auparavant. Il sentait, se rappelant Beethoven et Schubert, qu’il s’agissait de son «testament symphonique», et effectivement — comme nous le savons — il ne réussit jamais à en compléter le quatrième temps, laissant son travail inachevé. La symphonie de Bruckner se détache du modèle classique, son discours musical se développe par grands blocs rapprochés, par sections élaborées et complexes qui ne sont pas délimitées de manière claire, mais très souvent séparées par de simples phrases servant de liaison, ainsi que par des pauses. Ecouter sa musique revient presque à se retrouver à l’intérieur d’une grande cathédrale, en observant les grandioses structures portantes de son architecture, qui nous enveloppent, nous élèvent et créent l’émotion. Il y a cependant un aspect qui se trouve à la base de la production de Bruckner, aussi bien symphonique que sacrée: sa foi, simple, solide et authentique, qu’il conserva toute sa vie, au point de vouloir être enterré dans l’église de l’abbaye de Sankt Florian, dans la crypte, sous l’immense orgue grandiose, qui avait retenti de nombreuses fois. En le comparant avec un autre représentant de la fin du romantisme, le grand directeur d’orchestre Bruno Walter affirmait: «Malher fut toujours à la recherche de Dieu, alors que Bruckner l’avait trouvé». Et la symphonie que nous avons écoutée porte un titre bien précis : « Dem lieben Gott », « Au bon Dieu », comme s’il avait voulu consacrer et confier le dernier fruit mûr de son art à Celui dans lequel il avait toujours cru, désormais l’unique et véritable interlocuteur à qui s’adresser, étant arrivé à la dernière partie de son existence. Et l’on perçoit un sentiment d’attente continuelle dans toute la symphonie que nous avons écoutée, des temps dilatés qui nous ouvrent et nous guident dans une dimension mystérieuse, presque intemporelle; du premier temps, caractérisé par l’indication « *Feierlich*-mystérieux », jusqu’à l’ *adagio*, qui commence par un mouvement grandiose des premiers violons et qui se développe dans une ascension progressive, avec une alternance de moments lumineux, de silences inattendus, de sections utilisant un timbre de voix isolé, de sonorités d’orgues, de chorales, d’explosions de sons, de *sereni cantabili*, jusqu’à parvenir à la conclusion plus mesurée et rayonnante en mi majeur. Il est significatif que dans ce dernier temps aient été insérées quatre notes du *miserere* du Gloria de sa *Messe en ré mineur*, et qu’il y ait des réminiscences du *Benedictus* d’une autre de ses *Messes*, celle en fa mineur. Bruckner demandait au bon Dieu de pouvoir entrer dans son mystère, de pouvoir monter sur ses hauteurs, de pouvoir louer au ciel le Seigneur comme il l’avait fait sur la terre avec sa musique. *Te Deum laudamus, Te Dominum confitemur*: cette œuvre grandiose que nous avons écoutée, écrite d’un jet et réélaborée quinze ans durant, comme pour repenser à la façon de mieux rendre grâce à Dieu et de le louer, synthétise la foi de ce grand musicien, réaffirmée dans la grande double fugue finale: *In te, Domine speravi : non confundar in aeternum*. Un rappel qui nous est également adressé à ouvrir nos horizons et à penser à la vie éternelle, non pour échapper au présent, même s’il est marqué par des problèmes et des difficultés, mais plutôt pour le vivre encore plus intensément, en apportant dans la réalité dans laquelle nous vivons un peu de lumière, d’espérance, d’amour.
+
+Encore une fois, je désire adresser un cordial *Vergelt’s Gott* (Dieu vous en rende grâce) au chef d’orchestre Kent Nagano, aux solistes, au *Bayerisches Staatsorchester* et à la *Audi-Jugendchorakademie* et à son directeur, au Bayerische Staatsoper, aux collaborateurs et à vous tous.
+
+Merci, bonne soirée à tous, avec ma Bénédiction.
+
+© Copyright 2011 - Libreria Editrice Vaticana

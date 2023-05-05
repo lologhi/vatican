@@ -1,0 +1,33 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 30 septembre 2018*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/9/30/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+L’Evangile de ce dimanche (cf. Mc 9, 38-43.45.47-48) nous présente un des détails très instructifs sur la vie de Jésus avec ses disciples. Ils avaient vu qu’un homme, qui ne faisait pas partie du groupe des disciples de Jésus, chassait les démons au nom de Jésus et ils voulaient donc le lui interdire. Jean, avec l’enthousiasme zélé typique des jeunes, rapporte la chose au Maître et cherche son soutien; mais Jésus, au contraire, répond: «Ne l’en empêchez pas, car il n’est personne qui puisse faire un miracle en invoquant mon nom et sitôt après parler mal de moi. Qui n’est pas contre nous est pour nous» (v. 39-40).
+
+Jean et les autres disciples manifestent une attitude de fermeture devant un événement qui n’entre pas dans leurs schémas, dans ce cas l’action, pourtant bonne, d’une personne «extérieure» au cercle des disciples. Au contraire, Jésus apparaît très libre, pleinement ouvert à la liberté de l’Esprit de Dieu, qui n’est limité dans son action par aucune frontière et par aucune barrière. Jésus veut éduquer ses disciples, nous aussi aujourd’hui, à cette liberté intérieure.
+
+Cela nous fait du bien de réfléchir à cet épisode et de faire un peu un examen de conscience. L’attitude des disciples de Jésus est très humaine, très commune, et nous pouvons la trouver dans les communautés chrétiennes de tous les temps, probablement aussi en nous-mêmes. En toute bonne foi, et même avec zèle, on voudrait protéger l’authenticité d’une certaine expérience, en protégeant le fondateur ou le leader contre de faux imitateurs. Mais en même temps, il y a comme la peur de la «concurrence» — et ce n’est pas beau: la peur de la concurrence —, que quelqu’un puisse soustraire les nouveaux disciples, et alors on n’arrive pas à apprécier le bien que font les autres: cela ne va pas parce qu’«il n’est pas des nôtres», dit-on. C’est une forme d’auto-référence. Il y a même là la racine du prosélytisme. Et l’Eglise — disait le Pape Benoît — ne grandit pas par prosélytisme, elle grandit par attraction, c’est-à-dire qu’elle grandit à travers le témoignage donné aux autres par la force de l’Esprit Saint.
+
+La grande liberté de Dieu de se donner à nous constitue un défi et une exhortation à changer nos attitudes et nos relations. C’est l’invitation que Jésus nous adresse aujourd’hui. Il nous appelle à ne pas penser selon les catégories «ami/ennemi», «nous/eux», «celui qui est dedans/celui qui est dehors», «mien/tien», mais à aller plus loin, à ouvrir notre cœur pour pouvoir reconnaître sa présence et l’action de Dieu, même dans des milieux insolites et imprévisibles et chez des personnes qui ne font pas partie de notre cercle. Il s’agit d’être davantage attentifs à l’authenticité du bien, du beau et du vrai qui est accompli, qu’au nom et à la provenance de celui qui l’accomplit. Et — comme le suggère le reste de l’Evangile d’aujourd’hui — au lieu de juger les autres, nous devons nous examiner nous-mêmes et «couper» sans compromis tout ce qui peut scandaliser les personnes les plus faibles dans la foi.
+
+Que la Vierge Marie, modèle d’accueil docile des surprises de Dieu, nous aide à reconnaître les signes de la présence du Seigneur parmi nous, à le découvrir où Il se manifeste, même dans les situations les plus impensables et les plus inhabituelles. Qu’elle nous enseigne à aimer notre communauté sans jalousies et sans fermetures, toujours ouverts au vaste horizon de l’action de l’Esprit-Saint.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs, j’exprime ma proximité aux populations de l’île de Sulawesi, en Indonésie, frappée par un puissant raz de marée. Je prie pour les victimes — malheureusement nombreuses —, pour les blessés et pour ceux qui ont perdu leur maison et leur travail. Que le Seigneur les console et soutienne les efforts de ceux qui se prodiguent pour leur porter secours. Prions ensemble pour nos frères de l’île de Sulawesi: Je vous salue Marie...
+
+Aujourd’hui, à Marseille, est proclamé bienheureux Jean-Baptiste Fouque, prêtre diocésain, qui fut vicaire paroissial pendant toute sa vie. Un bel exemple pour les arrivistes! Il a vécu entre le xixe et le xxe siècles, et il a promu de nombreuses œuvres d’assistance et sociales en faveur des jeunes, des personnes âgées, des pauvres et des malades. Que l’exemple et l’intercession de cet apôtre de la charité nous soutiennent dans l’engagement à accueillir et à partager avec les personnes les plus faibles et les plus défavorisées. Un applaudissement au nouveau bienheureux Jean-Baptiste!
+
+Je vous salue tous avec affection, romains et pèlerins provenant de divers pays. Je souhaite à tous un bon dimanche. Et s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

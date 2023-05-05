@@ -1,0 +1,19 @@
+[VISITE PASTORALE DANS LA PAROISSE ROMAINE \
+\
+DE LA SAINTE FACE DE JÉSUSÀ LA MAGLIANA](/content/benedict-xvi/fr/homilies/2009/documents/hf_ben-xvi_hom_20090329_magliana.html)
+
+***PAROLE*** ***S******DU PAPE BENOÎT XVI***
+
+*V**Dimanche de Carême**, 29 mars 2009*
+
+*Chers amis,*
+
+en ce moment, je ne peux que dire merci pour tout ce que vous faites pour l'édification de l'Eglise vivante dans ce quartier de Rome. Il me semble que l'existence de ces conseils pastoraux soient l'un des dons du Concile Vatican ii, dans lesquels les laïcs représentant toute la communauté, affrontent avec le curé et les prêtres, les problèmes de l'Eglise vivante d'un quartier, aident à édifier l'Eglise, à rendre présente la Parole de Dieu et à sensibiliser les personnes sur la présence de Jésus Christ dans les sacrements. En cette époque où le sécularisme est important et où toutes les réflexions qui gravitent autour ont tendance à nier la présence de Dieu, et la capacité de percevoir cette présence, il est d'autant plus important que le prêtre ne soit pas laissé seul, mais soit entouré de croyants qui apportent avec lui cette semence de la Parole et contribuent à ce qu'elle soit vivante et quelle croisse également à notre époque. Merci, donc, pour vos initiatives. Il est important de réconforter, d'aider, d'assister les personnes qui souffrent, de faire ressentir la proximité des croyants qui se sentent particulièrement proches de tous ceux qui souffrent.
+
+Je l'ai constaté en [Afrique](/content/benedict-xvi/fr/travels/2009/index_camerun-angola.html):  à Yaoundé, au Cameroun, il existe un grand centre qu'a créé le cardinal Léger, canadien, grand Père du Concile, où je l'ai connu. Après le Concile, en 1968, il sentait le besoin non seulement de prêcher et de gouverner, mais également d'être un simple prêtre pour assister les personnes qui souffraient. Il s'est rendu au Cameroun et a créé ce Centre, qui appartient aujourd'hui à l'Etat, mais où travaillent avant tout des ecclésiastiques, où l'on voit tout l'éventail de la souffrance:  le sida, la lèpre, tout. Mais l'on voit également la force de la foi, on voit des personnes qui, motivées par la force de la foi et par l'amour que la foi suscite, se mettent totalement à disposition des autres; ainsi, la souffrance est transformée et les personnes qui aident sont transformées, elles deviennent plus humaines, plus chrétiennes:  on ressent une partie de l'amour de Dieu. Pour cela, à notre niveau, nous voulons être nous aussi toujours sensibles à la souffrance, aux personnes qui souffrent, aux pauvres, aux personnes dans le besoin qui endurent diverses formes de pauvreté, notamment spirituelle, qui nous attendent, dans lesquelles nous attend le Seigneur. Merci pour tout ce que vous faites.
+
+Selon la tradition, le conseil est un don de l'Esprit Saint, et un curé, qui plus est un Pape, a besoin de conseil, d'être aidé à prendre des décisions. C'est pourquoi ces conseils pastoraux réalisent également une œuvre de l'Esprit Saint et témoignent de sa présence dans l'Eglise.
+
+Merci pour tout ce que vous faites; que le Seigneur vous assiste toujours et vous apporte la joie pascale pour toute l'année. Merci.
+
+© Copyright 2009 - Libreria Editrice Vaticana

@@ -1,0 +1,210 @@
+MESSAGE DE SA SAINTETÉ
+
+**BENOÎT XVI**POUR LA CÉLÉBRATION DE LA
+
+**JOURNÉE MONDIALE DE LA PAIX**
+
+**1er JANVIER 2011**
+
+**LIBERTÉ RELIGIEUSE, CHEMIN VERS LA PAIX**
+
+1\. AU DÉBUT D’UNE ANNÉE NOUVELLE, mes vœux voudraient rejoindre tous et chacun ; vœux de sérénité et de prospérité, mais surtout vœux de paix. L’année qui vient de se clôturer a été marquée, elle aussi, malheureusement par la persécution, la discrimination, par de terribles actes de violence et d’intolérance religieuse.
+
+Je pense en particulier à la chère terre d’Irak qui, dans sa marche vers une stabilité et une réconciliation tant souhaitées, continue à être une scène de violences et d’attentats. Viennent à la mémoire les récentes souffrances de la communauté chrétienne, et tout particulièrement le lâche attentat contre la cathédrale siro-catholique Notre-Dame du Perpétuel Secours, à Bagdad, où, le 31 octobre dernier, deux prêtres et plus de cinquante fidèles ont été tués, alors qu’ils étaient réunis pour la célébration de la sainte Messe. Et il y eut d’autres attaques les jours suivants, aussi contre des habitations privées, suscitant la peur au sein de la communauté chrétienne et le désir, chez beaucoup de ses membres, d’émigrer pour aller chercher de meilleures conditions de vie. Je les assure de ma proximité et de celle de toute l’Eglise. Ce sentiment a été concrètement exprimé lors de la récente [Assemblée spéciale pour le Moyen-Orient du Synode des Evêques](http://www.vatican.va/roman_curia/synod/index_fr.htm). Cette Assemblée a adressé un encouragement aux communautés catholiques en Irak et dans tout le Moyen-Orient à vivre la communion et à continuer à offrir un témoignage courageux de foi en ces régions.
+
+Je remercie vivement les Gouvernements qui s’efforcent de soulager les souffrances de ces frères en humanité et j’invite les catholiques à prier pour leurs frères dans la foi qui souffrent violences et intolérances, et à leur manifester leur solidarité. Dans ce contexte, j’ai ressenti de manière particulièrement vive l’opportunité de partager avec vous tous quelques réflexions sur la liberté religieuse, chemin vers la paix. Il est douloureux en effet de constater que, dans certaines régions du monde, il n’est pas possible de professer et de manifester librement sa religion, sans mettre en danger sa vie et sa liberté personnelle. En d’autres points du monde, il existe des formes plus silencieuses et plus sophistiquées de préjugés et d’opposition à l’encontre des croyants et des symboles religieux. Les chrétiens sont à l’heure actuelle le groupe religieux en butte au plus grand nombre de persécutions à cause de leur foi. Beaucoup subissent des offenses quotidiennes et vivent souvent dans la peur à cause de leur recherche de la vérité, de leur foi en Jésus Christ et de leur appel sincère afin que soit reconnue la liberté religieuse. Tout cela ne peut être accepté, parce que cela constitue une offense à Dieu et à la dignité humaine ; de plus, c’est une menace à la sécurité et à la paix, et cela empêche la réalisation d’un réel développement humain intégral [\[1\]](#_ftn1 "").
+
+C’est en effet dans la liberté religieuse que se trouve l’expression de la spécificité de la personne humaine, qui peut ainsi ordonner sa vie personnelle et sociale selon Dieu :  à Sa lumière se comprennent pleinement l’identité, le sens et le but de la personne. Nier ou limiter de manière arbitraire cette liberté signifie cultiver une vision réductrice de la personne humaine ; mettre dans l’ombre le rôle public de la religion signifie engendrer une société injuste, puisque celle-ci n’est pas en harmonie avec la vraie nature de la personne humaine ; *cela signifie rendre impossible l’affirmation d’une paix authentique et durable de toute la famille humaine.*
+
+J’exhorte donc les hommes et les femmes de bonne volonté à renouveler leur engagement pour la construction d’un monde où tous soient libres de professer leur religion ou leur foi, et de vivre leur amour pour Dieu de tout leur cœur, de toute leur âme et de tout leur esprit (cf. *Mt* 22,37). Voilà le sentiment qui inspire et guide le *Message pour la XLIVème Journée Mondiale de la Paix*, consacré au thème : *Liberté religieuse, chemin vers la paix.*
+
+***Le droit sacré à la vie et à une vie spirituelle***
+
+2\. *Le droit à la liberté religieuse s’enracine dans la dignité même de la personne humaine* [**\[2\]**](#_ftn2 ""), dont la nature transcendante ne doit être ni ignorée ni négligée. Dieu a créé l’homme et la femme à son image et à sa ressemblance (cf. *Gn* 1,27). C’est pour cela que chaque personne a le *droit sacré* à une vie intègre aussi du point de vue spirituel *.* Sans la reconnaissance de son être spirituel, sans l’ouverture au transcendant, la personne humaine se replie sur elle-même, et elle n’arrive pas à trouver des réponses aux interrogations de son cœur sur le sens de la vie et à conquérir des valeurs et des principes éthiques durables. Elle ne peut donc même pas réussir à expérimenter une authentique liberté et à développer une société juste [\[3\]](#_ftn3 "").
+
+La Sainte Ecriture, en harmonie avec notre propre expérience, révèle la valeur profonde de la dignité humaine : « A voir ton ciel, ouvrage de tes doigts, la lune et les étoiles que tu fixas, qu’est donc le mortel, que tu t’en souviennes, le fils d’Adam, que tu le veuilles visiter ? A peine le fis-tu moindre qu’un dieu ; tu le couronnes de gloire et de beauté, pour qu’il domine sur l’œuvre de tes mains ; tout fut mis par toi sous ses pieds » ( *Ps* 8, 4-7).
+
+Devant la sublime réalité de la nature humaine, nous pouvons faire l’expérience du même émerveillement que le psalmiste. Elle se manifeste comme ouverture au Mystère, comme capacité de s’interroger en profondeur sur soi-même et sur l’origine de l’univers, comme intime résonnance à l’Amour suprême de Dieu, principe et fin de toutes choses, de toute personneet de tous les peuples [\[4\]](#_ftn4 ""). La dignité transcendante de la personne est une valeur essentielle de la sagesse judéo-chrétienne, mais grâce à la raison, elle peut être reconnue par tous. Cette dignité, comprise comme une capacité de transcender sa propre matérialité et de rechercher la vérité, doit être reconnue comme un *bien* universel, indispensable pour la construction d’une société orientée vers la réalisation et la plénitude de l’homme. Le respect des éléments essentiels de la dignité de l’homme, tels que le droit à la vie et le droit à la liberté religieuse, est une condition de la légitimité morale de toute norme sociale et juridique.
+
+***Liberté religieuse et respect mutuel***
+
+3\. *La liberté religieuse est à l’origine de la liberté morale*. En effet, l’ouverture à la vérité et au bien, l’ouverture à Dieu, qui est enracinée dans la nature humaine, confère une pleine dignité à chaque personne et elle est garante d’un respect mutuel et plénier entre les personnes. C’est pourquoi la liberté religieuse doit être comprise non seulement comme une absence de la coercition, mais d’abord comme une capacité d’ordonner ses choix selon la vérité.
+
+Il existe un lien infrangible entre liberté et respect ; car, « la loi morale oblige tout homme et tout groupe social à tenir compte, dans l’exercice de leurs droits, des droits d’autrui, de leurs devoirs envers les autres et du bien commun de tous » [\[5\]](#_ftn5 "").
+
+Une *liberté ennemie* ou *indifférente* à l’égard de Dieu finit par se nier elle-même et ne garantit pas le plein respect de l’autre. Une volonté qui se croit radicalement incapable de rechercher la vérité et le bien n’a plus de raisons objectives ni de motifs pour agir, sinon ceux que lui imposent ses intérêts momentanés et contingents, elle n’a pas « une identité » à conserver et à construire en opérant des choix vraiment libres et conscients. Elle ne peut donc revendiquer le respect de la part d’autres « volontés », elles aussi détachées de leur être plus profond et qui, de ce fait, peuvent faire valoir d’autres « raisons » ou même aucune « raison ». L’illusion que l’on puisse trouver dans le relativisme moral la clé d’une coexistence pacifique, est en réalité l’origine des divisions et de la négation de la dignité des êtres humains. On comprend alors qu’il soit nécessaire de reconnaître une double dimension dans l’unité de la personne humaine : la dimension *religieuse* et la dimension *sociale*. A cet égard, il est inconcevable que des croyants « doivent se priver d’une partie d’eux-mêmes – de leur foi – afin d’être des citoyens actifs ; il ne devrait jamais être nécessaire de nier Dieu pour jouir de ses droits » [\[6\]](#_ftn6 "").
+
+***La famille, école de liberté et de paix***
+
+4\. Si la liberté religieuse est chemin vers la paix, l’ *éducation religieuse* est une route privilégiée pour donner aux nouvelles générations la possibilité de reconnaître en l’autre un frère et une sœur, avec qui marcher ensemble et collaborer pour que tous se sentent comme les membres vivants d’une même famille humaine, au sein de laquelle personne ne doit être exclu.
+
+La famille fondée sur le mariage, expression d’une union intime et d’une complémentarité entre un homme et une femme, s’insère dans ce contexte comme première école de formation et de croissance sociale, culturelle, morale et spirituelle des enfants, qui devraient toujours trouver dans leur père et leur mère les premiers témoins d’une vie orientée vers la recherche de la vérité et de l’amour de Dieu. Les parents eux-mêmes devraient être toujours libres de transmettre, sans entraves et de manière responsable, leur patrimoine de foi, de valeurs et de culture à leurs enfants. La famille, première cellule de la société humaine, reste le milieu primordial de formation pour des relations harmonieuses à tous les niveaux de la convivialité humaine, nationale et internationale. Nous trouvons ici la route à suivre avec sagesse pour construire un tissu social solide et solidaire, pour préparer les jeunes à prendre leurs propres responsabilités dans la vie, au sein d’une société libre, dans un esprit de compréhension et de paix.
+
+***Un patrimoine commun***
+
+5\. On pourrait dire que, *parmi les droits et les libertés fondamentaux enracinés dans la dignité humaine, la liberté religieuse jouit d’un statut spécial*. Quand la liberté religieuse est reconnue, la dignité de la personne humaine est respectée à sa racine même, et l’ *ethos* et les institutions des peuples se consolident. A l’inverse, quand la liberté religieuse est niée, quand on essaie d’empêcher de professer sa religion ou sa foi et de vivre en conformité avec elles, la dignité humaine est lésée, et de cette manière se trouvent menacées la justice et la paix, lesquelles se fondent sur l’ordre social juste qui s’édifie à la lumière de la Vérité Suprême et du Souverain Bien.
+
+*En ce sens, la liberté religieuse est aussi un acquis de civilisation politique et juridique.* C’est un bien essentiel : toute personne doit pouvoir exercer librement le droit de professer et de manifester individuellement ou de manière communautaire, sa religion ou sa foi, aussi bien en public qu’en privé, dans l’enseignement et dans la pratique, dans les publications, dans le culte et dans l’observance des rites. Elle ne devrait pas rencontrer d’obstacles si elle désire, éventuellement, adhérer à une autre religion ou n’en professer aucune. En ce domaine, la règlementation internationale se révèle emblématique et est un exemple essentiel pour les Etats, en ce qu’elle ne permet aucune dérogation à la liberté religieuse, sauf l’exigence légitime de l’ordre public pénétré par la justice [\[7\]](#_ftn7 ""). La règlementation internationale reconnaît ainsi aux droits de nature religieuse le même *status* que le droit à la vie et à la liberté personnelle, car ils appartiennent au *noyau essentiel* des droits de l’homme, à ces droits universels et naturels que la loi humaine ne peut jamais nier.
+
+*La liberté religieuse n’est pas le patrimoine exclusif des croyants, mais de la famille tout entière des peuples de la terre.* C’est l’élément incontournable d’un Etat de droit ; on ne peut pas la nier sans porter atteinte en même temps à tous les droits et aux libertés fondamentales, puisqu’elle en est la synthèse et le sommet. Elle est « le ‘papier tournesol’ qui permet de vérifier le respect de tous les autres droits humains » [\[8\]](#_ftn8 ""). Celle-ci favorise l’exercice des facultés plus spécifiquement humaines tout en créant les prémisses nécessaires pour la réalisation d’un *développement intégral*, lequel concerne de manière unitaire la totalité de la personne en chacune de ses dimensions [\[9\]](#_ftn9 "").
+
+***La dimension publique de la religion***
+
+6\. *La liberté religieuse, comme toute liberté, tout en provenant de la sphère personnelle, se réalise dans la relation avec les autres. Une liberté sans relations n’est pas une liberté achevée.* La liberté religieuse ne s’épuise pas non plus dans la seule dimension individuelle, mais elle se met en œuvre dans la communauté dont elle fait partie et dans la société, ceci en cohérence avec l’être relationnel de la personne et avec la nature publique de la religion.
+
+La *mise en relation* est une composante décisive de la liberté religieuse qui pousse les communautés des croyants à pratiquer la solidarité en vue du bien commun. Dans cette dimension communautaire, chaque personne reste unique et absolument originale, tout en se complétant et en se réalisant pleinement.
+
+On ne peut pas nier la contribution que les communautés religieuses apportent à la société. Nombreuses sont les institutions caritatives et culturelles qui attestent le rôle constructif des croyants pour la vie sociale. D’une importance plus grande encore est la contribution éthique de la religion dans le domaine politique. Elle ne devrait pas être marginalisée ou interdite, mais comprise comme un apport valable à la promotion du bien commun. Dans cette perspective il convient de mentionner la dimension religieuse de la culture, tissée au long des siècles grâce aux contributions sociales et surtout éthiques de la religion. Une telle dimension ne constitue en aucune manière une discrimination vis-à-vis de ceux qui n’en partagent pas la croyance, mais elle renforce plutôt la cohésion sociale, l’intégration et la solidarité.
+
+***Liberté religieuse, force de liberté et de civilisation :***
+
+***les dangers de son instrumentalisation***
+
+7\. *L’instrumentalisation de la liberté religieuse pour masquer des intérêts occultes, comme par exemple la subversion de l’ordre établi, l’accaparement de ressources ou le maintien du pouvoir de la part d’un groupe, peut provoquer des dommages énormes aux sociétés.* Le fanatisme, le fondamentalisme, les pratiques contraires à la dignité humaine, ne peuvent jamais trouver une justification, encore moins si cela est accompli au nom de la religion. La profession d’une religion ne peut pas être instrumentalisée, ni imposée par la force. Il faut donc que les Etats et les diverses communautés humaines n’oublient jamais que *la liberté religieuse est une condition de la recherche de la vérité et que la vérité ne s’impose pas par la violence mais par*« *la force de la vérité elle-même*» [\[10\]](#_ftn10 "").En ce sens, la religion est une force *positive et propulsive* pour la construction de la société civile et politique.
+
+Comment nier la contribution des grandes religions du monde au développement de la civilisation ? La recherche sincère de Dieu a conduit à un plus grand respect de la dignité de l’homme. Les communautés chrétiennes, avec leur patrimoine de valeurs et de principes, ont fortement contribué à la prise de conscience de la part des personnes et des peuples, de leur identité et de leur dignité, de même qu’à la conquête d’institutions démocratiques et à l’affirmation des droits de l’homme ainsi que des devoirs correspondants.
+
+Aujourd’hui encore, dans une société toujours plus mondialisée, les chrétiens sont appelés, non seulement à un engagement civil, économique et politique responsable, mais aussi au témoignage de leur charité et de leur foi, à offrir une contribution précieuse à l’engagement rude et exaltant pour la justice, le développement humain intégral et le juste ordonnancement des réalités humaines. Exclure la religion de la vie publique, c’est enlever à cette dernière un espace vital qui ouvre à la transcendance. Sans cette expérience originelle, orienter les sociétés vers des principes éthiques universels s’avère pénible et il devient difficile de mettre en place des règlements nationaux et internationaux où les droits et les libertés fondamentaux peuvent être pleinement reconnus et mis en œuvre comme se le proposent les objectifs – malheureusement encore négligés ou contredits – de la *Déclaration universelle des Droits de l’homme* de 1948.
+
+***Un problème de justice et de civilisation :***
+
+***le fondamentalisme et l’hostilité à l’égard des croyants***
+
+***nuisent à la laïcité positive des Etats***
+
+8\. La même détermination avec laquelle sont condamnées toutes les formes de fanatisme et de fondamentalisme religieux, doit animer aussi l’opposition à toutes les formes d’hostilité à l’égard de la religion, qui limitent le rôle public des croyants dans la vie civile et politique.
+
+On ne peut oublier que le *fondamentalisme religieux et le laïcisme sont des formes spéculaires et extrêmes du refus du légitime pluralisme et du principe de laïcité.* Tous deux, en effet, absolutisent une vision réductrice et partiale de la personne humaine, favorisant dans le premier cas, des formes d’intégralisme religieux, et dans le second, de rationalisme. *La société qui veut imposer, ou qui, au contraire, nie la religion par la violence, est injuste à l’égard de la personne et de Dieu, mais aussi envers elle-même. Dieu appelle à lui l’humanité dans un dessein d’amour qui, alors qu’il concerne la personne tout entière dans sa dimension naturelle et spirituelle, exige d’y répondre en termes de liberté et de responsabilité, de tout son cœur et de tout son être, individuel et communautaire.* La société elle-même, en tant qu’expression de la personne et de l’ensemble de ses dimensions constitutives, doit donc vivre et s’organiser en sorte de favoriser l’ouverture à la transcendance. C’est précisément pour cela que les lois et les institutions d’une société ne peuvent pas être configurées en ignorant la dimension religieuse des citoyens ou au point d’en faire totalement abstraction. Elles doivent se mesurer – grâce à la participation démocratique de citoyens conscients de leur haute vocation – à l’être de la personne afin de pouvoir la seconder dans sa dimension religieuse. N’étant pas une création de l’Etat, elle ne peut être manipulée par lui ; elle devrait plutôt en recevoir reconnaissance et respect.
+
+Lorsque l’ordonnancement juridique, à tous les niveaux, national et international, permet ou tolère le fanatisme religieux ou antireligieux, il manque à sa mission même qui est de protéger et de promouvoir la justice et le droit de chacun. Ces réalités ne peuvent être abandonnées à l’arbitraire du législateur ou de la majorité, car, comme l’enseignait déjà Cicéron, la justice consiste en quelque chose de plus qu’un simple acte productif de la loi et de son application. Elle implique de *reconnaître à chacun sa dignité* [\[11\]](#_ftn11 ""), laquelle, sans liberté religieuse, garantie et vécue dans son essence, résulte mutilée et lésée, exposée au risque de tomber sous la coupe des idoles, des biens contingents transformés en absolus. Tout cela risque de mener la société à des totalitarismes politiques et idéologiques qui donnent une place exagérée au pouvoir public, tandis que les libertés de conscience, de pensée et de religion sont humiliées ou jugulées, comme si elles pouvaient lui faire concurrence.
+
+***Dialogue entre institutions civiles et religieuses***
+
+9\. Le patrimoine de principes et de valeurs exprimés par une religiosité authentique est une richesse pour les peuples et pour leur *ethos*. Ce patrimoine parle directement à la conscience et à la raison des hommes et des femmes, il leur rappelle l’impératif de la conversion morale, les incite à cultiver la pratique des vertus et à se rapprocher les uns des autres avec amour, sous le signe de la fraternité, en tant que membres de la grande famille humaine [\[12\]](#_ftn12 "").
+
+Dans le respect de la laïcité positive des institutions étatiques, la dimension publique de la religion doit toujours être reconnue. Dans ce but, il est fondamental que s’instaure un *dialogue sincère entre les institutions civiles et religieuses* pour le développement intégral de la personne humaine et l’harmonie de la société.
+
+***Vivre dans l’amour et dans la vérité***
+
+10\. Dans l’univers mondialisé caractérisé par des sociétés toujours plus multi-ethniques et multi-confessionnelles, les grandes religions peuvent représenter un important facteur d’unité et de paix pour la famille humaine. A partir de leurs propres convictions religieuses et de la recherche rationnelle du bien commun, leurs fidèles sont appelés à vivre de manière responsable leur propre engagement dans un contexte de liberté religieuse. Au sein des cultures religieuses variées, s’il faut rejeter tout ce qui est contraire à la dignité de l’homme et de la femme, il est nécessaire, à l’inverse, d’accueillir comme un trésor tout ce qui s’avère positif pour la convivialité civile.  L’espace public que la communauté internationale rend disponible pour les religions et pour leur proposition d’une « vie bonne », favorise l’émergence d’une mesure commune de vérité et de bien, ainsi qu’un consensus moral, qui sont essentiels pour une coexistence juste et pacifique. Les *leaders* des grandes religions, en vertu de leur rôle, de leur influence et de leur autorité dans leurs propres communautés, sont appelés les tout premiers au respect mutuel et au dialogue.
+
+*Les chrétiens, pour leur part, sont invités, par la foi même en Dieu, Père du Seigneur Jésus-Christ, à vivre en frères, qui se rencontrent dans l’Eglise et qui collaborent à l’édification d’un monde* où les personnes et les peuples ne feront « plus de mal ni de violence \[…\] car le pays sera rempli de la connaissance du Seigneur, comme les eaux couvrent le fond de la mer » ( *Is* 11,9).
+
+***Le dialogue comme recherche en commun***
+
+11\. Pour l’Eglise, le dialogue entre les fidèles des diverses religions représente un instrument important pour collaborer au bien commun avec toutes les communautés religieuses. L’Eglise elle-même ne rejette rien de ce qui est vrai et saint dans les diverses religions. « Elle considère avec un respect sincère ces manières d’agir et de vivre, ces règles et ces doctrines qui, quoiqu’elles diffèrent en beaucoup de points de ce qu’elle-même tient et propose, cependant apportent souvent un rayon de la vérité qui illumine tous les hommes » [\[13\]](#_ftn13 "").
+
+*Le chemin ainsi indiqué n’est pas celui du relativisme ou du syncrétisme religieux*. L’Eglise en effet « annonce, et elle est tenue d’annoncer sans cesse, le Christ qui est "la voie, la vérité et la vie" ( *Jn* 14,6), dans lequel les hommes doivent trouver la plénitude de la vie religieuse et dans lequel Dieu s’est réconcilié toutes choses » [\[14\]](#_ftn14 ""). Cela n’exclut pas cependant le dialogue et la recherche commune de la vérité dans divers milieux vitaux, car, selon une expression souvent utilisée par saint Thomas d’Aquin, « toute vérité, qui que ce soit qui la dise, vient de l’Esprit Saint » [\[15\]](#_ftn15 "").
+
+En 2011 sera fêté le 25e anniversaire de la *Journée mondiale de prière pour la paix*, convoquée en 1986 à Assise par le vénérable Jean-Paul II. A cette occasion, les responsables des grandes religions du monde ont manifesté combien la religion est un facteur d’union et de paix et non de division et de conflits. Le souvenir de cette expérience est un motif d’espérance en un avenir où tous les croyants se sentent et deviennent effectivement artisans de justice et de paix.
+
+***Vérité morale dans la politique et dans la diplomatie***
+
+12\. La politique et la diplomatie devraient prendre en considération le patrimoine moral et spirituel offert par les grandes religions du monde pour reconnaître et affirmer des vérités, des principes et des valeurs universelles qui ne peuvent être niés sans nier en même temps la dignité de la personne humaine. Mais, dans la pratique, qu’est-ce que cela veut dire promouvoir la vérité morale dans le monde de la politique et de la diplomatie ? Cela signifie agir de manière responsable à partir de la connaissance objective et complète des faits ; cela veut dire déstructurer des idéologies politiques qui finissent par supplanter la vérité et la dignité humaine et veulent promouvoir des pseudo valeurs sous le couvert de la paix, du développement et des droits humains ; cela veut dire favoriser un engagement constant pour fonder la loi positive sur les principes de la loi naturelle [\[16\]](#_ftn16 ""). Tout cela est nécessaire et est cohérent avec le respect de la dignité et de la valeur de la personne humaine,  respect garanti par les Peuples de la terre dans la *Charte de l’Organisation des Nations Unies* de 1945, qui présente des valeurs et des principes moraux universels de référence pour les normes, les institutions, les systèmes de coexistence au niveau national et international.
+
+***Au-delà de la haine et des préjugés***
+
+13\. En dépit des enseignements de l’histoire et de l’engagement des Etats, des Organisations internationales au niveau mondial et local, en dépit des efforts des Organisations non gouvernementales et de tous les hommes et femmes de bonne volonté qui, chaque jour, se dépensent pour la sauvegarde des droits et des libertés fondamentaux, on constate aujourd’hui encore, dans le monde des persécutions, des discriminations, des actes de violence et d’intolérance liés à la religion. En Asie et en Afrique en particulier, les principales victimes sont les membres des minorités religieuses, auxquels il est interdit de professer librement leur religion ou d’en changer, par des intimidations, par la violation des droits et des libertés fondamentaux et des biens essentiels, allant jusqu’à la privation de la liberté personnelle ou même de la vie.
+
+Il existe en outre - comme je l’ai déjà dit - des formes plus élaborées d’hostilité envers la religion, qui, dans les pays occidentaux, se manifestent parfois par le reniement de l’histoire et des symboles religieux dans lesquels se reflètent l’identité et la culture de la majorité des citoyens. Ces attitudes alimentent souvent haine et préjugés et ne sont pas cohérentes avec une vision sereine et équilibrée du pluralisme et de la laïcité des institutions, sans compter qu’elles peuvent empêcher les jeunes générations d’entrer en contact avec le précieux héritage spirituel de leurs pays.
+
+La défense de la religion passe par la défense des droits et des libertés des communautés religieuses. Que les *leaders* des grandes religions du monde et les responsables des Nations renouvellent donc leur engagement pour la promotion et la sauvegarde de la liberté religieuse, en particulier pour la défense des minorités religieuses, qui ne représentent pas une menace pour l’identité de la majorité, mais représentent au contraire une opportunité de dialogue et d’enrichissement culturel réciproque ! Leur défense est la meilleure manière de renforcer l’esprit de bienveillance, d’ouverture et de réciprocité avec lequel protéger les droits et les libertés fondamentaux dans tous les domaines et toutes les régions du monde.
+
+***La liberté religieuse dans le monde***
+
+14\. Je m’adresse maintenant aux communautés chrétiennes qui souffrent de persécutions, de discriminations, de violences et d’intolérance, particulièrement en Asie, en Afrique, au Moyen-Orient et spécialement en Terre Sainte, lieu choisi et béni par Dieu. Tout en leur renouvelant l’assurance de mon affection paternelle et de ma prière, je demande à tous les responsables d’agir avec promptitude pour mettre fin à toute brimade contre les chrétiens qui habitent dans ces régions. Puissent les disciples du Christ, confrontés aux adversités du moment, ne pas perdre courage, car *le témoignage rendu à l’Evangile est et sera toujours signe de contradiction*!
+
+Méditons en notre cœur les paroles du Seigneur Jésus : « Heureux les affligés, car ils seront consolés. Heureux les affamés et assoiffés de la justice, car ils seront rassasiés. \[…\] Heureux êtes-vous quand on vous insultera, qu’on vous persécutera, et qu’on dira faussement contre vous toute sorte d’infamie à cause de moi. Soyez dans la joie et l’allégresse, car votre récompense sera grande dans les cieux » ( *Mt* 5, 5-12). Renouvelons donc « l’engagement pris par nous à l’indulgence et au pardon, que nous demandons à Dieu dans le *Notre Père,* en posant nous-mêmes la condition et la mesure de la miséricorde désirée. En effet, nous prions ainsi : "Pardonne-nous nos offenses, *comme* nous pardonnons à ceux qui nous ont offensés" ( *Mt* 6, 12) » [\[17\]](#_ftn17 ""). La violence ne se vainc pas par la violence. Que notre cri de douleur soit toujours accompagné par la foi, par l’espérance et le témoignage de l’amour de Dieu ! J’exprime aussi le souhait qu’en Occident, spécialement en Europe, cessent l’hostilité et les préjugés à l’encontre des chrétiens qui veulent donner à leur vie une orientation cohérente avec les valeurs et les principes exprimés dans l’Evangile. Que l’Europe apprenne plutôt à se réconcilier avec ses propres racines chrétiennes : elles sont essentielles pour comprendre le rôle qu’elle a eu, qu’elle a et veut avoir dans l’histoire ; elle saura ainsi faire l’expérience de la justice, de la concorde et de la paix,  en cultivant un dialogue sincère avec tous les peuples.
+
+***La liberté religieuse, chemin vers la paix***
+
+15\. Le monde a besoin de Dieu. Il a besoin de valeurs éthiques et spirituelles, universelles et partagées, et la religion peut offrir une contribution précieuse dans leur recherche, pour la construction d’un ordre social juste et pacifique au niveau national et international.
+
+*La paix est un don de Dieu et en même temps un projet à mettre en œuvre, jamais complètement achevé.* Une société réconciliée avec Dieu est plus proche de la paix, qui n’est pas simplement l’absence de guerre, qui n’est pas le simple fruit d’une prédominance militaire ou économique, ni encore moins de ruses mensongères ou d’habiles manipulations. La paix, en fait, est le résultat d’un processus de purification et d’élévation culturelle, morale et spirituelle de chaque personne et chaque peuple, processus dans lequel la dignité humaine est pleinement respectée. J’invite tous ceux qui désirent devenir artisans de paix, et spécialement les jeunes, à se mettre à l’écoute de la voix intérieure qui est en eux, pour trouver en Dieu, le point de référence stable pour la conquête d’une liberté authentique, la force inépuisable pour orienter le monde avec un esprit nouveau, capable de ne pas répéter les erreurs du passé. Comme l’enseigne le Serviteur de Dieu [Paul VI](/content/paul-vi/fr.html), dont la sagesse et la clairvoyance nous ont valu l’institution de la Journée Mondiale de la Paix : « Il faut avant tout donner à la Paix d’autres armes que celles destinées à tuer et à exterminer l’humanité. Il faut surtout les armes morales, qui donnent force et prestige au droit international, à commencer par l’observation des pactes » [\[18\]](#_ftn18 ""). La liberté religieuse est une arme authentique de la paix, et elle a une *mission historique et prophétique*. En effet, elle valorise et fait fructifier les qualités les plus intimes et les potentialités de la personne humaine capables de changer et rendre meilleur le monde. Elle permet de nourrir l’espérance en un avenir de justice et de paix, même devant les graves injustices et les misères matérielles et morales. Puissent tous les hommes et toutes les sociétés, à tout niveau et en tout point de la terre, faire sans tarder l’expérience de la *liberté religieuse, chemin vers la paix !*
+
+*Au Vatican, le 8 décembre 2010.*
+
+**BENEDICTUS PP XVI**
+
+* * *
+
+[\[1\]](#_ftnref1 "") Cf. Benoît XVI, Lett. enc.
+*[Caritas in veritate,](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html)* nn. 29. 55-57.
+
+
+[\[2\]](#_ftnref2 "") Cf. Concile œucuménique Vatican II, Déclaration sur la liberté religieuse
+*[Dignitatis humanae](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651207_dignitatis-humanae_fr.html)*, n. 2.
+
+
+[\[3\]](#_ftnref3 "") Cf. Benoît XVI,
+*[Caritas in veritate](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html)* [,](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html) n. 78.
+
+
+[\[4\]](#_ftnref4 "") Cf. Concile œcuménique Vatican II, Déclaration sur les relations de l’Eglise avec les religions non chrétiennes
+*[Nostra aetate](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_nostra-aetate_fr.html)*, n.1.
+
+
+[\[5\]](#_ftnref5 "") *Ibid*. Déclaration sur la liberté religieuse
+*[Dignitatis humanae](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651207_dignitatis-humanae_fr.html)*, n. 7.
+
+
+[\[6\]](#_ftnref6 "") Benoît XVI,
+*[Discours à l’Assemblée Générale de l’Organisation des Nations Unies](/content/benedict-xvi/fr/speeches/2008/april/documents/hf_ben-xvi_spe_20080418_un-visit.html)* (18 avril 2008) :
+*AAS* 100 (2008), 337,
+*DC* 2403 (2008°, p. 537.
+
+
+[\[7\]](#_ftnref7 "") Cf. Concile œcuménique Vatican II, Déclaration sur la liberté religieuse
+*[Dignitatis humanae](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651207_dignitatis-humanae_fr.html)*, n.2.
+
+
+[\[8\]](#_ftnref8 "") Jean-Paul II,
+*[Discours aux participants à l’Assemblée Parlementaire de l’Organisation pour la Sécurité et la Coopération en Europe](/content/john-paul-ii/fr/speeches/2003/october/documents/hf_jp-ii_spe_20031010_osce.html) (OSCE)*(10 octobre 2003), 1 :
+*AAS* 96 (2004), p. 111.
+
+
+[\[9\]](#_ftnref9 "") Cf.
+*[Caritas in veritate](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html)*, n. 11.
+
+
+[\[10\]](#_ftnref10 "") Cf. Concile œcuménique Vatican II, Déclaration sur la liberté religieuse
+*[Dignitatis humanae](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651207_dignitatis-humanae_fr.html)*, n. 1.
+
+
+[\[11\]](#_ftnref11 "") Cf. Cicéron,
+*De inventione*, II,160.
+
+
+[\[12\]](#_ftnref12 "") Cf. Benoît XVI,
+*[Discours aux Représentants des autres religions du Royaume-Uni](/content/benedict-xvi/fr/speeches/2010/september/documents/hf_ben-xvi_spe_20100917_altre-religioni.html)* (17 septembre 2010) :
+*L’Osservatore Romano*(18 septembre 2010), p.12 ;
+*DC* 2454 (2010), p. 876.
+
+
+[\[13\]](#_ftnref13 "") Concile oecuménique Vatican II, Déclaration sur les relations de l’Eglise avec les religions non chrétiennes
+*[Nostra aetate](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_nostra-aetate_fr.html)*, n.2.
+
+
+[\[14\]](#_ftnref14 "") *Ibid.*
+
+[\[15\]](#_ftnref15 "") *Super evangelium Joannis,* I,3.
+
+
+[\[16\]](#_ftnref16 "") Cf. Benoît XVI,
+*[Discours aux Autorités civiles et au Corps diplomatique à Chypre](/content/benedict-xvi/fr/speeches/2010/june/documents/hf_ben-xvi_spe_20100605_autorita-civili.html)* (5 juin 2010) :
+*L’Osservatore Romano* (6 juin 2010), p. 8 ;
+*DC* 2448 (2010), p. 572-573 ; Commission Théologique Internationale,
+*[A la recherche d’éthique universelle : Nouveau regard sur la loi naturelle](http://www.vatican.va/roman_curia/congregations/cfaith/cti_documents/rc_con_cfaith_doc_20090520_legge-naturale_fr.html)*, Cité du Vatican, 2009.
+
+
+[\[17\]](#_ftnref17 "") Paul VI,
+*[Message pour la Journée mondiale de la Paix 1976](/content/paul-vi/fr/messages/peace/documents/hf_p-vi_mes_19751018_ix-world-day-for-peace.html)*:
+*AAS* 67 (1975), 671 ;
+*DC* 1686 (1975), p. 953.
+
+
+[\[18\]](#_ftnref18 "") *Ibid. : AAS*, 67 (1975), p. 668 ;
+*DC*, 1686 (1975), p. 953.
+
+
+© Copyright 2010 - Libreria Editrice Vaticana

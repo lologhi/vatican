@@ -1,0 +1,1 @@
+**Bénédiction de la première pierre de l’université de *Madaba* du Patriarche Latin**

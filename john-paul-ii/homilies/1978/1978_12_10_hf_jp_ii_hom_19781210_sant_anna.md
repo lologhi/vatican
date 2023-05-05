@@ -1,0 +1,29 @@
+CÉLÉBRATION EUCHARISTIQUE À LA PAROISSE SAINTE-ANNE AU VATICAN
+
+***HOMÉLIE DU PAPE JEAN-PAUL II***
+
+*Dimanche 10 décembre 1978*
+
+1\. " *Vobis... sum episcopus, vobiscum sum christianus*" ("Pour vous Je suis évêque, avec vous je suis chrétien") : ces paroles de saint Augustin ont trouvé un grand écho dans les textes du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm), dans son Magistère. Elles me viennent à l'esprit, précisément aujourd'hui que je visite la paroisse Sainte-Anne, paroisse de la Cité du Vatican. Celle-ci est en effet ma paroisse. J'ai ma résidence stable sur son territoire, comme mes vénérés prédécesseurs et également, comme vous, vénérables frères cardinaux, archevêques, évêques, prêtres et vous, chers frères et sœurs, mes co-paroissiens. Ici, dans cette église nous pouvons répéter de manière toute particulière les paroles que saint Augustin adressa à ses fidèles lors de l'anniversaire de son ordination épiscopale : "Mais vous aussi vous me soutenez, parce que selon le commandement de l'Apôtre nous portons les fardeaux les uns des autres et nous accomplissons ainsi la loi du Seigneur ( *Ga* 6, 2).... Si m'effraie ce que je suis pour vous, ce que je suis avec vous me console. Car pour vous je suis évêque, avec vous je suis chrétien. L'un est un nom de fonction, l'autre de grâce ; celui-là est un nom de péril, celui-ci un nom de salut" ( *Sermo* 340, I ; *PL* 38, 1483),
+
+En effet, la vérité que nous sommes chrétiens chacun de nous — Vous, vénérables et chers frères, et moi — est la source première de notre joie, de notre noble et serein orgueil, de notre union et communion.
+
+"Chrétien" : quel sens a ce terme, et quelle richesse il contient ! C'est à Antioche que, pour la première fois, les disciples ont été appelés "chrétiens" ; nous le lisons dans les Actes des apôtres, là où se trouvent décrits les événements qui, à l'époque apostolique, se déroulèrent dans cette ville. "Chrétiens", ce sont ceux qui ont reçu le nom du Christ ; ceux qui portent en eux son mystère ; ceux qui lui appartiennent de toute leur humanité ; ceux qui, en pleine conscience et liberté, "acceptent" que le Christ imprègne leur être humain de la dignité des fils de Dieu. Chrétiens !
+
+La paroisse est une communauté de chrétiens. Une communauté fondamentale.
+
+2\. Notre paroisse vaticane est dédiée à sainte Anne. Comme on le sait, c'est notre Prédécesseur [Pie XI](http://www.vatican.va/holy_father/pius_xi/index_fr.htm) qui, avec la Constitution Apostolique *Ex Lateranensi pacta*, du 30 mai 1929, a donné une physionomie religieuse particulière à la Cité du Vatican. L'Evêque-Sacriste, une charge qui dès 1352 avait été confiée par Clément VI à l'Ordre des Augustins, fut nommé Vicaire général du Vatican. L'église Sainte-Anne, au service de laquelle se dévouaient les pères augustins, fut érigée en église paroissiale. Puis, par le Motu Proprio *Pontificalis Domus* du 28 mars 1968, Sa Sainteté [Paul VI](http://www.vatican.va/holy_father/paul_vi/index_fr.htm), de vénérée mémoire, abolissait le titre de sacriste, laissant toutefois intacte la fonction qui fut maintenue sous la dénomination de "Vicaire général de Sa Sainteté pour la Cité du Vatican".
+
+Je désire donc adresser un salut paternel et affectueux à mon Vicaire général et à ses collaborateurs immédiats, au curé, aux très zélés pères qui témoignent d'un admirable dévouement dans la direction pastorale de la paroisse et pour le plus grand bien des diverses chapelles du Vatican, aux autres religieux et religieuses qui accomplissent leur laborieux et méritoire service en faveur du Saint-Siège, à tous les paroissiens et paroissiennes de cette communauté particulière.
+
+3. J'avais tant désiré visiter "ma paroisse" dès les débuts de mon Pontificat, comme une des premières parmi les paroisses du diocèse de Rome ! Je suis heureux que cela se réalise précisément pendant le temps de 1'Avent.
+
+La figure de sainte Anne nous rappelle en effet la maison paternelle de Marie, Mère du Christ. C'est là que Marie est venue au monde, portant en elle-même cet extraordinaire mystère de l'immaculée conception. C'est là qu'elle fut entourée de l'amour et de la sollicitude de ses parents, Joachim et Anne. Elle y apprit de sa mère, précisément sainte Anne, comment être mère. Et bien qu'elle eut, du point de vue humain, renoncé à la maternité, le Père céleste, acceptant son don total, la gratifia de la maternité la plus parfaite et la plus sainte. Du haut de la Croix, le Christ transféra, dans un certain sens, la maternité de sa mère à son disciple préféré, et, pareillement, il l'étendit à toute l'Eglise, à tous les hommes. Quand, donc, comme "héritiers de la promesse" (cf. *Ga* 4, 28-31) nous nous trouvons dans le rayon de cette maternité et quand nous ressentons sa sainte profondeur et plénitude, nous pensons alors que ce fut proprement sainte Anne qui, la première, enseigna à Marie, sa Fille, comment être Mère.
+
+"Anne" signifie en Hébreu : "Dieu (sujet sous-entendu) a fait grâce". Pensant à cette signification du nom de sainte Anne, Saint Jean Damascène s'était écrié : "Comme il devait advenir que la vierge Mère de Dieu nâquit d'Anne, la nature n'osa pas précéder le germe de la grâce, pour que la grâce produise le sien. Devait naître en effet cette première-née dont serait né le premier-né de toute créature" ( *Serm*. VI, *De nat.* B.M.V., 2 ; *PG* 96, 663).
+
+Tandis que nous sommes, aujourd'hui, venus ici, nous tous paroissiens de Sainte-Anne-au-Vatican, nous tournons nos cœurs vers elle et, par son intermédiaire, à Marie, Fille et Mère nous répétons : "Montre-toi Mère pour nous tous, / Offre notre prière, / le Christ l'accueillera avec bienveillance, / Lui qui s'est fait ton Fils".
+
+Le deuxième dimanche de l'Avent ces paroles semblent retrouver une toute particulière signification
+
+© Copyright 1978 - Libreria Editrice Vaticana

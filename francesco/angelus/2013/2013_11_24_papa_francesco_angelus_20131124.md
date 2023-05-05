@@ -1,0 +1,21 @@
+SOLENNITÉ DU CHRIST ROI
+
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche**24 novembre 2013*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_RT3W7JSY)**
+
+Avant de conclure cette célébration, je désire saluer tous les pèlerins, les familles, les groupes paroissiaux, les associations et les mouvements, venus de nombreux pays. Je salue les participants au Congrès national de la Miséricorde ; je salue la communauté ukrainienne, qui vit le 80e anniversaire de l’ *Holodomor*, la « grande famine » provoquée par le régime soviétique qui a causé des millions de victimes.
+
+En cette journée, notre pensée reconnaissante va aux missionnaires qui, au cours des siècles, ont annoncé l’Évangile et ont répandu la semence de la foi dans de nombreux lieux du monde ; parmi eux le bienheureux Junípero Serra, missionnaire franciscain espagnol, dont c’est le troisième centenaire de la naissance.
+
+Je ne veux pas terminer sans une pensée à tous ceux qui ont travaillé pour organiser cette Année de la foi. Mgr Rino Fisichella, qui a conduit ce chemin : je le remercie beaucoup, du fond du cœur, lui et tous ses collaborateurs. Merci beaucoup !
+
+À présent prions ensemble l’Angélus. Par cette prière invoquons la protection de Marie spécialement pour nos frères et nos sœurs qui sont persécutés en raison de leur foi, et ils sont si nombreux !
+
+Je vous remercie pour votre présence à cette concélébration. Je vous souhaite un bon dimanche et un bon déjeuner.

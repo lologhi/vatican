@@ -1,0 +1,15 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***À LA DÉLÉGATION BULGARE***
+
+***POUR LA FÊTE DES SAINTS CYRILLE ET MÉTHODE***
+
+*Vendredi 25 mai 2001*
+
+*Mesdames, Messieurs,*
+
+1.Je suis heureux d’accueillir votre délégation, qui vient, comme chaque année, accomplir un pèlerinage sur la tombe de saint Cyrille, dans l’antique basilique Saint-Clément, pour signifier l’attachement du peuple bulgare à la mémoire des deux frères, saints apôtres du monde slave, et qui vient en même temps rendre visite à l’Evêque de Rome.A travers vous, je salue cordialement le cher peuple bulgare, les Autorités civiles du pays, l’Eglise catholique et l’Eglise orthodoxe de Bulgarie.
+
+2.Comme j’ai eu l’occasion de le redire lors de mon récent pèlerinage jubilaire sur les pas de saint Paul, la vie des saints frères Cyrille et Méthode reste un exemple particulièrement éloquent de l’évangélisation à laquelle l’Eglise tout entière est appelée. Partis à la rencontre des peuples slaves, les deux frères de Salonique se sont d’abord consacrés à la traduction de la Bible, apprenant la langue, mais aussi les coutumes et les usages des peuples qui les accueillaient.En créant un nouvel alphabet, adapté à la langue slave, ils ont apporté une contribution essentielle à la culture et à la littérature de l'ensemble des nations slaves. Non seulement ils “ont rempli leur mission en respectant pleinement la culture qui existait déjà chez les peuples slaves, mais ils la soutinrent et la développèrent inlassablement et de manière éminente en même temps que la religion” ( *Slavorum apostoli*, n. 26). Dans une Europe qui cherche son identité et son unité, ils présentent une voie exemplaire et stimulante pour que l’Evangile, enraciné dans la culture des peuples, la féconde et la nourrisse. C’est là une contribution spécifique au développement du continent que votre démarche souligne avec force.
+
+3\. Au terme de notre entretien, je vous remercie vivement de votre aimable visite et je forme des vœux fervents pour tout le peuple bulgare. Puisse-t-il continuer son chemin vers l’épanouissement de ses légitimes aspirations à la paix et à la concorde ! Je confie ces souhaits à Dieu et, par l’intercession des saints Cyrille et Méthode, j’invoque sur vous et sur tous ceux que vous représentez l’abondance des Bénédictions divines.

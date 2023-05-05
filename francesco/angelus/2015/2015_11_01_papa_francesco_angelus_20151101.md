@@ -1,0 +1,41 @@
+SOLENNITÉ DE LA TOUSSAINT
+
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 1er novembre 2015*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/11/1/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour et bonne fête !*
+
+Dans la célébration d’aujourd’hui, fête de Tous les Saints, nous ressentons de manière particulièrement vive la réalité de la communion des saints, notre grande famille, formée par tous les membres de l’Église, aussi bien ceux qui sont encore pèlerins sur la terre que ceux — immensément plus nombreux — qui l’ont déjà quittée et sont allés au Ciel. Nous sommes tous unis, et cela s’appelle « communion des saints », c’est-à-dire la communauté de tous les baptisés.
+
+Dans la liturgie, le Livre de l’Apocalypse rappelle une caractéristique essentielle des saints et dit la chose suivante: ceux-ci sont des *personnes qui appartiennent totalement à Dieu*. Il les présente comme une multitude immense d’« élus », vêtus de blanc et marqués par le « sceau de Dieu » (cf. 7, 2-4 ; 9-14). Par le biais de ce dernier détail, par un langage allégorique est souligné le fait que les saints appartiennent à Dieu de manière pleine et exclusive, ils sont sa propriété. Et que signifie porter le sceau de Dieu dans sa propre vie et en sa personne propre ? L’apôtre Jean nous le dit encore: cela signifie qu’en Jésus Christ, nous sommes devenus vraiment enfants de Dieu (cf. 1 *Jn* 3, 1-3).
+
+Sommes-nous conscients de ce grand don ? Nous sommes tous les enfants de Dieu ! Nous souvenons-nous que dans le Baptême nous avons reçu le « sceau » de notre Père céleste et nous sommes devenus ses enfants ? Pour le dire de manière simple : nous portons le nom de famille de Dieu, notre nom de famille est Dieu, car nous sommes les enfants de Dieu. C’est là que réside la racine de la vocation à la sainteté ! Et les saints que nous commémorons aujourd’hui sont précisément ceux qui ont vécu dans la grâce de leur baptême, qui ont gardé intact le « sceau » en se comportant en enfants de Dieu, cherchant à imiter Jésus ; et maintenant il ont atteint leur objectif, car enfin « ils voient Dieu tel qu’il est ».
+
+Une deuxième caractéristique propre aux saints est qu’ils sont *des exemples à imiter*. Faisons attention : pas seulement les canonisés, mais les saints, pour ainsi dire, « de la porte à côté », qui, avec la grâce de Dieu, se sont efforcés de pratiquer l’Évangile dans le quotidien de leur vie. Nous avons rencontré nous aussi certains de ces saints; peut-être en avons-nous eu une dans la famille, ou bien parmi nos amis ou connaissances. Nous devons leur être reconnaissants et surtout nous devons être reconnaissants envers Dieu qui nous les a donnés, qui les a placés à nos côtés, comme exemples vivants et contagieux de la façon de vivre et de mourir dans la fidélité au Seigneur Jésus et à son Évangile. Combien de bonnes personnes avons-nous connues et combien en connaissons-nous, et nous disons : « Mais cette personne est sainte ! », nous le disons, cela nous vient spontanément. Ce sont les saints de la porte d’à côté, ceux qui ne sont pas canonisés mais qui vivent avec nous.
+
+Imiter leurs gestes d’amour et de miséricorde est un peu comme perpétrer leur présence dans ce monde. Et en effet, ces gestes évangéliques sont les seuls qui résistent à la destruction de la mort : un acte de tendresse, une aide généreuse, un temps passé à écouter, une visite, une parole gentille, un sourire... À nos yeux, ces gestes peuvent sembler insignifiants, mais aux yeux de Dieu, ils sont éternels, car l’amour et la compassion sont plus fort que la mort.
+
+Que la Vierge Marie, Reine de Tous les Saints, nous aide à avoir davantage confiance en la grâce de Dieu, pour avancer avec entrain sur le chemin de la sainteté. Nous confions à notre Mère notre engagement quotidien et nous la prions aussi pour nos proches défunts, dans l’espérance intime de nous retrouver un jour, tous ensemble, dans la communion glorieuse du Ciel.
+
+* * *
+
+**À l’issue de l’Angélus**
+
+Chers frères et sœurs,
+
+Les douloureux épisodes qui ces derniers jours ont aggravé la situations délicate de la République centrafricaine suscitent dans mon âme une vive préoccupation. Je lance un appel aux parties impliquées afin que l’on mette fin à ce cycle de violences. Je suis spirituellement proche des pères comboniens de la paroisse Notre-Dame de Fatima à Bangui, qui accueillent de nombreux réfugiés. J’exprime ma solidarité à l’Église, et aux autres confessions religieuses ainsi qu’à la nation centrafricaine tout entière, si durement éprouvées, tandis qu’elles déploient tous les efforts possibles pour dépasser les divisions et reprendre le chemin de la paix. Pour manifester la proximité dans la prière de toute l’Église envers cette nation si affligée et tourmentée et exhorter tous les Centrafricains à être toujours plus des témoins de miséricorde et de réconciliation, dimanche 29 novembre, j’ai l’intention d’ouvrir la porte sainte de la cathédrale de Bangui, durant le voyage apostolique que j’espère pouvoir réaliser dans ce pays.
+
+Hier à Frascati, la bienheureuse Mère Teresa Casini, fondatrice des Sœurs oblates du Sacré-Cœur de Jésus a été proclamée sainte. Femme contemplative et missionnaire, elle a fait de sa vie une oblation de prière et de charité concrète en soutien aux prêtres. Nous remercions le Seigneur pour son témoignage.
+
+Cet après-midi, je me rendrai [au cimetière du Verano](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/11/1/omeliaverano.html), où je célébrerai la messe d’intention pour les défunts. En allant visiter le principal cimetière de Rome, je m’unis spirituellement à ceux qui ces jours-ci vont prier sur les tombes de leurs proches, dans tous les coins du monde.
+
+Je vous souhaite à tous paix et sérénité dans la compagnie spirituelle des saints. Bon dimanche et s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir !

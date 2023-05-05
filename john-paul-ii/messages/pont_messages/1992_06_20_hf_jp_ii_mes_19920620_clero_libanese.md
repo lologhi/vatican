@@ -1,0 +1,67 @@
+***MESSAGE DU SAINT-PÈRE JEAN-PAUL II***
+
+***AUX PATRIARCHES, ARCHEVÊQUES ET***
+
+***ÉVÊQUES CATHOLIQUES DU LIBAN***
+
+*Aux Patriarches,*
+
+*Archevêques,*
+
+*et Évêques catholiques du Liban,*
+
+*Vénérables Frères,*
+
+Par deux fois déjà, en tant que successeur de l’Apôtre Pierre et à ce titre chargé de paître les brebis du Seigneur \[ [1](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftn1 "")\], je me suis adressé à vous, successeurs des Apôtres en terre libanaise, pour vous dire combien me tenait à cœur la difficile situation de votre pays et combien je souhaitais le voir se relever de ses ruines, matérielles et spirituelles, fruits amers de seize ans d’une guerre dévastatrice et terrible.
+
+Un an s’est écoulé depuis l’annonce de la convocation de l’Assemblée spéciale pour le Liban du Synode des Évêques et avec celle-ci j’indiquais déjà les objectifs à atteindre pour que cette initiative soit couronnée de succès: les Églises catholiques du Liban doivent tout d’abord s’interroger sur elles-mêmes, sur leur fidélité au message évangélique et sur leur engagement à le vivre avec cohérence; enfin, elles doivent aussi s’efforcer de redécouvrir les racines de leur foi pour un renouvellement spirituel de leurs communautés.
+
+Dès le mois de septembre 1991, le Secrétaire général du Synode des Évêques, Monseigneur Jan Schotte, CICM, se rendait sur place tant pour prendre un premier contact avec la réalité libanaise que pour clarifier et expliquer aux différents groupes ecclésiaux libanais les buts et les moyens de l’Assemblée spéciale. Dans le même temps, il lançait une consultation préliminaire informelle ouverte à toutes les personnes de bonne volonté dans le but de mieux connaître les attentes du peuple libanais à propos du Synode.
+
+Au début de cette année, la préparation est passée à l’étape suivante avec la nomination des dix membres du Conseil du Secrétariat général du Synode des Évêques pour l’Assemblée spéciale du Liban. Parmi ces derniers, j’ai choisi un *Évêque-Coordinateur* pour la préparation *in loco* de l’Assemblée synodale, en la personne de Monseigneur Béchara Raï, Évêque de Jbeil des Maronites. Ce Conseil s’est réuni une première fois à Rome, en mars dernier, et une seconde fois ces jours-ci, à Beyrouth. Le travail déjà accompli laisse bien présager pour l’avenir.
+
+En effet, la situation actuelle du pays nécessite des solutions radicales, mais, avant tout, exige de tous les Libanais une véritable conversion des cœurs et des esprits, conversion que seul Dieu, dans sa «divine philanthropie», peut accorder. Les chrétiens, en particulier, auront à cœur de se laisser guider par l’Esprit Saint, Esprit de consolation et d’amour, Esprit de réconciliation et de pardon mutuel, pour apporter leur contribution spécifique au renouvellement de toute la société.
+
+Nombre de fois déjà dans le passé, et souvent de façon héroïque, le Liban a su témoigner de son attachement au Christ. Aujourd’hui encore, et plus qu’hier, les chrétiens du Liban se doivent de rendre compte de l’espérance qui est en eux \[ [2](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftn2 "")\], brillant comme une lampe dans l’obscurité \[ [3](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftn3 "")\] et brûlant de la douce charité du Christ \[ [4](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftn4 "")\].
+
+C’est pourquoi, pour stimuler ce mouvement de conversion intérieure tant désiré et attendu comme signe avant-coureur du redressement général de la société libanaise, je tiens désormais à rendre public le thème de cette Assemblée spéciale pour le Liban du Synode des Évêques. J’ai opté pour ce thème, sur proposition des membres du Conseil du Secrétariat général du Synode des Évêques et après en avoir évalué les motifs. En effet, il rappelle que le Christ est la source de tout bien, que le but recherché est la conversion des cœurs, conversion dont la solidarité et le témoignage sont les conséquences directes, et que c’est l’amour du Christ qui pousse ses fidèles à se mettre ensemble au service, tant spirituel que matériel, de leurs frères. La formulation en est à la fois sobre et complète: «Le Christ est notre espérance: renouvelés par son Esprit, solidaires, nous témoignons de son amour».
+
+Pour favoriser la ferveur des chrétiens et la dévotion populaire, en vue de la préparation des cœurs et des esprits à ce grand moment ecclésial, j’ai pensé qu’il serait opportun d’offrir aux fidèles une prière spéciale pour ce Synode. Puisse-t-elle les conforter dans leur désir de retour au Dieu de miséricorde \[ [5](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftn5 "")\].
+
+«O Père céleste, riche en miséricorde, Toi qui as comblé tous les hommes par le mystère de ton amour infini, soutiens l’Église de ton Fils Unique dans sa marche synodale. Fais que ces jours soient pour elle un temps de bénédiction et de salut, un temps d’ouverture et de réconciliation, un temps de pénitence et de renouveau, un temps de foi et d’espérance, au cœur même de la tourmente, car Tu es Tout-Puissant et Miséricordieux. À Toi, toutes grâces à jamais.
+
+«O Jésus Christ, notre Dieu, notre Sauveur et notre Espérance, Toi qui as fondé l’Église, signe de salut pour les générations et les siècles, visite-la de ta Croix victorieuse pour que les forces de l’enfer ne l’emportent pas sur elle. Eclaire-la de ta Parole; guide-la dans ta connaissance; renouvelle-la par les enseignements de ton Évangile et par la force de ton Esprit Saint. Etablis-la solidement dans la foi; nourris-la de ton pain, le pain de la vérité; unis ses enfants par le lien de la charité et de la concorde, afin qu’elle vive de Toi et soit témoin de ton amour. À Toi, toute gloire à jamais.
+
+«O Esprit Saint, Esprit du Père et du Fils, dispensateur des charismes, Toi qui habites dans l’Église et en fais un Temple saint, enrichis-nous de la variété infinie de tes dons pour que nous soyons des membres vivants qui s’aident les uns les autres dans l’édification de la sainte Église. Sois notre consolateur, notre guide et notre force. Fais que ce synode soit une Pentecôte permanente, afin que nous puissions porter dignement le nom de chrétiens par lequel nous avons été appelés, rendre témoignage au Christ, aux valeurs de son Évangile, et en intégrer notre société.
+
+«Ainsi, au sein même de la diversité de nos confessions, et après de si longues souffrances, nous serons pleinement conscients que nous sommes tous frères solidaires, que notre Liban est plus qu’un pays, qu’il est, conformément à sa vocation historique, un message de fraternité, de liberté et de dialogue. À Toi, toutes louanges à jamais.
+
+«O Vierge Marie, Mère de Dieu et notre Mère, ô Notre-Dame du Liban, toi qui as accompagné notre peuple dans les diverses étapes de sa vie et l’as préservé dans la foi, nous avons recours à Toi; sous ta protection nous mettons notre marche synodale et la confions à ta sollicitude maternelle, afin que tu nous aides à accueillir le souffle de l’Esprit et à faire ce que ton Fils nous commande. À Toi, honneur à jamais».
+
+À nos frères des autres Églises chrétiennes, je demande de nous accompagner dans notre itinéraire synodal et de lui réserver compréhension et accueil bienveillant. Qu’ils soient assurés de notre sincère dévouement à la cause commune d’un Liban renouvelé dans l’Esprit.
+
+J’invite aussi les Libanais de confession islamique à apprécier les loyaux efforts de leurs concitoyens catholiques, contribution sincère à la collaboration de la reconstruction d’un Liban, terre de liberté et de communion fraternelle.
+
+Enfin, je suis certain que vous saurez, chers Frères dans l’épiscopat, insuffler à vos fidèles, par votre exemple et vos paroles, l’énergie nécessaire pour la mise en œuvre de ce vaste projet.
+
+«Je rends grâce à Dieu sans cesse à votre sujet pour la grâce de Dieu qui vous a été accordée dans le Christ Jésus... C’est Lui qui vous affermira jusqu’au bout, pour que vous soyez irréprochables, au Jour de notre Seigneur Jésus-Christ. Il est fidèle, le Dieu par qui vous avez été appelés à la communion de son Fils, Jésus Christ notre Seigneur» \[ [6](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftn6 "")\].
+
+Que sa Bénédiction descende sur vous!
+
+*Du Vatican, le 20 juin 1992.*
+
+**IOANNES PAULUS PP. II**
+
+* * *
+
+\[ [1](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftnref1 "")\] Cfr. *Io*. 21, 15-17.
+
+\[ [2](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftnref2 "")\] Cfr. *1 Petr*. 3, 15.
+
+\[ [3](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftnref3 "")\] Cfr. *2 Petr*. 1, 19.
+
+\[ [4](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftnref4 "")\] Cfr. *1 Petr*. 4, 8.
+
+\[ [5](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftnref5 "")\] Cfr. *2 Cor*. 1, 3.
+
+\[ [6](https://nfs.catholica.va/shares/export/mastersite_discof_new/Master_site/holy_father/john_paul_ii/speeches/1992/june/documents/hf_jp-ii_spe_19920620_libanesi_fr.html#_ftnref6 "")\] *1 Cor*. 1, 4. 8-9.

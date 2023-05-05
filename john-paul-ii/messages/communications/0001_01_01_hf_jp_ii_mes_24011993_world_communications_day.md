@@ -1,0 +1,31 @@
+***MESSAGE DU SAINT PÈRE JEAN-PAUL II***
+
+***POUR LA XXVII* *e JOURNÉE MONDIALE***
+
+***DES COMMUNICATIONS SOCIALES***
+
+« **Les vidéocassettes et les audiocassettes**
+
+**face à la formation des cultures et des consciences »**
+
+\[Dimanche 23 mai 1993\]
+
+*Chers frères et sœurs,*
+
+Un an après la publication de l'Instruction pastorale *Aetatis novae* sur les communications sociales, je vous invite une nouvelle fois à réfléchir sur la vision du monde moderne que l'Instruction présente et sur les implications pratiques des situations qu'elle décrit. L'Eglise ne peut ignorer les changements sans précédent que le progrès a introduit dans ce secteur important et omniprésent de la vie moderne. Chacun d'entre nous devrait demander la sagesse nécessaire pour évaluer les possibilités que les développements de la technologie des communications modernes offrent pour servir Dieu et son peuple, tout en reconnaissant les défis que représentent inévitablement un tel progrès.
+
+L'Instruction pastorale *Aetatis novae* nous rappelle que « les communications sociales connaissent une expansion considérable qui influence profondément les cultures de l'ensemble du monde » (n§ 1). Nous pouvons en effet parler d'une « nouvelle culture » créée par les communications modernes, qui touche tout le monde, particulièrement les jeunes générations, et qui est en grande partie le résultat de l'évolution technologique qui a élaboré « de nouveaux modes de communiquer avec de nouveaux langages, de nouvelles techniques, de nouveaux comportements » ( [*Redemptoris missio*, n§ 37](http://www.vatican.va/edocs/FRA0205/__PP.HTM)). De nos jours, alors que l'Eglise s'efforce de remplir son incessante mission de proclamer la Parole de Dieu, elle affronte aussi l'immense défi d'évangéliser cette nouvelle culture et d'y exprimer la vérité inchangée de l'Evangile. Comme tous les croyants sont affectés par ce développement, chacun d'entre nous est appelé à s'adapter aux situations changeantes et à découvrir des moyens efficaces et fiables d'utiliser les communications sociales pour la gloire de Dieu et au service de sa création.
+
+Mon message pour la Journée mondiale des communications de l'année passée mentionnait, parmi les réalités célébrées à cette occasion annuelle, les dons de Dieu tels que la parole, l'ouïe et la vue, qui rendent possible la communication entre nous. Le thème de cette année est centré sur deux « nouveaux » médias spécifiques qui servent ces sens de façon remarquable, à savoir les audiocassettes et les vidéocassettes.
+
+Les audiocassettes et les vidéocassettes nous on permis d'avoir à notre disposition et de transporter facilement un nombre illimité de programmes audio ou vidéo, tant pour l'éducation que pour les loisirs, en vue d'une meilleure compréhension de l'information, ou pour apprécier la beauté et l'art. Ces nouvelles ressources devraient être reconnues comme des instruments que Dieu a mis à notre disposition grâce à l'intelligence et au génie humains. Comme tous les dons de Dieu, ils sont destinés à être utilisés à bon escient et pour aider les individus et les communautés à grandir dans la connaissance et l'appréciation de la vérité, ainsi qu'à développer leur sensibilité envers la dignité et les besoins des autres. Les audiocassettes et les vidéocassettes représentent donc un énorme potentiel en mesure de favoriser le développement culturel, social et religieux des individus. Elles peuvent aussi être d'un grand service pour la transmission de la foi, bien qu'elles ne remplacent en aucun cas le témoignage personnel qui est indispensable pour la proclamation de la vérité et de la valeur intégrales du message chrétien.
+
+Je souhaite que tous ceux qui sont engagés professionnellement dans la production des programmes vidéo ou audio sous forme de cassettes ou sous d'autres formes, réfléchissent sur la nécessité d'intégrer le message chrétien, explicitement ou implicitement, dans cette nouvelle culture créée par les moyens de communication modernes (cf. *Aetatis novae* n§ 11). Ceci ne devrait pas être considéré seulement comme une conséquence naturelle de « la présence active et ouverte au sein du monde des communications » (cf. *ibid*), mais aussi comme le résultat d'un engagement précis de la part des communicateurs. Les professionnels qui mesurent à sa juste valeur l'impact et l'influence des productions médiatiques qu'ils créent doivent s'appliquer à leur donner une qualité morale telle que leur effet sur la formation de la culture soit toujours positif. Ils doivent renoncer à l'illusion toujours présente du profit facile et refuseront fermement de participer à toute production qui exploite la faiblesse humaine, offense les consciences et porte atteinte à la dignité humaine.
+
+Il est également important que les utilisateurs de médias tels que les audiocassettes et les vidéocassettes ne se considèrent pas comme de simples consommateurs. Tout individu, par le seul fait de transmettre aux producteurs ses réactions aux offres du marché, peut influencer le choix des sujets et le ton moral des productions futures. La famille, en particulier, en tant que cellule fondamentale de la société, est sérieusement affectée par l'environnement médiatique où elle vit. Les parents ont donc le grave devoir d'éduquer la famille à un usage critique des moyens de communication sociale. L'importance de cette tâche doit être expliquée spécialement aux jeunes mariés. En outre, les programmes catéchétiques ne devraient pas négliger la nécessité d'éduquer les enfants et les adolescents à l'usage correct et responsable des médias.
+
+A l'occasion de cette Journée mondiale des communications, j'adresse mes meilleurs vœux aux hommes et femmes de la profession, qui s'appliquent à servir la communauté humaine par les communications sociales, ainsi qu'à tous les membres des organisations catholiques internationales des communications sociales qui travaillent dans le monde entier, ainsi qu'à l'ensemble des usagers des médias qui forment leur public et vis-à-vis desquels ils ont une lourde responsabilité. Que Dieu tout-puissant répande ses dons sur vous tous.
+
+*Du Vatican, le 24 janvier 1993.*
+
+**IOANNES PAULUS PP. II**

@@ -1,0 +1,21 @@
+[VISITE PASTORALE À CAGLIARI](http://w2.vatican.va/content/benedict-xvi/fr/travels/2008/inside/documents/cagliari.html)
+
+**BENOÎT XVI**
+
+***ANGÉLUS***
+
+*Sanctuaire Notre-Dame de Bonaria* *Dimanche 7 septembre 2008*
+
+*Chers frères et sœurs,*
+
+Au terme de cette célébration je désire vous saluer tous à nouveau et vous remercier. Je désire surtout saluer et remercier Monsieur Silvio Berlusconi, président du Conseil des ministres, pour son accueil et sa présence, Monsieur Giovanni Letta, sous-secrétaire, et toutes les autorités civiles et militaires ici présentes.
+
+Et enfin, nous tournons encore notre regard vers la "Douce reine des Sardes", vénérée sur cette colline de Bonaria. Au cours des siècles, combien de personnages illustres sont venus lui rendre hommage ! Combien de mes prédécesseurs ont voulu l'honorer d'une affection particulière ! Le bienheureux [Pie IX](http://w2.vatican.va/content/vatican/fr/holy-father/pio-ix.html) avait décrété son couronnement ; saint [Pie X](http://w2.vatican.va/content/pius-x/fr.html), il y a environ cent ans, la proclama Patronne de toute la Sardaigne ; [Pie XI](http://w2.vatican.va/content/pius-xi/fr.html) attribua à la nouvelle église le titre de "Basilique mineure" ; [Pie XII](http://w2.vatican.va/content/pius-xii/fr.html), il y a cinquante ans, fut spirituellement présent  à  travers un message spécial transmis en direct à Radio Vatican et le bienheureux [Jean XXIII](http://w2.vatican.va/content/john-xxiii/fr.html) envoya une lettre en 1960, pour la réouverture du sanctuaire au culte, après sa restauration. Le premier pape à revenir sur l'île après 1650 ans, a été le serviteur de Dieu [Paul VI](http://w2.vatican.va/content/paul-vi/fr.html), qui visita le sanctuaire le 24 avril 1970. Et devant la sainte effigie de la Vierge, [Jean-Paul II](http://w2.vatican.va/content/john-paul-ii/fr.html) aussi s'arrêta pour prier, le 20 octobre 1985. Dans le sillage des papes qui m'ont précédé, j'ai moi aussi choisi le sanctuaire de Bonaria pour accomplir une visite pastorale qui veut idéalement embrasser toute la Sardaigne.
+
+Nous avons aujourd'hui renouvelé la consécration de la ville de Cagliari, de la Sardaigne, et de chacun de ses habitants. Que la Sainte Vierge continue de veiller sur tous et sur chacun, afin que le patrimoine des valeurs évangéliques soit transmis intègre aux nouvelles générations, et afin que le Christ règne dans les familles, dans les communautés et dans les différents milieux de la société. Que la Vierge protège en particulier ceux qui, en ce moment, ont le plus besoin de son intervention maternelle : les enfants et les jeunes, les personnes âgées et les familles, les malades et tous ceux qui souffrent.
+
+Conscients du rôle important que Marie joue dans l'existence de chacun de nous, en fils pleins de dévotion, nous fêtons aujourd'hui sa Nativité. Cet événement constitue une étape fondamentale pour la Famille de Nazareth, berceau de notre Rédemption; un événement qui nous concerne tous, parce que chaque don que Dieu lui a accordé, à elle, la Mère, il l'a accordé en pensant aussi à chacun de nous, ses enfants. C'est pourquoi nous demandons avec une grande reconnaissance à Marie, Mère du Verbe incarné, et notre Mère, de protéger toutes les mères sur terre : celles qui, avec leur mari, éduquent leurs enfants dans un cadre familial harmonieux, et celles qui, pour tant de motifs, se trouvent seules pour affronter une tâche si ardue. Puissent-elles toutes rendre avec dévouement et fidélité leur service quotidien dans la famille, dans l'Église et la société. Que pour toutes, Marie soit soutien, réconfort et espérance !
+
+Sous le regard de Marie, je veux rappeler les chères populations de Haïti, durement éprouvées ces derniers jours par le passage de trois ouragans. Je prie pour les victimes, hélas nombreuses, et je prie pour les sans-abri. Je suis proche de toute la nation et je souhaite que lui parviennent au plus vite les aides nécessaires. Je les confie tous à la protection maternelle de Notre-Dame de Bonaria.
+
+© Copyright 2008 - Libreria Editrice Vaticana

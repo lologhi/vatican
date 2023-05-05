@@ -1,0 +1,38 @@
+**RENCONTRE AVEC UNE DELEGATION DE PARTICIPANTS A**
+
+**LA RENCONTRE INTERNATIONALE D’ATHLETISME**
+
+**“ *WE RUN TOGETHER - SIMUL CURREBANT*”**
+
+*Bibliothèque du Palais apostolique*
+
+*Mercredi 20 mai 2020*
+
+* * *
+
+- **[Paroles du Saint-Père](#PAROLES_)**
+- **[Message du Saint-Père](#MESSAGE_)**
+
+* * *
+
+**PAROLES DU SAINT-PERE**
+
+Je vous remercie tous pour le travail que vous faites: chacun fait quelque chose pour la communauté, pour les autres. Et cela est la joie, n’est-ce pas? La joie de faire quelque chose pour les autres. Et ensuite, en conséquence, on reçoit des autres. Mais ce qu’a cité le cardinal est la joie de donner, d’offrir, d’offrir la beauté du sport, la possibilité de chacun: offrir pour la joie et le bonheur des autres quelque chose que j’ai moi-même. Cela est grand, c’est une attitude humaine, c’est créatif. Et les personnes offrent même leur vie pour les autres: les mères pour leurs enfants, et les pères pour leurs enfants, et tant d’autres... Donner quelque chose qui est à moi pour les autres. Et vous, vous donnez la beauté aux autres, la beauté du sport. C’est quelque chose d’important: comprendre comment donner la beauté. Cela aide, car ce que vous faites n’est pas un exercice, disons-le ainsi, de pratique de la vitesse ou de jeux, non. Cela est vrai, mais il y a davantage. C’est donner aux autres. C’est cette devise de l’association qui est si importante: vous n’êtes pas séparés des autres, « *You run together*», vous courez ensemble, *ensemble.*
+
+Et il y a toujours une attitude que nous trouvons dans ce passage de l’Evangile, celle des deux disciples qui accouraient au sépulcre de Jésus le matin de la Résurrection (cf. Jn 20, 3-6). Le plus jeune arrive d’abord \[Jean\], et le plus vieux \[Pierre\], est derrière. Mais il y a toujours le respect d’attendre l’autre. Et il existe une antique règle médiévale pour les pèlerins, pour ceux qui faisaient les pèlerinages aux sanctuaires pendant le Moyen-âge — aujourd’hui aussi on les fait, pensons à Saint-Jacques-de-Compostelle par exemple — une règle qui dit: on doit marcher au pas de celui qui est le plus faible, de celui qui marche le plus lentement. «Non, moi je vais devant...». Non. Il faut aller au même pas. Comme l’a fait Jean: oui, il est arrivé le premier, mais il a attendu l’autre. C’est une très belle chose, que nous devons apprendre, comme humanité: aller au pas des personnes qui ont un autre rythme, ou au moins les prendre en considération et les intégrer dans notre rythme. Merci. Merci de tout cela. Et à présent je voudrais faire un... mais, disons ce que c’est: un discours. A toutes les associations, à vous tous, pour qu’il reste comme un message à tous de cette rencontre avec vous.
+
+* * *
+
+**MESSAGE DU SAINT-PERE**
+
+*Chères amies et chers amis sportifs,*
+
+Demain, 21 mai, aurait dû se dérouler à Castel Porziano la rencontre internationale d’athlétisme «We Run Together - Simul Currebant». Des champions olympiques auraient du courir — pour la première fois — avec des athlètes paralympiques, des athlètes porteurs de handicaps mentaux, et avec des réfugiés, des migrants et des détenus, qui auraient été également les juges de la compétition. Tous ensemble et avec la même dignité. Un témoignage concret de ce que devrait être le sport: c’est-à-dire un «pont» qui unit les femmes et les hommes de religions et de cultures différentes, en promouvant l’inclusion, l’amitié, la solidarité, l’éducation. C’est-à-dire un «pont» de paix.
+
+Demain, on ne pourra pas courir avec les jambes, mais on pourra courir avec le cœur. L’«âme» de cette rencontre inclusive est solidaire: courir ensemble. Et ainsi, les très nombreux athlètes qui y ont adhéré — et que j’aurais rencontré personnellement avec plaisir — mettront à disposition plusieurs objets et expériences sportives pour une initiative de bienfaisance. Toute la recette sera dévolue au personnel médical des hôpitaux «Papa Giovanni XXIII» de Bergame et à la «Fondazione Poliambulanza» de Brescia, tous les deux symboles de la lutte contre la pandémie qui a frappé toute la planète. C’est une initiative pour aider et remercier les infirmières, les infirmiers et le personnel hospitalier. Ce sont des héros! Ils vivent tous leur profession comme une vocation, de manière héroïque, en mettant en danger leur propre vie pour sauver les autres. Jésus a dit: «Il n’est pas de plus grand amour que de donner sa vie pour les autres» (cf. Jn 15, 13).
+
+Je suis content que cette initiative soit organisée par l’Athletica Vaticana, une organisation qui témoigne concrètement, dans les rues et au milieu des gens, du visage solidaire du sport. Le premier geste de l’Athletica Vaticana a été celui d’accueillir comme athlètes «honoraires» plusieurs jeunes migrants et une petite fille victime d’une grave maladie neurodégénérative. Aujourd’hui, ils sont venus ici, pour me rencontrer.
+
+Avec l’Athletica Vaticana collaborent à cette initiative les Fiamme Gialle, le groupe sportif de la Garde des finances, et le «Parvis des gentils», une structure du Conseil pontifical de la culture qui promeut la rencontre et le dialogue entre croyants et non-croyants. Ils ont tous toujours démontré une sensibilité particulière à l’égard des besoins réels des personnes: en particulier des familles assistées par le dispensaire pédiatrique Sainte-Marthe, actif depuis presque cent ans au Vatican. Le Comité régional Fidal-Lazio collabore également avec eux à ce projet de sport inclusif et pour tous.
+
+Je vous encourage, chères amies et chers amis sportifs, à vivre toujours plus votre passion comme une expérience d’unité et de solidarité. Les vraies valeurs du sport sont particulièrement importantes pour affronter ce temps de pandémie et, surtout, la reprise difficile. Et c’est dans cet esprit que je vous invite à courir, ensemble, la course de la vie. Merci pour tout ce que vous faites.

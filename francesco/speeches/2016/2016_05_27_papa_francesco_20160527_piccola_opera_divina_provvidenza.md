@@ -1,0 +1,23 @@
+***DISCOURS DU PAPE FRANÇOIS*** ***AUX PARTICIPANTS AU CHAPITRE GÉNÉRAL***
+
+***DE LA PETITE ŒUVRE DE LA DIVINE PROVIDENCE (ORIONIENS)***
+
+*Salle Clémentine*
+
+*Vendredi 27 mai 2016*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/5/27/piccolaopera.html)\]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je suis heureux de vous rencontrer à l’occasion de votre chapitre général. Je vous salue cordialement, à commencer par le nouveau supérieur général, que je remercie de ses paroles et à qui je présente mes vœux de bon travail, ainsi qu’aux conseillers.
+
+Nous marchons tous à la suite de Jésus. L’Église tout entière est appelée à marcher avec Jésus sur les routes du monde, pour rencontrer l’humanité d’aujourd’hui qui a besoin — comme l’écrivait don Orione — du « pain du corps et du baume divin de la foi » ( *Lettres* II, 463). Pour incarner ces paroles de votre fondateur dans l’histoire d’aujourd’hui et vivre l’essentiel de son enseignement, vous avez placé votre identité au centre des réflexions du chapitre général, résumée par don Orione dans cette expression de *« serviteurs du Christ et des pauvres »*. La voie maîtresse est de garder ces deux dimensions de votre vie personnelle et apostolique toujours unies. Vous avez été appelés et consacrés par Dieu pour rester avec Jésus (cf. *Mc* 3, 14) et pour le servir dans les pauvres et les exclus de la société. En eux, vous touchez et vous servez la chair du Christ et vous grandissez dans l’union avec Lui, en veillant toujours à ce que la foi ne devienne jamais une idéologie, que la charité ne se réduise pas à de la philanthropie et que l’Église ne finisse pas par être une « ong ».
+
+Etre des serviteurs du Christ caractérise tout ce que vous êtes et ce que vous faites, garantit votre efficacité apostolique, rend votre service fécond. Don Orione vous recommandait de « chercher et de panser les plaies du peuple, d’en soigner les maladies, d’aller à sa rencontre au niveau moral et matériel: de cette manière, votre action ne sera pas seulement efficace, mais profondément chrétienne et salvatrice » ( *Écrits* 61, 114). Je vous encourage à suivre ces indications ; elles sont plus que jamais valables! En effet, en agissant ainsi, non seulement vous imiterez Jésus bon Samaritain, mais vous offrirez aux gens la joie de rencontrer Jésus et le salut qu’Il apporte à tous. En effet, « ceux qui se laissent sauver par lui sont libérés du péché, de la tristesse, du vide intérieur, de l’isolement. Avec Jésus Christ la joie naît et renaît toujours » (Exhort. ap. *[Evangelii gaudium](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html)*, n. 1).
+
+L’annonce de l’Évangile, en particulier de nos jours, demande beaucoup d’amour pour le Seigneur, associé à un esprit d’entreprise particulier. J’ai appris que, du vivant de votre fondateur, dans certains lieux, on vous appelait « les prêtres qui courent », car on vous voyait toujours en mouvement parmi les gens, avec le pas rapide de qui veut aider. « *Amor est in via*», rappelait saint Bernard, l’amour est toujours sur la route, l’amour est toujours en chemin. Avec don Orione, moi aussi je vous exhorte à ne pas rester enfermés dans vos milieux, mais à aller « dehors ». Il y a tellement besoin de prêtres et de religieux qui ne s’arrêtent pas seulement dans les institutions de charité — bien que nécessaires —, mais qui sachent aussi aller au-delà des frontières de celles-ci, pour apporter dans chaque milieu, même le plus lointain, le parfum de la charité du Christ. Ne perdez jamais de vue l’Église, ni votre communauté religieuse, votre cœur doit d’ailleurs être là, dans votre « cénacle », mais ensuite, il faut sortir pour apporter la miséricorde de Dieu à tous, sans distinction.
+
+Votre service à l’Église sera d’autant plus efficace que vous vous efforcerez de soigner votre adhésion personnelle au Christ et votre formation spirituelle. En témoignant de la beauté de la consécration, de la bonne vie de religieux « serviteurs du Christ et des pauvres », vous serez des exemples pour les jeunes. La vie engendre la vie, le religieux saint et heureux suscite de nouvelles vocations. Je confie votre congrégation à la protection maternelle de la Vierge Marie, que vous vénérez comme « Mère de la Divine Providence ». Je vous demande, s’il vous plaît, de prier pour moi et pour mon service à l’Église, pour que moi aussi, je sois en chemin. Je vous donne ma Bénédiction apostolique, ainsi qu’à vos confrères, en particulier ceux qui sont âgés et malades, et ceux qui partagent avec vous le charisme de votre institut.

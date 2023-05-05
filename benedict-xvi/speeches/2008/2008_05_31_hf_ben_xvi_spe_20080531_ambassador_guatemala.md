@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À S.E. M.******ACISCLO VALLADARES MOLINA*** ***,***
+
+***NOUVEL AMBASSADEUR******DU GUATEMALA*** ***PRÈS LE SAINT-SIÈGE\****
+
+*Samedi 31 mai 2008*
+
+Monsieur l'ambassadeur,
+
+1\. Je reçois avec joie les Lettres qui vous accréditent comme ambassadeur extraordinaire et plénipotentiaire de la République du Guatemala près le Saint-Siège. Je suis heureux de vous adresser une cordiale bienvenue à l'occasion de cet acte solennel par lequel débute la mission qui vous a été confiée, et je vous exprime par la même occasion ma gratitude pour les paroles que vous m'avez adressées, ainsi que pour le salut déférent que m'a fait parvenir le président de votre noble pays, M. Alvaro Colom Caballeros. Je vous prie de lui transmettre mes meilleurs vœux, ainsi qu'à son gouvernement, en l'assurant de mes prières pour la sécurité, le progrès et la coexistence harmonieuse du bien aimé peuple guatémaltèque.
+
+2\. C'est cette année le vingt-cinquième anniversaire de la première visite pastorale que mon vénéré prédécesseur a effectuée dans cette belle terre "de l'éternel printemps". En cette mémorable occasion, le Serviteur de Dieu Jean-Paul II a pu manifester la sollicitude avec laquelle le Saint-Siège a accompagné cette nation dans ses diverses épreuves, en se montrant particulièrement proche d'elle dans les moments les plus délicats, pour partager les inquiétudes de son peuple et, surtout, pour l'encourager à s'engager avec abnégation pour le bien commun.
+
+Monsieur l'ambassadeur, je sais que les Guatémaltèques répondent à cette sollicitude par une profonde adhésion à l'évêque de Rome, ce qui contribue à resserrer les liens d'amitié qui unissent depuis longtemps votre pays au Saint-Siège, qui tient en grande considération ces bonnes relations et formule ses meilleurs vœux afin que les conditions dans lesquelles vit le Guatemala permettent des succès complets dans les différents domaines de la société et renforcent une base solide pour faire face à un avenir prometteur.
+
+3\. La récente visite ad limina des évêques guatémaltèques nous a offert une magnifique opportunité pour connaître de plus près la vitalité avec laquelle l'Eglise dans votre nation annonce l'Evangile, ouvre une route d'espérance et tend une main fraternelle à tous les citoyens, notamment les plus indigents.
+
+Dans cette optique, l'Eglise partage l'inquiétude des autorités du Guatemala, comme Votre Excellence l'a fait remarquer, devant des phénomènes qui affligent une grande partie de la population, tels que la pauvreté et l'émigration. La riche expérience ecclésiale, accumulée au cours de l'histoire, peut contribuer à trouver les mesures pour faire face à ces problèmes dans une perspective humanitaire et pour renforcer la solidarité, indispensable pour atteindre des solutions effectives et durables. Dans ce sens, il faut ajouter aux indispensables programmes techniques et économiques les autres aspects qui promeuvent la dignité de la personne, la stabilité de la famille et une éducation qui tienne compte des valeurs humaines et chrétiennes les plus importantes. Il ne faut pas non plus oublier ceux qui ont dû abandonner leur terre, sans cesser de la garder dans leur cœur. C'est un devoir de gratitude et de justice envers ceux qui, de fait, sont aussi une source de ressources significatives pour la patrie qui les a vus naître.
+
+4\. Un autre défi pour le Guatemala est de trouver un remède à la malnutrition de nombreux enfants. Le droit à l'alimentation répond principalement à une motivation éthique, "car j'ai eu faim et vous m'avez donné à manger" ( *Mt* 25, 35), qui pousse à partager les biens matériels en tant que signe de l'amour dont nous avons tous besoin. Comme je l'ai déjà indiqué à une autre occasion "l'objectif d'éradiquer la faim et, dans le même temps, de pouvoir compter sur une alimentation saine et suffisante, demande également des méthodes et des actions spécifiques qui permettent une exploitation des ressources respectant le patrimoine de la Création. Œuvrer dans cette direction constitue une priorité qui demande non seulement d'utiliser les bénéfices des résultats de la science, de la recherche et des technologies, mais également de tenir compte des cycles et du rythme de la nature observés par les habitants des zones rurales, ainsi que de protéger les coutumes traditionnelles des communautés autochtones, en mettant de côté les motivations égoïstes et exclusivement économiques" ( *[Message au directeur de la F.A.O. à l'occasion de la Journée mondiale de l'alimentation, 4 octobre 2007](/content/benedict-xvi/fr/messages/food/documents/hf_ben-xvi_mes_20071004_world-food-day-2007.html)*).
+
+5\. Ce droit fondamental à l'alimentation est intrinsèquement lié à la protection et à la défense de la vie humaine, roc solide et inviolable sur lequel se fonde tout l'édifice des droits de l'homme. On ne fera donc jamais assez d'efforts pour assister les mères, notamment celles qui se trouvent en grande difficulté, de manière à ce qu'elles puissent mettre au monde leurs enfants dans la dignité, en évitant l'injuste recours à l'avortement. Dans ce sens, sauvegarder la vie humaine, en particulier celle de l'enfant à naître, dont l'innocence et la vulnérabilité sont plus grandes, est un devoir toujours actuel, qui est lié, par sa nature même, au fait de garantir l'adoption des enfants à tous les moments par la légalité des procédures utilisées à ces fins.
+
+6\. Le fléau de la violence sociale s'aggrave souvent à cause du manque de dialogue et de cohésion au sein des foyers domestiques, des inégalités économiques criantes, des graves négligences et déficiences sanitaires, de la consommation et du trafic de drogue et de la plaie de la corruption. Je constate avec satisfaction les progrès qui ont été faits dans votre nation pour lutter contre ces tragédies, des efforts qui doivent se poursuivre, en encourageant la coopération de tous pour y mettre fin à travers le développement de valeurs justes et la lutte contre l'illégalité, l'impunité et la corruption.
+
+7\. Monsieur l'ambassadeur, avant de conclure cette rencontre, je voudrais me féliciter avec vous, avec votre famille et avec les autres membres de cette mission diplomatique, et vous adresser mes meilleurs vœux au moment où Votre Excellence assume à nouveau la haute responsabilité de représenter votre pays près le Saint-Siège. Soyez assuré que vous trouverez toujours l'aide dont vous aurez besoin dans votre tâche élevée auprès de mes collaborateurs.
+
+Tandis que je confie à l'intercession de *Nuestra Señora del Rosario* le peuple et les autorités guatémaltèques, je supplie avec ferveur Dieu de bénir et d'accompagner le chemin que suit votre patrie, afin qu'en elle resplendissent toujours les étoiles de la paix, de la justice, de la prospérité et de la concorde fraternelle.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.31 p.7, 10.
+
+© Copyright 2008 - Libreria Editrice Vaticana

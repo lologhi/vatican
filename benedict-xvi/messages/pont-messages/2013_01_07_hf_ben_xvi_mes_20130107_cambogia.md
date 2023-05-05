@@ -1,0 +1,29 @@
+***MESSAGE VIDÉO DU PAPE BENOÎT XVI***
+
+***À L'ÉGLISE CATHOLIQUE AU CAMBODGE***
+
+***À L'OCCASION DU CONGRÈS NATIONAL SUR LE CONCILE VATICAN II***
+
+***\[PHNOM PENH, 5-7 JANVIER 2013\]***
+
+*Chers frères et sœurs du Cambodge !*
+
+C’est une grande joie pour moi de vous rejoindre par la prière et par le cœur, et de pouvoir vous adresser mon salut chaleureux alors que vous êtes rassemblés autour de vos pasteurs pour célébrer le cinquantième anniversaire de l’ouverture du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) et le vingtième anniversaire du *Catéchisme de l’Église catholique*. Je souhaite que la traduction en langue cambodgienne des documents conciliaires et de ce *Catéchisme*, que vous recevez en cette occasion, vous permette de mieux connaître l’enseignement de l’Église et de grandir dans la foi.
+
+En cette *[Année de la foi](http://www.vatican.va/special/annus_fidei/index_fr.htm)*, je vous invite à tenir votre regard fixé sur la personne de Jésus-Christ qui est à l’origine et au terme de notre foi (cf. *He* 12, 2) et à réaffirmer qu’il est Bonne Nouvelle pour le monde d’aujourd’hui. C’est en lui que les exemples de foi qui ont marqué notre histoire, trouvent leur pleine lumière. Aussi, me souvenant de la période de troubles qui a précipité votre pays dans les ténèbres, je voudrais souligner combien la foi, le courage et la persévérance de vos pasteurs et de tant de vos frères et sœurs chrétiens, dont beaucoup ont trouvé la mort, est un noble témoignage rendu à la vérité de l’Évangile. Et ce témoignage est devenu une force spirituelle inestimable pour reconstruire la communauté ecclésiale dans votre pays. Aujourd’hui, les nombreux catéchumènes et les baptêmes d’adultes manifestent votre dynamisme et sont un signe heureux de la présence agissante de Dieu en vous.
+
+Chers frères et sœurs, à la suite de l’Apôtre Paul, je vous exhorte « à garder l’unité dans l’Esprit par le lien de la paix » ( *Ep* 4, 3). Soyez sûrs de la prière de vos frères et sœurs dont le sang a coulé dans les rizières ! Soyez un ferment dans la pâte de votre société, en témoignant de la charité du Christ envers tous, en construisant des liens de fraternité avec les membres des autres traditions religieuses, et en marchant sur les chemins de la justice et de la miséricorde.
+
+Chers jeunes, mes amis, qui avez été baptisés ces dernières années, n’oubliez pas que l’Église est votre famille ; elle compte sur vous pour témoigner de la Vie et de l’Amour que vous avez découverts en Jésus. Je prie pour vous et je vous invite à être des disciples généreux du Christ.
+
+Et vous séminaristes et prêtres cambodgiens, vous êtes le signe des germes de l’Église qui se construit. Votre vie offerte et votre prière sont source d’espérance, qu’elles soient aussi une invitation pour d’autres jeunes à donner leur vie comme prêtres selon le cœur de Dieu.
+
+Missionnaires, religieux, religieuses, laïcs consacrés venus des cinq continents, soyez le beau signe de la communion ecclésiale autour de vos pasteurs afin que votre fraternité, dans la diversité de vos charismes, conduise nombre de ceux que vous servez et aimez avec zèle à rencontrer Jésus Christ.
+
+Et vous tous qui cherchez Dieu, persévérez et soyez sûrs que le Christ vous aime et vous offre sa paix !
+
+Frères et sœurs bien-aimés, pasteurs et fidèles du Cambodge, que la Vierge Marie, Notre-Dame du Mékong, dans son humilité et sa fidélité à la volonté du Seigneur, vous illumine tout au long de cette *[Année de la foi](http://www.vatican.va/special/annus_fidei/index_fr.htm)*. Soyez sûr que je vous porte dans ma prière, et de grand cœur je vous adresse à tous une affectueuse Bénédiction Apostolique !
+
+**BENEDICTUS PP XVI**
+
+© Copyright 2013 - Libreria Editrice Vaticana

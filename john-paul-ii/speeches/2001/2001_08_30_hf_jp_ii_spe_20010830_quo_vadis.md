@@ -1,0 +1,25 @@
+***PAROLES DU SAINT PÈRE***
+
+***À L'ISSUE DE LA PROJECTION EN AVANT-PREMIÈRE***
+
+***DU FILM "QUO VADIS"***
+
+*Jeudi 30 août 2001*
+
+1. Je désire exprimer ma plus vive reconnaissance à ceux qui ont rendu possible ce soir la vision en avant-première d'une oeuvre qui, sous de nombreux aspects, est véritablement significative. Je félicite tout d'abord le metteur en scène, M. Jerzy Kawalerowicz, et le producteur, M. Miroslaw Slowinski, d'avoir réalisé un travail d'une aussi grande envergure, qui révèle l'actualité du roman de Henryk Sienkiewicz, écrit il y a plus d'un siècle et qui lui valut le Prix Nobel en 1905.
+
+Cette nouvelle adaptation cinématographique a été préparée à l'occasion de l'An 2000. Au cours du grand Jubilé, le Christ a dans un certain sens à nouveau traversé les routes de Rome et du monde entier. Et nous Lui avons répété les paroles de l'Apôtre Pierre, rapportées par saint Ambroise (Serm. c. Auxentium, 13):  " *Domine quo vadis?* Seigneur, où vas-tu?". Jésus, comme à l'époque, nous a répondu:  " *Venio iterum crucifigi.* Je viens pour être à nouveau crucifié". C'est-à-dire, je viens renouveler mon don de salut à tous les hommes, à l'aube du troisième millénaire. Dans cette perspective, l'intention du metteur en scène de reproposer la question de Pierre comme étant adressée à l'homme contemporain prend une profonde signification:  " *Quo vadis, homo?* Où vas-tu, homme?". Vas-tu vers le Christ, ou suis-tu d'autres voies, qui te mènent loin de Lui et de toi-même?
+
+Cette interrogation nous touche encore davantage, si l'on considère que le lieu dans lequel nous nous trouvons en ce moment est précisément celui où, il y a deux mille ans, eurent lieu certains faits racontés par le roman et le film *Quo vadis?*. Nous nous trouvons, en effet, dans la zone du cirque de Néron, où de nombreux chrétiens subirent le martyre, y compris saint Pierre. Un témoin muet de ces événements tragiques et glorieux est l'obélisque, ce même obélisque qui se trouvait alors au milieu du cirque et qui depuis le XVIème siècle se dresse au centre de la Place Saint-Pierre, coeur du monde catholique. Sur cet obélisque trône la Croix, comme pour rappeler que la terre et le ciel passeront, ainsi que les empires et les royaumes humains, mais que le Christ demeure. Il est le même:  hier, aujourd'hui et à jamais.
+
+Le Saint-Père poursuivait en polonais:
+
+2. Je remercie profondément de cette soirée particulière toutes les personnes ici présentes, en particulier les producteurs du film:  le metteur en scène Jerzy Kawalerowicz, les très bons acteurs et ceux qui, d'une manière ou d'une autre, ont contribué à la réalisation de cette oeuvre.
+
+Une évaluation artistique du film sera effectuée d'ici peu par la critique. Je désire seulement remercier pour le respect avec lequel le film a été réalisé - du respect non seulement pour le chef-d'oeuvre de Sienkiewicz, mais surtout pour la tradition chrétienne, dont il est issu. On ne peut pas comprendre la situation actuelle de l'Eglise et de la spiritualité chrétienne si l'on ne revient pas aux événements religieux concernant les hommes qui, enthousiasmés par la "bonne nouvelle" sur Jésus-Christ, devinrent ses témoins. Il faut revenir à ce drame qui eut lieu dans leurs âmes, dans lesquelles s'affrontèrent la crainte humaine et le courage surhumain, le désir de vivre et la volonté d'être fidèle jusqu'à la mort, le sentiment de la solitude face à la haine impassible et, dans le même temps, l'expérience de la puissance qui naît de la présence proche et invisible de Dieu et de la foi commune de l'Eglise naissante. Il faut revenir à ce drame pour que la question suivante soit posée:  Quelque chose de ce drame a-t-il lieu en moi? Le film *Quo vadis?* offre la possibilité de revenir à cette tradition d'épreuves émouvantes et il aide à se retrouver en elles.
+
+Encore une fois, je vous remercie tous.
+
+Le Saint-Père poursuivait en italien:
+
+3. Je remercie à nouveau ceux qui ont offert et organisé l'avant-première de cette soirée, et je donne de tout coeur à vous tous et à vos proches une Bénédiction apostolique spéciale.

@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE BENOÎT XVI*** ***AUX ÉVÊQUES DU CHILI***
+
+***EN VISITE "AD LIMINA APOSTOLORUM"***
+
+*Jeudi 4 décembre 2008*
+
+*Monsieur le cardinal,*
+
+*Chers frères dans l'épiscopat,*
+
+1. Je vous souhaite la plus cordiale bienvenue à cette rencontre qui constitue le sommet de votre visite *ad limina* et qui m'a permis de partager, en tant que Successeur de Pierre, les engagements apostoliques que vous affrontez dans la bien-aimée terre chilienne.
+
+Je désire tout d'abord remercier vivement Mgr Alejandro Goic Karmelic, évêque de Rancagua et président de la conférence épiscopale, des paroles cordiales qu'il m'a adressées au nom de tous. J'exprime également mon affection et ma reconnaissance à vos diocèses respectifs et à tous les fils de l'Eglise qui est au Chili.
+
+2. Le Seigneur Jésus, après avoir passé la nuit en prière, "appela ses disciples, en choisit douze, et leur donna le nom d'Apôtres" ( *Lc* 6, 12). Il vous a choisis vous aussi, chers frères successeurs des apôtres, et en vous faisant participer de son amour, il vous a confié la tâche de diffuser dans le monde son message de salut (cf. *Jn* 15, 15).
+
+C'est pourquoi je vous invite à cultiver une intense et profonde vie intérieure et de foi, car c'est dans le contact intime dans la prière avec le Maître que mûrissent les initiatives pastorales les meilleures pour répondre aux besoins spirituels des fidèles et ainsi, en partant de Dieu, nous pourrons atteindre nos frères avec une parole d'espérance efficace. Les difficultés et les obstacles sont sans aucun doute nombreux, mais soutenus par la promesse de notre Seigneur, qui nous assure de sa présence parmi nous tous les jours jusqu'à la fin du monde (cf. *Mt* 28, 20), et par le pouvoir de l'Esprit Saint, nous pourrons nous consacrer avec joie et enthousiasme à la grande tâche d'apporter le Christ à tous les hommes avec la même ardeur que les apôtres.
+
+3. En tant que fruit d'un vaste effort de discernement ecclésial, et en harmonie avec le document de conclusion de la v Conférence générale de l'épiscopat de l'Amérique latine et des Caraïbes, qui s'est déroulée à Aparecida, vous avez élaboré plusieurs orientations pastorales précieuses pour les quatre prochaines années. Avec celles-ci vous entendez susciter chez tous les fidèles la joie de suivre le Christ, et également une plus grande conscience missionnaire qui permettra à toute la communauté ecclésiale chilienne d'affronter avec un véritable élan apostolique les défis du moment présent.
+
+Cette grande entreprise évangélisatrice, dans laquelle vous vous êtes résolument engagés, exige de tous un effort particulier de purification et de charité. Vous savez bien que l'homme d'aujourd'hui ressent le besoin urgent d'exemples de vie vraiment évangéliques et cohérents. C'est pourquoi la sainteté de tous les membres de l'Eglise, et surtout de ses pasteurs, est l'un des dons les plus précieux que vous puissiez offrir à vos frères. En rappelant les nombreux saints et bienheureux de votre terre qui, avec leur merveilleux témoignage de foi  et de dévouement à leurs frères (cf. *Orientaciones Pastorales*, n. 3), constituent un patrimoine non seulement de l'Eglise catholique mais de toute la société chilienne, vous continuez à proposer inlassablement l'appel universel à la sainteté (cf. *[Lumen gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, nn. 39-42).
+
+4. Je désire également vous confier de manière particulière les prêtres, vos plus proches collaborateurs, et je vous demande de leur faire part de ma reconnaissance pour leur fidélité au ministère reçu et pour le travail constant et généreux qu'ils accomplissent. Faites preuve de sollicitude à l'égard de leurs difficultés et aidez-les afin que, parmi les multiples activités qui remplissent leurs journées, ils sachent accorder la priorité à la prière et à la célébration de l'Eucharistie, qui les configure à Jésus Christ, prêtre suprême et éternel.
+
+A ce propos, je vous encourage afin que vous ne renonciez pas à vos efforts pour améliorer la qualité de la formation humaine, intellectuelle et spirituelle des séminaristes. Il est en outre nécessaire de renforcer la dimension vocationnelle de la vie chrétienne dans la pastorale des jeunes, au moyen d'un accompagnement spirituel adapté qui leur permette de répondre avec générosité à l'appel de Jésus dans leur vie.
+
+5. Je connais également la grande œuvre que vous avez réalisée afin que les laïcs acceptent avec responsabilité et maturité les exigences de leur baptême, en participant selon leur propre condition de laïcs à la mission de toute l'Eglise. Continuez à leur offrir une éducation adaptée à la foi, ainsi qu'un contact plus assidu avec la Parole de Dieu, qui les conduira à un plus grand engagement missionnaire dans leur vie. Ils ont reçu comme vocation spécifique la sanctification du monde, en le transformant de l'intérieur selon le projet de Dieu (cf. ibid., n 31). Tous les secteurs de la société peuvent être illuminés par la lumière de la foi. Je pense, entre autres choses, au monde de la culture, de la science et de la politique, à la promotion de la famille, fondée sur le mariage entre un homme et une femme, à la création de conditions de travail plus justes et à l'aide aux plus démunis, à la protection de l'environnement, à la défense de la vie humaine à toutes les étapes de son existence et à l'obligation et au droit des parents à l'éducation morale et spirituelle des enfants.
+
+Un autre aspect important de votre ministère, que je désire vous recommander vivement, est l'activité caritative de vos diocèses en faveur des pauvres. En effet, à l'exemple de la première communauté de disciples (cf. *Ac* 2, 42-44), nous devons chercher à faire en sorte que l'Eglise, comme famille de Dieu, soit un lieu d'assistance réciproque (cf. *[Deus caritas est](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html)*, n. 32).
+
+6. Enfin, je vous encourage à continuer à cultiver l'esprit de communion avec le Souverain Pontife et avec vos autres frères évêques, en particulier au sein d'une même conférence épiscopale et d'une même province ecclésiastique. Chers frères, vous avez été configurés "au Christ pour aimer l'Eglise avec l'amour du Christ époux" ( *[Pastores gregis](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_20031016_pastores-gregis.html)*, n. 13) et pour veiller sur l'unité et la protéger. Soyez donc pour tous de véritables modèles et instruments de communion.
+
+En vous quittant, je vous demande d'apporter aux évêques émérites, aux prêtres, aux religieux et aux religieuses, aux séminaristes, et également à tous les fidèles, le salut du Pape et de les assurer de sa prière pour eux. Je vous place entre les mains maternelles de la Vierge du Carmel, afin qu'Elle vous guide et vous aide à mener à bien vos engagements apostoliques et je vous donne ma Bénédiction apostolique, que j'étends à tous vos fidèles diocésains bien-aimés.
+
+© Copyright 2008 - Libreria Editrice Vaticana

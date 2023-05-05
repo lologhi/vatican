@@ -1,0 +1,39 @@
+FÊTE DE SAINT ÉTIENNE PROTOMARTYR
+
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Vendredi 26 décembre 2014*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2014/12/26/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+Aujourd’hui, la liturgie rappelle le témoignage de saint Etienne. Choisi par les apôtres, avec six autres, pour la diaconie de la charité, c’est-à-dire pour assister les pauvres, les orphelins, les veuves dans la communauté de Jérusalem, il devient le premier martyr de l’Eglise. A travers son martyre, Etienne honore la venue au monde du Roi des rois, lui rend témoignage et offre le don de sa vie elle-même, comme il le faisait dans le service aux plus nécessiteux. Il nous montre ainsi comment vivre en plénitude le mystère de Noël.
+
+L’Evangile de cette fête rapporte une partie du discours de Jésus à ses disciples au moment où il les envoie en mission. Il dit entre autres: «Vous serez haïs de tous à cause de mon nom. Mais celui qui persévérera jusqu'au bout sera sauvé» (Mt 10,22). Ces paroles du Seigneur ne troublent pas la célébration de Noël, mais elles la dépouillent de ce faux revêtement douceâtre qui ne lui appartient pas. Elles nous font comprendre que dans les épreuves acceptées à cause de la foi, la violence est vaincue par l’amour, la mort par la vie. Et pour accueillir vraiment Jésus dans notre existence et prolonger la joie de la Nuit sainte, la route est justement celle qu'indique l’Evangile, rendre témoignage à Jésus dans l’humilité, dans le service silencieux, sans avoir peur d'aller à contre-courant et de payer de sa personne. Et si tous ne sont pas appelés, comme saint Etienne, à verser leur sang, il est cependant demandé à tout chrétien d'être cohérent en toute circonstance avec la foi qu'il professe. Et la cohérence chrétienne est une grâce que nous devons demander au Seigneur. Etre cohérents, vivre en chrétiens, et ne pas dire: «je suis chrétien», et vivre en païen. La cohérence est une grâce à demander aujourd'hui.
+
+Suivre l’Evangile est certes un chemin exigeant, mais beau, très beau, et qui le parcourt avec fidélité et courage reçoit le don promis par le Seigneur aux hommes et aux femmes de bonne volonté. Comme le chantaient les anges le jour de Noël: «Paix, Paix!». Cette paix donnée par Dieu est en mesure d’apaiser la conscience de ceux qui, à travers les épreuves de la vie, savent accueillir la Parole de Dieu et s’engagent à la mettre en pratique avec persévérance, jusqu'au bout (cf. Mt 10, 22).
+
+Aujourd’hui, frères et sœurs, prions de façon particulière pour ceux qui sont discriminés, persécutés et tués en raison du témoignage rendu au Christ. Je voudrais dire à chacun d'eux: si vous portez cette croix avec amour, vous êtes entrés dans le mystère de Noël, vous êtes dans le cœur du Christ et de l’Eglise.
+
+Prions en outre pour que, grâce au sacrifice de ces martyrs d'aujourd’hui — ils sont nombreux, très nombreux! —, se renforce dans toutes les régions du monde l'engagement à reconnaître et assurer concrètement la liberté religieuse, qui est un droit inaliénable de toute personne humaine.
+
+Chers frères et sœurs, je vous souhaite de passer les fêtes de Noël dans la sérénité. Que saint Etienne, diacre et premier martyr, nous soutienne dans notre marche quotidienne, que nous espérons couronner, à la fin, dans l’assemblée joyeuse des saints, au paradis.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs,
+
+Je vous salue dans la joie de Noël, et je renouvelle à tous mes vœux de paix: paix dans les familles, paix dans les communautés paroissiales et religieuses, paix dans les mouvements et dans les associations. Je salue toutes les personnes qui s’appellent Etienne/Stéphane ou Stéphanie: meilleurs vœux!
+
+Ces dernières semaines, j’ai reçu de nombreux messages de vœux de Rome et d’autres endroits. Comme il ne m’est pas possible de répondre à chacun, je vous exprime aujourd’hui à tous mes remerciements sincères, spécialement pour le don de la prière. Merci de tout cœur! Que le Seigneur vous récompense par sa générosité!
+
+Et n’oubliez pas: cohérence chrétienne, c’est-à-dire penser, sentir et vivre en chrétien et ne pas penser en chrétien et vivre en païen. Cela, non! Aujourd'hui, demandons à Etienne la grâce de la cohérence chrétienne. Et, s’il vous plaît, continuez à prier pour moi, ne l’oubliez pas. Bonne fête et bon déjeuner! Au revoir!

@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE BENOÎT XVI**À S.E. M. ALAIN BUTLER PAYETTE***
+
+***NOUVEL AMBASSADEUR DES SEYCHELLES***
+
+***PRÈS LE SAINT-SIÈGE\****
+
+*Salle Clémentine*
+
+*Jeudi 13 décembre 2007*
+
+*Votre Excellence*
+
+Je suis très heureux d'accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République des Seychelles près le Saint-Siège. Je me souviens avec plaisir de votre visite l'an dernier dans la suite du Président James Alix Michel et je vous suis reconnaissant pour les salutations que vous m'avez transmises de la part de ce dernier. Pour ma part, j'y réponds volontiers en vous assurant de mes prières ferventes pour votre pays bien-aimé et pour tout votre peuple.
+
+Les Seychelles ont été bénies par la Providence, non seulement par une grande beauté naturelle et une vie économique saine, mais aussi par l'harmonie sociale et la cohésion qui découlent de valeurs communes et d'un fort engagement de solidarité dans la recherche du bien commun. De fait, votre nation peut rendre grâces pour son niveau de vie élevé, fruit du discernement et du sacrifice de nombreuses générations de citoyens. Dans le contexte plus large du continent africain, les Seychelles sont bien connues pour la qualité et la valeur de leur système éducatif et pour l'importance de leur réseau de services de santé accessibles à tous les citoyens. Cette infrastructure impressionnante est très prometteuse pour l'avenir de la nation, car elle offre un solide fondement pour une croissance économique constante et, plus important encore, pour la réalisation des espérances et aspirations les plus profondes des jeunes générations.
+
+A ce propos, je vous sais gré pour la référence que Vous avez faite, Excellence, à l'importance de reconnaître et de promouvoir les valeurs spirituelles provenant des racines chrétiennes de votre nation, qui ont été décisives pour modeler le présent des Seychelles et qui offrent un fondement sûr à leur avenir. L'Eglise qui est aux Seychelles est, à juste titre, orgueilleuse de la contribution qu'elle apporte à la vie de la nation, en particulier grâce à son engagement historique pour l'éducation des jeunes et pour la formation des fidèles dans les vertus essentielles pour le développement humain intégral et pour l'édification d'une société libre, juste et prospère. La communauté catholique désire persévérer dans cet effort et, dans un esprit de sincérité et de coopération respectueuse, agir pour la promotion du bien commun par la prédication  de  l'Evangile, en formant les consciences avec de solides principes religieux et moraux et en offrant une assistance charitable à tous, indépendamment de leur race ou de leur religion.
+
+A cette occasion, je ne peux qu'exprimer ma satisfaction pour les relations cordiales entre la République des Seychelles et le Saint-Siège, caractérisées par la confiance réciproque et par une étroite collaboration. De même, j'exprime ma gratitude pour les efforts du gouvernement tendant à soutenir l'éducation religieuse et à contribuer à l'édification de nouvelles églises et structures éducatives. Cet engagement est un signe concret du rapport de confiance et de coopération responsable qui existe depuis longtemps entre les autorités civiles et la communauté catholique au service des jeunes, qui sont l'espérance de la société. En effet, la nation a fait des services en faveur des jeunes et de leur saine formation une priorité claire, ce qui portera assurément des fruits abondants, car les jeunes d'aujourd'hui, hommes et femmes, trouvent progressivement leur place de citoyens responsables et de guides de demain. J'ai une grande confiance dans les jeunes des Seychelles et, par votre intermédiaire, je leur adresse à tous mes encouragements sincères à cultiver avec persévérance les vertus de l'honnêteté, de la fidélité et de l'abnégation au service des autres, qui apportent non seulement un bonheur personnel et un accomplissement profond, mais qui créent aussi une société caractérisée par davantage de fraternité, de liberté, de justice et de paix.
+
+Une des ressources les plus importantes des Seychelles est la vie familiale solidement ancrée dans l'amour réciproque du mari et de la femme et renforcée par le don des enfants. Comme cellule primordiale de la société, la famille attend de cette dernière l'encouragement dont elle a besoin dans sa mission irremplaçable. Je ne peux qu'encourager les efforts de toutes les personnes de bonne volonté, dans chaque domaine de la vie et de la politique nationale, pour "garantir et promouvoir l'identité authentique de la famille humaine" (cf. *[Compendium de la Doctrine sociale de l'Eglise](http://www.vatican.va/roman_curia/pontifical_councils/justpeace/documents/rc_pc_justpeace_doc_20060526_compendio-dott-soc_fr.html)*, n. 252) en favorisant et en défendant cette institution fondamentale, en reconnaissant et en affrontant les défis relevés par les jeunes familles et en soutenant les parents dans leur responsabilité de premiers éducateurs de leurs enfants. L'avenir de l'Etat dépend en grande partie de familles fortes dans la communion et stables dans leur engagement. (cf. *ibid*., n. 213).
+
+Votre Excellence, alors que vous commencez votre mission au nom de la République des Seychelles, je vous prie d'accepter mes meilleurs vœux personnels pour votre travail exigeant. Sachez que les différents bureaux du Saint-Siège sont prêts à vous aider et à vous soutenir dans l'accomplissement de vos fonctions. Avec ces sentiments, j'invoque de tout cœur sur vous, sur votre famille et sur l'ensemble du bien-aimé peuple des Seychelles les plus riches Bénédictions divines de joie et de paix.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* 2008 n° 2 p.6, 7.
+
+© Copyright 2007 - Libreria Editrice Vaticana

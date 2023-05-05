@@ -1,0 +1,55 @@
+***Discours au Président de la République ITALIENNE,***
+
+***S.E.M. Oscar Luigi SCALFARO***
+
+*27 novembre 1992*
+
+
+
+*Monsieur le Président!*
+
+1\. Je désire vous exprimer ma profonde et vive reconnaissance pour la visite dont vous m’honorez aujourd’hui et vous souhaiter une cordiale bienvenue dans la demeure du Successeur de Pierre.
+
+La circonstance d’aujourd’hui, si solennelle, s’accompagne du souvenir d’une autre rencontre, moins formelle mais non moins significative, lorsque par un geste profondément courtois et apprécié, vous êtes venu me rendre visite durant mon séjour à l’hôpital Gemelli pour me témoigner de la participation affectueuse de toute la nation italienne à ma maladie.
+
+Aujourd’hui à travers votre personne, je voudrais avant tout manifester aux citoyens italiens mes sentiments de reconnaissance pour m’avoir exprimé combien ils m’étaient spirituellement proches dans ces moments-là, et adresser à chacun d’eux un salut particulier.
+
+A présent, comme en juillet dernier, je suis heureux d’accueillir en vous le représentant du peuple italien, dont les délégués légitimes il y a quelques mois vous ont désigné, avec un large consensus, à la charge suprême de l’État. En vous renouvelant mes vœux les plus fervents pour l’heureux accomplissement de la mission qui vous a été confiée au service des institutions démocratiques, permettez-moi également de vous signifier ma satisfaction personnelle de voir appelé à la magistrature suprême de l’État un homme d’une expérience et d’une rectitude éprouvées, attentif avec perspicacité aux valeurs juridiques et morales qui constituent le tissu conjonctif de la nation.
+
+2\. La rencontre entre le premier Magistrat de la République italienne et le Pasteur universel de l’Église ne peut que rappeler à l’attention de tous le contexte historique et institutionnel dans lequel elle prend place: les Accords du Latran qui, mis à jour en 1984 par les Accords de révision du Concordat, concernent la pleine indépendance et autonomie des Communautés politique et ecclésiale dans les domaines respectifs, en leur rappelant le service commun dû, bien qu’à différents titres, à la vocation individuelle et sociale des personnes et en les engageant toutes deux à une saine collaboration entre elle, selon les modalités suggérées par les circonstances concrètes.
+
+L’histoire, même récente, montre combien le Siège apostolique et l’Église ont participé aux événements civils et humain, parfois douloureux et tragiques, de la nation italienne, contribuant à la croissance de son patrimoine culturel, social et spirituel. Spontanément on souhaite voir les catholiques italiens, aujourd’hui comme par le passe, être prêts à offrir leur apport spécifique à la construction de la Cite de l’Homme, dans une attitude d’«obéissance» à Dieu et de «fidélité» à l’histoire, à l’exemple de tant de nobles figures de citoyens loyaux et de croyants très intègres qui les ont précédés.
+
+3\. Vous savez bien, Monsieur le Président, quelle œuvre diligente accomplit le Saint-Siège en faveur de la paix et combien le Successeur de Pierre – fidèle au mandat reçu du Christ Seigneur, «prince de la paix» (Is 9, 5) – continue à demander, parfois gravement et sous forme d’admonestation, que soient réellement dépassés les nouveaux et les anciens antagonismes, les conflits et les déchirures douloureuses. La mission évangélisatrice de l’Église, en effet, est également une proclamation inlassable de la dignité de la personne et des droits des peuples. C’est une mission dont l’urgence est confirmée quand on regarde la nouvelle physionomie de l’Europe, marquée en bien des régions par des instabilités qui perdurent, ainsi que par des conflits dramatiques.
+
+Il est vrai que d’antiques et nobles pays de l’Est européen, avec la chute des idéologies et de l’opposition des blocs, ont pu finalement s’accomplir leur pèlerinage vers la liberté (cf. Discours au Corps diplomatique, janvier 1990). Ils sont ainsi devenus des protagonistes actifs de leur histoire, redécouvrant leurs traditions leurs ressources culturelles et spirituelles après des décennies d’oppression et d’isolement. Mais ces occasions prometteuses de développement et de croissance intégrale pourraient se révéler éphémères et illusoires si le soutien solidaire des pays de l’Ouest européen venait à manquer. Le concours de tous est nécessaire pour définir un projet commun et courageux de collaboration et d’intégration qui, grâce au dépassement de situations de fragilité politique et de faiblesse économique, favorise l’émergence des valeurs authentiques de 1’«homo europaeus».
+
+Je suis certain que l’Italie – grâce à son riche héritage culturel et religieux – ne manquera pas d’apporter son importante contribution personnelle à la construction de la Maison commune pour tous les peuples de l’Europe, de l’Atlantique à l’Oural. Cela aura aussi des répercussions positives au niveau mondial sur la convivialité pacifique et sur le respect des droits des hommes et des peuples.
+
+4\. L’Église ne se sent pas étrangère mais solidaire de la vie de chaque peuple. C’est pourquoi elle participe intimement à la situation présente du peuple italien, caractérisée par des ferments d’espérance, mais marquée également par des éléments d’inquiétude et d’attente anxieuse. Il s’agit d’un difficile processus qui touche toute la société du pays. L’Église invite à y voir aussi, entre les ombres et les lumières, des signaux positifs qui promettent de nouveaux équilibres, de nouvelles formes de convivialité, dans le cadre d’une situation mondiale profondément transformée après l’effondrement des «murs» et des idéologies.
+
+Il est donc d’une importance primordiale de chercher constamment à s’élever vers les valeurs éthico-spirituelles de la personne et de la convivialité sociale en recherchant, avec des intentions sincères et avec des efforts concordants, des solutions s’inspirant du principe fondamental de la solidarité. A cet égard, la Communauté ecclésiale offre l’apport du riche patrimoine de sa doctrine sociale, comme point de référence et d’inspiration moderne et dynamique.
+
+Les récents Accords de révision du Concordat, auxquels j’ai fait allusion plus haut, entendent encourager, selon de justes critères de respect des spécificités respectives, l’alliance féconde et vitale entre le développement démocratique du pays et la présence animatrice de l’Église, afin de maintenir vivants dans le tissu social et culturel les germes des valeurs sur lesquelles reposent, en dernier ressort, la Constitution elle-même et la convivialité civile du peuple italien. Ce sont les valeurs immuables et inaliénables de la dignité de la personne humaine, du droit à la vie, de sa conception jusqu’à son terme naturel, du droit à la liberté religieuse et de conscience. Ce sont aussi les valeurs de l’honnêteté et du goût du travail, de la justice et de la solidarité, du pluralisme et de la subsidiarité, des autonomies locales légitimes mises en valeur dans le cadre de l’unité nationale et de l’ouverture à la coopération européenne et internationale.
+
+L’Église reconnaît, encourage et soutient aussi, et non comme la moindre, la valeur de l’institution familiale, première cellule vitale de la société tout entière. L’esprit avec lequel elle annonce 1’«Évangile de la famille» et s’emploie à sa mise en pratique, trouve un heureux écho dans l’article de la Constitution italienne qui reconnaît les droits de la cellule familiale comme société fondée sur le mariage.
+
+5\. Dans le cadre de ces valeurs, largement partagées dès la fondation démocratique et constitutionnelle de l’Italie, le Saint-Siège rappelle la disponibilité des catholiques à toute forme de collaboration réciproque et fructueuse, toujours en vue de la promotion intégrale de l’homme et pour le véritable bien du pays.
+
+Il est donc souhaitable de parvenir à une conclusion prompte et constructive de la phase de mise en œuvre des Accords du 18 février 1984 de révision du Concordat particulièrement en ce qui concerne le secteur des biens culturels ecclésiastiques: ceux-ci constituent non seulement un patrimoine incalculable de l’humanité tout entière, mais aussi le témoignage vivant de la rencontre féconde entre le génie italien et les principes de la foi chrétienne. En tant que tels, ils représentent d’une manière visible les origines et la signification de cette identité unitaire de la nation italienne qui précède et accompagne ses formes étatiques, en s’alliant harmonieusement à la richesse et à la diversité de ses particularités régionales et locales.
+
+6\. Monsieur le Président faisant miennes les paroles de la Conférence épiscopale italienne, je désire m’adresser, à travers votre personne, à tous les Italiens pour les inviter à considérer l’avenir avec confiance, à croire que notre époque n’est pas l’époque du renoncement mais du courage, de la générosité et de la ténacité. L’Italie dispose d’énergies humaines et de ressources matérielles largement suffisantes pour surmonter les difficultés de la période actuelle, dans une logique de justice et de solidarité qui permettront à un patrimoine d’harmonie culturelle, sociale et spirituelle, ancien mais toujours vivant, de libérer de nouvelles potentialités, adaptées aux exigences du moment présent (cf. Communiqué des Travaux de la 36e Assemblée générale de la C.E.I., Collevalenza, 26-29 octobre 1992).
+
+Comment ne pas penser, à ce propos aux innombrables ressources du peuplé italien? Comment ne pas rappeler, entre autres, le concours généreux et créatif de tant d’associations de volontariat et de très nombreux jeunes, qui se prodiguent avec abnégation et désintéressement pour fournil de nouvelles réponses aux problèmes qui apparaissent, en particulier sur le front des formes modernes de marginalisation?
+
+Je m’adresse surtout aux jeunes auxquels vous cherchez à transmettre, Monsieur le Président, ces idéaux de justice et de paix qui ont modelé l’histoire du peuple italien, afin qu’ils ressentent comme étant les leurs ces valeurs impérissables qui sont indispensables pour donner vie à des sociétés libres et solidaires.
+
+J’exprime enfin le vœu que l’Italie, grâce notamment à votre conduite éclairée, sache aller de l’avant, dans l’unité et l’harmonie, le long de la voie royale dessinée par la foi et par l’engagement civil de ses pères; qu’elle sache trouver dans son histoire millénaire des motifs d’une impulsion renouvelée pour protéger et promouvoir les valeurs humaines, morales et spirituelles qui lui ont valu honneur et considération dans le monde; qu’elle puisse progresser efficacement dans la recherche du juste bien-être et de la prospérité authentique de chacun de ses habitants.
+
+Voilà, Monsieur le Président, les vœux qu’il m’est agréable de formuler à votre Personne et au peuple italien tout entier, tandis que j’invoque la Bénédiction de Dieu sur vous et sur votre famille, ainsi que sur les autorités ici présentes et sur la nation italienne bien-aimée.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* 49 p.6.
+
+© Copyright 1992 - Libreria Editrice Vaticana

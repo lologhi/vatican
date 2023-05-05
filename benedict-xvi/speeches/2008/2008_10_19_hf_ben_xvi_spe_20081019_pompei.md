@@ -1,0 +1,41 @@
+[VISITE PASTORALE\
+\
+AU SANCTUAIRE PONTIFICALE DE POMPÉI](/content/benedict-xvi/fr/travels/2008/index_pompei.html)
+
+**RÉCITATION DU CHAPELET**
+
+***PAROLES**DU PAPE BENOÎT XVI***
+
+*Esplanade du sanctuaire pontifical de Pompéi*
+
+*Dimanche 19 octobre 2008*
+
+*Vénérés frères dans l'épiscopat*
+
+*et dans le sacerdoce,*
+
+*chers religieux et religieuses,*
+
+*chers frères et sœurs!*
+
+Avant d'entrer dans le Sanctuaire pour réciter avec vous le chapelet, je me suis brièvement arrêté devant la châsse du bienheureux Bartolo Longo, et tout en priant, je me suis demandé:  "Ce grand apôtre de Marie, d'où a-t-il tiré l'énergie et la constance nécessaires pour mener à bien une œuvre aussi impressionnante, connue désormais dans le monde entier? N'est-ce pas justement du Rosaire, qu'il a accueilli comme un véritable don du cœur de la Vierge?". Oui, il en a véritablement été ainsi! L'expérience des saints en témoigne:  cette prière mariale populaire est un moyen spirituel précieux pour grandir dans l'intimité avec Jésus, et pour apprendre, à l'école de la Sainte Vierge, à toujours accomplir la volonté divine. Elle est la contemplation des mystères du Christ en union spirituelle avec Marie, comme le soulignait le serviteur de Dieu Paul vi dans l'Exhortation apostolique *Marialis cultus* (n. 46), et comme ensuite mon vénéré prédécesseur Jean-Paul ii l'a amplement illustré dans la Lettre apostolique *[Rosarium Virginis Mariae](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20021016_rosarium-virginis-mariae.html)*, que je remets à nouveau idéalement à la communauté de Pompéi et à chacun de vous. Vous qui vivez et œuvrez ici à Pompéi, en particulier vous, chers prêtres, religieuses, religieux et laïcs engagés dans cette portion particulière de l'Eglise, êtes tous appelés à faire vôtre le charisme du bienheureux Bartolo Longo et à devenir, dans la mesure et avec les moyens que Dieu concède à chacun, d'authentiques apôtres du Rosaire.
+
+Mais pour être des apôtres du Rosaire, il faut faire l'expérience personnelle de la beauté et de la profondeur de cette prière, simple et accessible à tous. Il est nécessaire avant tout de se laisser conduire par la main par la Vierge Marie pour contempler le visage du Christ:  un visage joyeux, lumineux, douloureux et glorieux. Celui qui, comme Marie et avec Elle, conserve et médite assidûment les mystères de Jésus, assimile toujours davantage ses sentiments et se conforme à Lui. Je voudrais, à cet égard, citer une belle réflexion du bienheureux Bartolo Longo:  "De même - écrit-il - que deux amis qui se retrouvent souvent ensemble finissent par se ressembler également dans la manière de vivre, de même, nous aussi, en parlant familièrement avec Jésus et avec la Vierge, par la méditation des Mystères du Rosaire, et en formant ensemble une même vie par la Communion, nous pouvons devenir, autant que notre petitesse le permet, semblables à eux et apprendre par leurs exemples sublimes à vivre de manière humble, pauvre, cachée, patiente et parfaite" ( *Les quinze samedis du Très Saint Rosaire*, 27 édition, Pompéi, 1916, p. 27:  cité in *[Rosarium Virginis Mariae](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20021016_rosarium-virginis-mariae.html)*, n. 15).
+
+Le chapelet est une école de contemplation et de silence. A première vue, il pourrait sembler une prière qui accumule des paroles, et donc difficilement conciliable avec le silence qui est justement recommandé pour la méditation et la contemplation. En réalité, cette répétition cadencée de l' *Ave Maria* ne dérange pas le silence intérieur mais au contraire le requiert et le nourrit. De la manière que pour les Psaumes, lorsque l'on prie la Liturgie des Heures, le silence affleure à travers les paroles et les phrases, non comme un vide, mais comme une présence de sens ultime qui transcende les paroles elles-mêmes et parle avec elles au cœur. Ainsi, en récitant les *Ave Maria*, il faut faire attention à ce que nos voix ne "couvrent" pas celle de Dieu, qui parle toujours à travers le silence, comme "le bruit d'une brise légère" (1 *R* 19, 12). Combien il est alors important de prendre soin de ce silence rempli de Dieu, tant dans la récitation personnelle que communautaire! Même lorsqu'il est prié, comme aujourd'hui, par de grandes assemblées, et comme vous le faites chaque jour dans ce Sanctuaire, il est nécessaire de percevoir le chapelet comme une prière contemplative, et cela ne peut pas advenir sans un climat de silence intérieur.
+
+Je voudrais ajouter une autre réflexion, relative à la Parole de Dieu dans le chapelet, particulièrement opportune en cette période où se déroule au Vatican le [synode des évêques](http://www.vatican.va/roman_curia/synod/index_fr.htm) sur le thème:  [" *La Parole de Dieu dans la vie et dans la mission de l'Eglise*"](http://www.vatican.va/roman_curia/synod/documents/rc_synod_doc_20080511_instrlabor-xii-assembly_fr.html). Si la contemplation chrétienne ne peut pas se passer de la Parole de Dieu, le chapelet également, pour être une prière contemplative, doit toujours naître du silence du cœur comme une réponse à la Parole, sur le modèle de la prière de Marie. A bien y regarder, le chapelet est tout entier tissé d'éléments tirés de l'Ecriture. Il y a tout d'abord l'énonciation du mystère, faite de préférence comme aujourd'hui, avec des paroles tirées de la Bible. Suit le *Notre Père*:  en imprimant à la prière son orientation "verticale", elle ouvre l'esprit de celui qui récite le chapelet à la juste attitude filiale, selon l'invitation du Seigneur:  "Lorsque vous priez, dites:  Notre Père..." ( *Lc* 11, 2). La première partie de l' *Ave Maria*, elle aussi tirée de l'Evangile, nous fait à chaque fois écouter à nouveau les paroles avec lesquelles Dieu s'est adressé à la Vierge à travers l'Ange, et les paroles de bénédiction de sa cousine Elisabeth. La seconde partie de l' *Ave Maria* résonne comme une réponse des fils qui, s'adressant suppliant à la Mère, ne font rien d'autre qu'exprimer leur adhésion au dessein salvifique, révélé par Dieu. Ainsi la pensée de celui qui prie reste toujours ancrée à l'Ecriture et aux mystères qui sont présentés en elle.
+
+Nous souvenant, enfin, que nous célébrons aujourd'hui la journée mondiale des missions, je voudrais rappeler la dimension apostolique du chapelet, une dimension que le bienheureux Bartolo Longo a vécue de manière intense en en tirant inspiration pour entreprendre sur cette terre de très nombreuses œuvres de charité et de promotion humaine et sociale. En outre, il voulut ce Sanctuaire ouvert au monde entier, comme un centre de rayonnement de la prière du chapelet et un lieu d'intercession pour la paix entre les peuples. Chers amis, ce sont ces deux finalités:  l'apostolat de la charité et la prière pour la paix que je désire confirmer et confier à nouveau à votre engagement spirituel et pastoral. A l'exemple et avec le soutien du vénéré Fondateur, ne vous lassez jamais de travailler avec passion dans cette partie de la vigne du Seigneur à laquelle la Vierge a montré qu'elle était particulièrement attachée.
+
+Chers frères et sœurs, le moment est venu de prendre congé de vous et de ce beau Sanctuaire. Je vous remercie de votre accueil chaleureux et surtout de vos prières. Je remercie l'archevêque prélat et délégué pontifical, ses collaborateur et tous ceux qui ont travaillé pour préparer au mieux ma visite. Je dois vous quitter, mais mon cœur demeure proche de cette terre et de cette communauté. Je vous confie tous à la Bienheureuse Vierge du Saint Rosaire, et je donne à chacun et de tout cœur, la Bénédiction apostolique.
+
+\\* \\* \\*
+
+*Avant de quitter Pompéi, le Pape a adressé un salut aux fidèles réunis à l'extérieur du sanctuaire:*
+
+Chers frères et sœurs,
+
+Le moment de prendre congé est arrivé, mais comme je l'ai dit, je reste toujours proche de vous avec le cœur, proche de ce très beau Sanctuaire, de ces personnes emplies de foi, d'enthousiasme et de charité. Je vous bénis tous au nom de Dieu tout-puissant, Père, Fils et Saint-Esprit. Au revoir! Merci!
+
+© Copyright 2008 - Libreria Editrice Vaticana

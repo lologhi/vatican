@@ -1,0 +1,35 @@
+***MESSAGE DU SAINT-PÈRE BENOÎT XVI***
+
+***AU DIRECTEUR GÉNÉRAL DE L’ORGANISATION***
+
+***DES NATIONS UNIES POUR L’ALIMENTATION***
+
+***ET L’AGRICULTURE (FAO) À L'OCCASION***
+
+***DE LA JOURNÉE MONDIALE DE L'ALIMENTATION 2009***
+
+*À Monsieur Jacques Diouf*
+
+*Directeur Général de la F. A. O.*
+
+Si la célébration de la Journée Mondiale de l’Alimentation rappelle la fondation de la FAO et son action pour combattre la faim et la malnutrition dans le monde, elle souligne surtout l’urgence et la nécessité des interventions en faveur de tous ceux qui sont privés du pain quotidien dans tant de pays par manque de conditions de sécurité alimentaire adéquates.
+
+La crise actuelle, qui frappe sans distinction l’ensemble des secteurs de l’économie, touche particulièrement et durement le monde agricole dont la situation devient dramatique. Cette crise demande aux Gouvernements et aux différentes composantes de la Communauté internationale d’opérer des choix déterminants et efficaces.
+
+Garantir aux personnes et aux peuples la possibilité de vaincre le fléau de la faim signifie leur assurer un accès concret à une alimentation adéquate et saine. Il s’agit là, en effet, d’une manifestation concrète du droit à la vie qui, bien qu’il soit proclamé solennellement, demeure trop souvent loin de sa pleine application.
+
+Le thème choisi cette année par la FAO pour la Journée Mondiale de l’Alimentation est *« Atteindre la sécurité alimentaire en temps de crise »*. Il invite à considérer le travail agricole comme un élément fondamental de la sécurité alimentaire et, donc, comme une composante à part entière de l’activité économique. Pour cela, l’agriculture doit pouvoir disposer d’investissements et de ressources suffisants. Ce thème interpelle et fait comprendre que les biens de la création sont limités de par leur nature : ils requièrent donc des attitudes responsables et capables de favoriser la sécurité recherchée, en pensant également à celui des générations à venir. Une profonde solidarité et une clairvoyante fraternité sont donc nécessaires.
+
+La réalisation de ces objectifs entraine une nécessaire modification des styles de vie et des façons de penser. Elle oblige la Communauté internationale et ses Institutions à intervenir d’une manière plus adéquate et plus forte. Je souhaite qu’une telle intervention puisse favoriser une coopération en vue de protéger les méthodes de culture de la terre propres à chaque région et d’éviter un usage inconsidéré des ressources naturelles. Je souhaite, en outre, que cette coopération préserve les valeurs propres du monde rural et les droits fondamentaux de ceux qui travaillent la terre. Mettant de côté privilèges, profits et commodités, ces objectifs pourront alors être réalisés à l’avantage des hommes, des femmes, des enfants, des familles et des communautés, qui vivent dans les régions les plus pauvres de la planète et qui sont les plus vulnérables. L’expérience montre que les solutions techniques, même avancées, manquent d’efficacité si elles ne se réfèrent pas d’abord à la personne, qui est première et qui, dans sa dimension spirituelle et matérielle, est à l’origine et au terme de toute activité.
+
+Plus qu’un besoin élémentaire, l’accès à la nourriture est un droit fondamental des personnes et des peuples. Il pourra devenir une réalité, et une sécurité donc, si un développement adéquat est garanti dans toutes les diverses régions. En particulier, le drame de la faim pourra être surmonté seulement « en éliminant les causes structurelles qui en sont à l’origine et en promouvant le développement agricole des Pays les plus pauvres à travers des investissements en infrastructures rurales, en systèmes d’irrigation, de transport, d’organisation des marchés, en formation et en diffusion des techniques agricoles appropriées, c’est-à-dire susceptibles d’utiliser au mieux les ressources humaines, naturelles et socio-économiques les plus accessibles au niveau local » ( [*Caritas in veritate*, n. 27](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html#27.)).
+
+Fidèle à sa vocation d’être proche des plus démunis, l’Eglise catholique promeut, soutient et participe aux efforts réalisés pour permettre à chaque peuple et à chaque communauté de disposer des moyens nécessaires pour garantir un niveau de sécurité alimentaire adapté.
+
+En formulant ces souhaits, je vous renouvelle, Monsieur le Directeur Général, l’expression de ma haute considération, et j’invoque sur la FAO, sur ses États membres et sur tout le personnel d’abondantes bénédictions divines.
+
+*Du Vatican, le 16 octobre 2009.*
+
+**BENOÎT XVI**
+
+© Copyright 2009 - Libreria Editrice Vaticana

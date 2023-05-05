@@ -1,0 +1,39 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU CONGRÈS INTERNATIONAL DE PASTORALE***
+
+***DES PERSONNES ÂGÉES SUR LE THÉME*« LA RICHESSE DES ANNÉES »**
+
+*Sala Regia*
+
+*Vendredi 31 janvier 2020*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/1/31/ricchezza-deglianni.html)\]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+j’adresse une cordiale bienvenue à vous, participants au premier Congrès international de pastorale des personnes âgées – “La richesse des années” –, organisé par le [Dicastère pour les laïcs, la Famille et la Vie](http://www.laityfamilylife.va/content/laityfamilylife/fr.html) ; et je remercie le Cardinal Farrell pour ses aimables paroles.
+
+La “richesse des années” est la richesse des personnes, de chaque personne qui a derrière elle de nombreuses années de vie, d’expérience et d’histoire. Elle est le précieux trésor qui prend forme dans le cheminement de la vie de chaque homme et de chaque femme, quelles que soient ses origines, sa provenance, ses conditions économiques ou sociales. Puisque la vie est un don, elle est un privilège pour soi-même et pour les autres lorsqu’elle est longue. Il en est toujours ainsi. Toujours !
+
+Au 21e siècle, la vieillesse est devenue un des traits distinctifs de l’humanité. En quelques années, la pyramide démographique – qui un temps s’appuyait sur un grand nombre d’enfants et de jeunes et avait à son sommet peu de personnes âgées – s’est inversée. Si un temps les personnes âgées avaient pu peupler un petit Etat, aujourd’hui elles peupleraient un continent entier. Dans ce sens, la présence importante des personnes âgées constitue une nouveauté pour tout environnement social et géographique du monde. De plus, aujourd’hui, à la vieillesse correspondent des époques différentes de la vie : pour beaucoup, elle est l’âge où cesse l’engagement productif, où les forces déclinent et où les signes de maladie, de besoin d’aide et d’isolement social apparaissent ; mais pour beaucoup elle est le commencement d’une longue période de bien-être psycho-physique et de liberté des obligations de travail.
+
+Dans les deux cas, comment vivre ces années ? Quel sens donner à cette phase de la vie qui, pour beaucoup, peut être longue ? La désorientation sociale et, à bien des égards, l’indifférence et le rejet que nos sociétés manifestent à l’égard des personnes âgées, appellent non seulement l’Eglise, mais aussi tout le monde, à une réflexion sérieuse pour apprendre à saisir et à apprécier la valeur de la vieillesse. En effet, pendant que, d’un côté, les Etats doivent affronter la nouvelle situation démographique sur le plan économique, de l’autre, la société civile a besoin de valeurs et de significations pour le troisième et le quatrième âge. Et ici se pose surtout le problème de la contribution de la communauté ecclésiale.
+
+C’est pourquoi j’ai accueilli avec intérêt l’initiative de ce congrès qui a focalisé l’attention sur la pastorale pour les personnes âgées et a engagé une réflexion sur les implications dérivant d’une présence considérable de grands-parents dans nos paroisses et dans les sociétés. Je vous demande que ceci ne reste pas une initiative isolée, mais marque le commencement d’un cheminement d’approfondissement pastoral et de discernement. Nous devons changer nos habitudes pastorales pour savoir répondre à la présence de nombreuses personnes âgées dans les familles et dans les communautés.
+
+Dans la Bible, la longévité est une bénédiction. Elle nous confronte à notre fragilité, à la dépendance réciproque, aux liens familiaux et communautaires, et surtout à notre filiation divine. En accordant la vieillesse, Dieu le Père donne du temps pour approfondir sa connaissance, son intimité, pour entrer toujours plus dans son cœur et s’abandonner à Lui. Elle est le temps pour nous préparer à remettre entre ses mains notre esprit, définitivement, avec la confiance des enfants. Mais elle est aussi un temps de fécondité renouvelée. « Vieillissant, il fructifie encore », dit le psalmiste ( *Ps* 92, 15). Le dessein de salut de Dieu, en effet, se réalise aussi dans la pauvreté des corps faibles, stériles et impuissants. Du sein stérile de Sara et du corps centenaire d’Abraham est né le Peuple élu (cf. *Rm* 4, 18-20). D’Elisabeth et du vieux Zacharie est né Jean le Baptiste. La personne âgée, même lorsqu’elle est faible, peut devenir instrument de l’histoire du salut.
+
+Consciente de ce rôle irremplaçable des personnes âgées, l’Eglise devient le lieu où les générations sont appelées à partager le projet d’amour de Dieu, dans un rapport d’échange réciproque des dons de l’Esprit Saint. Ce partage intergénérationnel nous oblige à changer notre regard sur les personnes âgées, pour apprendre à regarder vers l’avenir avec eux.
+
+Lorsque nous pensons aux personnes âgées et que nous parlons d’elles, particulièrement sous l’aspect pastoral, nous devons apprendre à modifier un peu les temps des verbes. Il n’y a pas seulement le passé, comme si, pour les personnes âgées, il existait seulement une vie derrière soi et des archives dépassées. Non. Le Seigneur peut et veut écrire avec elles aussi des pages nouvelles, des pages de sainteté, de service, de prière… Aujourd’hui je voudrais vous dire que même les personnes âgées sont *le présent et l’avenir* de l’Eglise. Oui, elles sont aussi l’avenir d’une Eglise qui, avec les jeunes, prophétise et rêve ! C’est pourquoi il est si important que les personnes âgées et les jeunes parlent entre eux, c’est si important.
+
+La prophétie des personnes âgées se réalise quand la lumière de l’Evangile entre pleinement dans leur vie ; quand, comme Syméon et Anne, elles prennent dans leurs bras Jésus et annoncent la *révolution de la tendresse*, la Bonne Nouvelle de Celui qui est venu dans le monde apporter la lumière du Père. C’est pourquoi je vous demande de ne pas vous ménager dans l’annonce de l’Evangile aux grands-parents et aux personnes âgées. Allez à leur rencontre avec le sourire sur le visage et l’Evangile dans les mains. Sortez sur les routes de vos paroisses et allez chercher les personnes âgées qui vivent seules. La vieillesse n’est pas une maladie, elle est un privilège ! La solitude peut être une maladie, mais avec la charité, la proximité et le réconfort spirituel nous pouvons la guérir.
+
+Dieu a un peuple nombreux de grands-parents partout dans le monde. Aujourd’hui, dans les sociétés sécularisées de nombreux pays, les générations actuelles de parents n’ont pas, pour la plupart, cette formation chrétienne et cette foi vivante, qu’au contraire les grands-parents peuvent transmettre à leurs petits-enfants. Ils sont le chaînon indispensable pour éduquer à la foi les petits et les jeunes. Nous devons nous habituer à les inclure dans nos horizons pastoraux et à les considérer, de manière non épisodique, comme une des composantes vitales de nos communautés. Ils ne sont pas seulement des personnes que nous sommes appelés à assister et à protéger pour préserver leur vie, mais ils peuvent être acteurs d’une pastorale évangélisatrice, témoins privilégiés de l’amour de Dieu.
+
+C’est pourquoi je vous remercie tous, vous qui consacrez vos énergies pastorales aux personnes âgées. Je sais bien que votre engagement et votre réflexion naissent de l’amitié concrète avec beaucoup de personnes âgées. J’espère que ce qui aujourd’hui est la sensibilité d’un petit nombre deviendra patrimoine de toute communauté ecclésiale. N’ayez pas peur, prenez des initiatives, aidez vos Evêques et vos diocèses à promouvoir le service pastoral des personnes âgées et avec les personnes âgées. Ne vous découragez pas, allez de l’avant ! Le Dicastère pour les Laïcs, la Famille et la Vie continuera à vous accompagner dans ce travail.
+
+Moi aussi je vous accompagne avec ma prière et ma bénédiction. Et vous, s’il vous plaît, n’oubliez pas de prier pour moi. Merci !

@@ -1,0 +1,219 @@
+LETTRE DU SOUVERAIN PONTIFE **BENOÎT XVI** POUR L’INDICTION
+
+D’UNE ANNÉE SACERDOTALE
+
+À L’OCCASION DU 150e ANNIVERSAIRE
+
+DU *DIES NATALIS* DU SAINT CURÉ D’ARS
+
+*Chers Frères dans le sacerdoce*,
+
+En la prochaine solennité du Sacré-Cœur de Jésus, vendredi 19 juin 2009 – journée traditionnellement consacrée à la prière pour la sanctification des prêtres –, j’ai pensé ouvrir officiellement une « Année sacerdotale » à l’occasion du 150e anniversaire du *« dies natalis »* de Jean-Marie Vianney, le saint patron de tous les curés du monde [\[1\]](#_ftn1 ""). Une telle année, qui veut contribuer à promouvoir un engagement de renouveau intérieur de tous les prêtres afin de rendre plus incisif et plus vigoureux leur témoignage évangélique dans le monde d’aujourd’hui, se conclura en la même solennité de l’année 2010. *« Le Sacerdoce, c’est l’amour du cœur de Jésus »*, avait coutume de dire le Saint Curé d’Ars [\[2\]](#_ftn2 "") . Cette expression touchante nous permet avant tout d’évoquer avec tendresse et reconnaissance l’immense don que sont les prêtres non seulement pour l'Église, mais aussi pour l’humanité elle-même. Je pense à tous ces prêtres qui présentent aux fidèles chrétiens et au monde entier l’offrande humble et quotidienne des paroles et des gestes du Christ, s’efforçant de Lui donner leur adhésion par leurs pensées, leur volonté, leurs sentiments et le style de toute leur existence. Comment ne pas mettre en évidence leurs labeurs apostoliques, leur service inlassable et caché, leur charité ouverte à l’universel ? Et que dire de la courageuse fidélité de tant de prêtres qui, bien que confrontés à des difficultés et à des incompréhensions, restent fidèles à leur vocation : celle d’« amis du Christ », qui ont reçu de Lui un appel particulier, ont été choisis et envoyés ?
+
+Je porte moi-même encore vivant dans mon cœur le souvenir du premier curé auprès de qui j’ai exercé mon ministère de jeune prêtre : il m’a laissé l’exemple d’un dévouement sans faille à son service pastoral, au point de trouver la mort alors qu’il allait porter le viatique à un malade grave. Me viennent encore à la mémoire les innombrables confrères que j’ai rencontrés et que je continue à rencontrer, même au cours de mes voyages pastoraux en divers pays ; tous généreusement engagés dans l’exercice quotidien de leur ministère sacerdotal. Mais l’expression utilisée par le Saint Curé évoque aussi le Cœur transpercé du Christ et la couronne d’épines qui l’entoure. Et notre pensée se tourne alors vers les innombrables situations de souffrance dans lesquelles sont plongés bien des prêtres, soit parce qu’ils participent à l’expérience humaine de la douleur dans ses multiples manifestations, soit parce qu’ils sont incompris par ceux qui bénéficient de leur ministère : comment ne pas nous souvenir de tant de prêtres bafoués dans leur dignité, empêchés d’accomplir leur mission, parfois même persécutés jusqu’au témoignage suprême du sang ?
+
+Il existe aussi malheureusement des situations, jamais assez déplorées, où l'Église elle-même souffre de l’infidélité de certains de ses ministres. Et c’est pour le monde un motif de scandale et de refus. Ce qui, dans de tels cas peut être surtout profitable pour l'Église, ce n’est pas tant la pointilleuse révélation des faiblesses de ses ministres, mais plutôt une conscience renouvelée et joyeuse de la grandeur du don de Dieu, concrétisé dans les figures splendides de pasteurs généreux, de religieux brûlant d’amour pour Dieu et pour les âmes, de directeurs spirituels éclairés et patients. A cet égard, les enseignements et les exemples de saint Jean-Marie Vianney peuvent offrir à tous un point de référence significatif : le Curé d’Ars était très humble, mais il avait conscience, comme prêtre, d’être un don immense pour son peuple : « Un bon pasteur, un pasteur selon le cœur de Dieu, c’est là le plus grand trésor que le bon Dieu puisse accorder à une paroisse, et un des plus précieux dons de la miséricorde divine » [\[3\]](#_ftn3 ""). Il parlait du sacerdoce comme s’il ne réussissait pas à se convaincre de la grandeur du *don* et de la *tâche* confiés à une créature humaine : « Oh ! que le prêtre est quelque chose de grand ! s’il se comprenait, il mourrait… Dieu lui obéit : il dit deux mots et Notre Seigneur descend du ciel à sa voix et se renferme dans une petite hostie… » [\[4\]](#_ftn4 ""). Et, pour expliquer à ses fidèles l’importance des sacrements, il disait : « Si nous n’avions pas le sacrement de l’Ordre, nous n’aurions pas Notre-Seigneur. Qui est-ce qui l’a mis là, dans le tabernacle ? Le prêtre. Qui est-ce qui a reçu notre âme à son entrée dans la vie ? Le prêtre. Qui la nourrit pour lui donner la force de faire son pèlerinage ? Le prêtre. Qui la préparera à paraître devant Dieu, en lavant cette âme pour la dernière fois dans le sang de Jésus-Christ ? Le prêtre, toujours le prêtre. Et si cette âme vient à mourir \[à cause du péché\], qui la ressuscitera, qui lui rendra le calme et la paix ? Encore le prêtre… Après Dieu, le prêtre c’est tout… Le prêtre ne se comprendra bien que dans le ciel » [\[5\]](#_ftn5 ""). Ces affirmations, jaillies du cœur sacerdotal du saint curé, peuvent nous sembler excessives. Elles manifestent toutefois en quelle haute considération il tenait le sacrement du sacerdoce. Il semblait submergé par le sentiment d’une responsabilité sans bornes : « Si l’on comprenait bien le prêtre sur la terre, on mourrait non de frayeur, mais d’amour … Sans le prêtre, la mort et la passion de Notre-Seigneur ne serviraient de rien… C’est le prêtre qui continue l’œuvre de Rédemption, sur la terre… A quoi servirait une maison remplie d’or, si vous n’aviez personne pour ouvrir la porte ? Le prêtre a la clef des trésors célestes : c’est lui qui ouvre la porte ; il est l’économe du bon Dieu, l’administrateur de ses biens…. Laissez une paroisse vingt ans sans prêtre : on y adorera les bêtes… Le prêtre n’est pas prêtre pour lui… il est pour vous » [\[6\]](#_ftn6 "").
+
+Il était arrivé à Ars, un petit village de 230 habitants, prévenu par l’Évêque qu’il y aurait trouvé une situation religieuse précaire : « Il n’y a pas beaucoup d’amour de Dieu dans cette paroisse, vous l’y mettrez ». Il était donc pleinement conscient qu’il devait y aller pour y incarner la présence du Christ, témoignant de sa tendresse salvifique : « \[Mon Dieu\], accordez-moi la conversion de ma paroisse ; je consens à souffrir ce que vous voulez tout le temps de ma vie ! », c’est par cette prière qu’il commença sa mission [\[7\]](#_ftn7 ""). Le Saint Curé se consacra à la conversion de sa paroisse de toutes ses forces, donnant la première place dans ses préoccupations à la formation chrétienne du peuple qui lui était confié. Chers frères dans le Sacerdoce, demandons au Seigneur Jésus la grâce de pouvoir apprendre nous aussi la méthode pastorale de saint Jean-Marie Vianney ! Ce que nous devons apprendre en tout premier lieu c’est sa totale identification à son ministère. En Jésus, Personne et Mission tendent à coïncider : toute son action salvifique était et est expression de son « Moi filial » qui, de toute éternité, se tient devant le Père dans une attitude de soumission pleine d’amour à sa volonté. Dans une humble mais réelle analogie, le prêtre lui aussi doit tendre à cette identification. Il ne s’agit pas évidemment d’oublier que l’efficacité substantielle du ministère demeure indépendante de la sainteté du ministre ; mais on ne peut pas non plus ignorer l’extraordinaire fécondité produite par la rencontre entre la sainteté objective du ministère et celle, subjective, du ministre. Le Saint Curé d’Ars se livra immédiatement à cet humble et patient travail d’harmonisation entre sa vie de ministre et la sainteté du ministère qui lui était confié, allant jusqu’à décider d’ *«* *habiter »* matériellement dans son église paroissiale : « A peine arrivé, il choisit l’église pour être sa demeure… Il entrait dans l’église avant l’aube et il n’en sortait qu’après l’Angelus du soir. C’est là qu’il fallait le chercher si l’on avait besoin de lui », peut-on lire dans sa première biographie [\[8\]](#_ftn8 "").
+
+La pieuse exagération du dévoué hagiographe ne doit pas nous induire à négliger le fait que le Saint Curé sut aussi « habiter » activement tout le territoire de sa paroisse : il rendait visite de manière systématique à tous les malades et aux familles ; il organisait des missions populaires et des fêtes patronales ; il recueillait et administrait des dons en argent pour ses œuvres charitables et missionnaires ; il embellissait son église en la dotant d’objets sacrés ; il s’occupait des orphelines de la *« Providence »* (un Institut qu’il avait fondé) et de leurs éducatrices ; il s’intéressait à l’éducation des enfants ; il créait des confréries et invitait les laïcs à collaborer avec lui.
+
+Son exemple me pousse à évoquer les espaces de collaboration que l’on doit ouvrir toujours davantage aux fidèles laïcs, avec lesquels les prêtres forment l’unique peuple sacerdotal [\[9\]](#_ftn9 "") et au milieu desquels, en raison du sacerdoce ministériel, ils se trouvent « pour les conduire tous à l’unité dans l’amour "s’aimant les uns les autres d’un amour fraternel, rivalisant d’égards entre eux" ( *Rm* 12, 10) » [\[10\]](#_ftn10 ""). Il convient de se souvenir, dans ce contexte, comment le Concile Vatican II encourageait chaleureusement les prêtres à « reconnaître sincèrement et à promouvoir la dignité des laïcs et la part propre qu’ils prennent dans la mission de l'Église… Ils doivent écouter de bon cœur les laïcs, en prenant fraternellement en considération leurs désirs, et en reconnaissant leur expérience et leur compétence dans les divers domaines de l’activité humaine, afin de pouvoir discerner avec eux les signes des temps » [\[11\]](#_ftn11 "").
+
+Le Saint Curé enseignait surtout ses paroissiens par le témoignage de sa vie. A son exemple, les fidèles apprenaient à prier, s’arrêtant volontiers devant le tabernacle pour faire une visite à Jésus Eucharistie [\[12\]](#_ftn12 ""). « On n’a pas besoin de tant parler pour bien prier – leur expliquait le Curé – On sait que le bon Dieu est là, dans le saint Tabernacle ; on lui ouvre son cœur ; on se complaît en sa présence. C’est la meilleure prière, celle-là » [\[13\]](#_ftn13 ""). Et il les exhortait : « Venez à la communion, venez à Jésus, venez vivre de lui, afin de vivre pour lui » [\[14\]](#_ftn14 ""). « C’est vrai, vous n’en êtes pas dignes, mais *vous en avez besoin !* » [\[15\]](#_ftn15 ""). Cette éducation des fidèles *à la présence eucharistique et à la communion* revêtait une efficacité toute particulière, quand les fidèles le voyaient célébrer le saint sacrifice de la Messe. Ceux qui y assistaient disaient « qu’il n’était pas possible de voir un visage qui exprime à ce point l’adoration… Il contemplait l’Hostie avec tant d’amour » [\[16\]](#_ftn16 ""). « Toutes les bonnes œuvres réunies – disait-il – n’équivalent pas au sacrifice de la messe, parce qu’elles sont les œuvres des hommes, et la sainte messe est l’œuvre de Dieu » [\[17\]](#_ftn17 ""). Il était convaincu que toute la ferveur de la vie d’un prêtre dépendait de la Messe : « La cause du relâchement du prêtre, c’est qu’on ne fait pas attention à la messe ! Hélas ! Mon Dieu ! qu’un prêtre est à plaindre quand il fait cela comme une chose ordinaire ! » [\[18\]](#_ftn18 ""). Et il avait pris l’habitude, quand il célébrait, d’offrir toujours le sacrifice de sa propre vie : « Oh ! qu’un prêtre fait bien de s’offrir à Dieu en sacrifice tous les matins » [\[19\]](#_ftn19 "").
+
+Cette identification personnelle au sacrifice de la Croix le conduisait – d’un seul mouvement intérieur – de l’autel au confessionnal. Les prêtres ne devraient jamais se résigner à voir les confessionnaux désertés ni se contenter de constater la désaffection des fidèles pour ce sacrement. Au temps du Saint Curé, en France, la confession n’était pas plus facile ni plus fréquente que de nos jours, compte tenu du fait que la tourmente de la Révolution avait étouffé pendant longtemps la pratique religieuse. Mais il s’est efforcé, de toutes les manières : par la prédication, en cherchant à persuader par ses conseils, à faire redécouvrir à ses paroissiens le sens et la beauté de la Pénitence sacramentelle, en montrant comment elle est une exigence intime de la Présence eucharistique. Il sut ainsi donner vie à un *cercle vertueux*. Par ses longues permanences à l’église, devant le tabernacle, il fit en sorte que les fidèles commencent à l’imiter, s’y rendant pour rendre visite à Jésus, et qu’ils soient en même temps sûrs d’y trouver leur curé, disponible pour l’écoute et le pardon. Par la suite, la foule croissante des pénitents qui venaient de la France entière, le retint au confessionnal jusqu’à 16 heures par jour. On disait alors qu’Ars était devenu « le grand hôpital des âmes » [\[20\]](#_ftn20 ""). « La grâce qu’il obtenait \[pour la conversion des pécheurs\] était si puissante qu’elle allait à leur recherche sans leur laisser un moment de répit » dit le premier biographe [\[21\]](#_ftn21 ""). C’est bien ce que pensait le Saint Curé quand il disait : « Ce n’est pas le pécheur qui revient à Dieu pour lui demander pardon ; mais c’est Dieu lui-même qui court après le pécheur et qui le fait revenir à lui » [\[22\]](#_ftn22 ""). « Ce bon sauveur est si rempli d’amour pour nous qu’il nous cherche partout ! » [\[23\]](#_ftn23 "").
+
+Nous tous, prêtres, nous devrions réaliser que les paroles qu’il mettait dans la bouche du Christ nous concernent personnellement : « Je chargerai mes ministres de leur annoncer que je suis toujours prêt à les recevoir, que ma miséricorde est infinie » [\[24\]](#_ftn24 ""). Du Saint Curé d’Ars, nous pouvons apprendre, nous prêtres, non seulement une inépuisable confiance dans le sacrement de la Pénitence au point de nous inciter à le remettre au centre de nos préoccupations pastorales, mais aussi une méthode pour le « dialogue de salut » qui doit s’établir en lui. Le Curé d’Ars avait une manière différente de se comporter avec les divers pénitents. Celui qui s’approchait de son confessionnal attiré par un besoin intime et humble du pardon de Dieu, trouvait en lui l’encouragement à se plonger dans « le torrent de la divine miséricorde » qui emporte tout dans son élan. Et si quelqu’un s’affligeait de sa faiblesse et de son inconstance, craignant les rechutes à venir, le Curé lui révélait le secret de Dieu par une expression d’une touchante beauté : « Le bon Dieu sait toutes choses. D’avance, il sait qu’après vous être confessé, vous pécherez de nouveau et cependant il vous pardonne. Quel amour que celui de notre Dieu *qui va jusqu’à oublier volontairement l’avenir* pour nous pardonner ! » [\[25\]](#_ftn25 ""). A celui qui, à l’inverse, s’accusait avec tiédeur et de manière presque indifférente, il offrait, par ses larmes, la preuve de la souffrance et de la gravité que causait cette attitude « abominable » : « Je pleure de ce que vous ne pleurez pas » [\[26\]](#_ftn26 ""), disait-il. « Encore, si le bon Dieu n’était si bon, *mais il est si bon*. Faut-il que l’homme soit barbare pour un si bon Père » [\[27\]](#_ftn27 ""). Il faisait naître le repentir dans le cœur des tièdes, en les obligeant à voir, de leurs propres yeux et presque « incarnée » sur le visage du prêtre qui les confessait, la souffrance de Dieu devant les péchés. Par contre, si quelqu’un se présentait avec un désir déjà éveillé d’une vie spirituelle plus profonde et qu’il en était capable, il l’introduisait dans les profondeurs de l’amour, exposant l’indicible beauté que représente le fait de pouvoir vivre unis à Dieu et en sa présence : « Tout sous les yeux de Dieu, tout avec Dieu, tout pour plaire à Dieu… Oh ! que c’est beau ! » [\[28\]](#_ftn28 ""). A ceux-là, il enseignait à prier : « Mon Dieu, faites-moi la grâce de vous aimer autant qu’il est possible que je vous aime » [\[29\]](#_ftn29 "").
+
+Le Curé d’Ars, en son temps, a su transformer le cœur et la vie de tant de personnes, parce qu’il a réussi à leur faire percevoir l’amour miséricordieux du Seigneur. Notre temps aussi a un besoin urgent d’une telle annonce et d’un tel témoignage de la vérité de l’Amour : *Deus caritas est* ( *1 Jn* 4,8). Par la Parole et les Sacrements de son Jésus, Jean-Marie Vianney savait édifier son peuple, même si, souvent, il tremblait devant son incapacité personnelle, au point de désirer plus d’une fois être délivré des responsabilités du ministère paroissial dont il se sentait indigne. Toutefois, avec une obéissance exemplaire, il demeura toujours à son poste, parce qu’il était dévoré de la passion apostolique pour le salut des âmes. Il s’efforçait d’adhérer totalement à sa vocation et à sa mission en pratiquant une ascèse sévère : « Ce qui est un grand malheur, pour nous autres curés – déplorait le saint –, c’est que l’âme s’engourdit » [\[30\]](#_ftn30 "") ; et il faisait ainsi allusion au danger que court le pasteur de s’habituer à l’état de péché ou d’indifférence dans lequel se trouvent tant de ses brebis. Il maîtrisait son corps par des veilles et des jeûnes, afin d’éviter qu’il n’oppose résistance à son âme sacerdotale. Et il n’hésitait pas à s’infliger des mortifications pour le bien des âmes qui lui étaient confiées et pour contribuer à l’expiation de tant de péchés entendus en confession. A un confrère prêtre, il expliquait : « Je vais vous dire ma recette. Je leur donne une petite pénitence et je fais le reste à leur place » [\[31\]](#_ftn31 ""). Par-delà ces pénitences concrètes auxquelles le Curé d’Ars se livrait, le noyau central de son enseignement demeure toujours valable pour tous : Jésus verse son sang pour les âmes et le prêtre ne peut se consacrer à leur salut s’il refuse de participer personnellement à ce « prix élevé » de la rédemption.
+
+Dans le monde d’aujourd’hui, comme dans les temps difficiles du Curé d’Ars, il faut que les prêtres, dans leur vie et leur action, se distinguent par *la force de leur témoignage évangélique*. Paul VI faisait remarquer avec justesse : « L’homme contemporain écoute plus volontiers les témoins que les maîtres, ou, s’il écoute les maîtres, c’est parce qu’ils sont des témoins » [\[32\]](#_ftn32 ""). Pour éviter que ne surgisse en nous un vide existentiel et que ne soit compromise l’efficacité de notre ministère, il faut que nous nous interrogions toujours de nouveau : « Sommes-nous vraiment imprégnés de la Parole de Dieu ? Est-elle vraiment la nourriture qui nous fait vivre, plus encore que le pain et les choses de ce monde ? La connaissons-nous vraiment ? L’aimons-nous ? Intérieurement, nous préoccupons-nous de cette parole au point qu’elle façonne réellement notre vie et informe notre pensée ? » [\[33\]](#_ftn33 ""). Tout comme Jésus appela les Douze pour qu’ils demeurent avec lui (cf. *Mc* 3,14) et que, après seulement, il les envoya prêcher, de même, de nos jours, les prêtres sont appelés à assimiler ce « nouveau style de vie » qui a été inauguré par le Seigneur Jésus et qui est devenu précisément celui des Apôtres [\[34\]](#_ftn34 "").
+
+C’est cette même adhésion sans réserve au « nouveau style de vie » qui fut la marque de l’engagement du Curé d’Ars dans tout son ministère. Le Pape Jean XXIII, dans l’Encyclique *Sacerdotii nostri primordia*, publiée en 1959 à l’occasion du premier centenaire de la mort de saint Jean-Marie Vianney, présentait sa physionomie ascétique sous le signe des « trois conseils évangéliques », qu’il jugeait nécessaires aussi pour les prêtres : « Si pour atteindre à cette sainteté de vie, la pratique des conseils évangéliques n’est pas imposée au prêtre en vertu de son état clérical, elle s’offre néanmoins à lui, comme à tous les disciples du Seigneur, comme la voie royale de la sanctification chrétienne » [\[35\]](#_ftn35 ""). Le Curé d’Ars sut vivre les « conseils évangéliques » selon des modalités adaptées à sa condition de prêtre. Sa *pauvreté*, en effet, ne fut pas celle d’un religieux ou d’un moine, mais celle qui est demandée à un prêtre : tout en gérant de grosses sommes d’argent (puisque les pèlerins les plus riches ne manquaient pas de s’intéresser à ses œuvres de charité), il savait que tout était donné pour son église, pour les pauvres, pour ses orphelins et pour les enfants de sa « *Providence* » [\[36\]](#_ftn36 ""), et pour les familles les plus nécessiteuses. Donc, il « était riche pour donner aux autres, et bien pauvre pour lui-même » [\[37\]](#_ftn37 ""). Il expliquait : « Mon secret est bien simple, c’est de tout donner et de ne rien garder » [\[38\]](#_ftn38 ""). Quand il lui arrivait d’avoir les mains vides, content, il disait aux pauvres qui s’adressaient à lui : « Je suis pauvre comme vous ; je suis aujourd’hui l’un des vôtres » [\[39\]](#_ftn39 ""). Ainsi, à la fin de sa vie, il put affirmer dans une totale sérénité : « Je n’ai plus rien, le bon Dieu peut m’appeler quand il voudra » [\[40\]](#_ftn40 ""). Sa *chasteté* était aussi celle qui était demandée à un prêtre pour son ministère. On peut dire qu’il s’agissait de la chasteté nécessaire à celui qui doit habituellement toucher l’Eucharistie et qui habituellement la contemple avec toute l’ardeur du cœur et qui, avec la même ferveur, la donne à ses fidèles. On disait de lui que « la chasteté brillait dans son regard », et les fidèles s’en rendaient compte quand il se tournait vers le tabernacle avec le regard d’un amoureux [\[41\]](#_ftn41 ""). De même, l’ *obéissance* de saint Jean-Marie Vianney fut entièrement incarnée dans son adhésion à toutes les souffrances liées aux exigences quotidiennes du ministère. On sait combien il était tourmenté par la pensée de son incapacité pour le ministère paroissial et par son désir de fuir « pour pleurer dans la solitude sur sa pauvre vie » [\[42\]](#_ftn42 ""). L’obéissance seule, et sa passion pour les âmes, réussissaient à le convaincre de rester à son poste. Il montrait à ses fidèles, comme à lui-même qu’il « n’y a pas deux bonnes manières de servir Notre Seigneur, il n’y en a qu’une, c’est de le servir comme il veut être servi » [\[43\]](#_ftn43 ""). Il lui semblait que la règle d’or pour une vie d’obéissance fut celle-ci : « Ne faire que ce que l’on peut offrir au bon Dieu » [\[44\]](#_ftn44 "").
+
+Dans ce contexte d’une spiritualité nourrie par la pratique des conseils évangéliques, je tiens à adresser aux prêtres, en cette Année qui leur est consacrée, une invitation cordiale, celle de savoir accueillir le nouveau printemps que l’Esprit suscite de nos jours dans l'Église, en particulier grâce aux Mouvements ecclésiaux et aux nouvelles Communautés. « L’Esprit dans ses dons prend de multiples formes… Il souffle où il veut. Il le fait de manière inattendue, dans des lieux inattendus et sous des formes qu’on ne peut imaginer à l’avance… Il nous démontre également qu’il œuvre en vue de l’unique corps et dans l’unité de l’unique corps » [\[45\]](#_ftn45 ""). Ce que dit à cet égard le Décret *Presbyterorum ordinis* est d’actualité : « Eprouvant les esprits pour savoir s’ils sont de Dieu, ils \[les prêtres\] chercheront à déceler, avec le sens de la foi, les charismes multiformes des laïcs, qu’ils soient humbles ou éminents, les reconnaîtront avec joie et les développeront avec un zèle empressé » [\[46\]](#_ftn46 ""). Ces mêmes dons, qui poussent bien des personnes vers une vie spirituelle plus élevée, sont profitables non seulement pour les fidèles laïcs mais pour les ministres eux-mêmes. C’est de la communion entre ministres ordonnés et charismes que peut naître « un élan précieux pour un engagement renouvelé de l'Église au service de l’annonce et du témoignage de l’Évangile de l’espérance et de la charité partout à travers le monde » [\[47\]](#_ftn47 ""). Je voudrais encore ajouter, dans la ligne de l’Exhortation apostolique *Pastores dabo vobis* du Pape Jean-Paul II, que le ministère ordonné a une « *forme communautaire* » radicale et qu’il ne peut être accompli que dans la communion des prêtres avec leur Évêque [\[48\]](#_ftn48 ""). Il faut que cette communion des prêtres entre eux et avec leur Évêque, enracinée dans le sacrement de l’Ordre et manifestée par la concélébration eucharistique, se traduise dans les diverses formes concrètes d’une fraternité effective et affective [\[49\]](#_ftn49 ""). Ainsi seulement, les prêtres pourront-ils vivre en plénitude le don du célibat et seront-ils capables de faire épanouir des communautés chrétiennes au sein desquelles se renouvellent les prodiges de la première prédication de l’Évangile.
+
+L’Année paulinienne qui arrive à sa fin nous invite à considérer encore la figure de l’Apôtre des Gentils dans laquelle brille à nos yeux un modèle splendide de prêtre complètement « donné » à son ministère. « L’amour du Christ nous presse – écrivait-il – à la pensée que, si un seul est mort pour tous, alors tous sont morts » ( *2 Co*, 5, 14) et il ajoutait : « Il est mort pour tous, afin que les vivants ne vivent plus pour eux-mêmes, mais pour celui qui est mort et ressuscité pour eux » ( *2 Co* 5, 15). Quel meilleur programme pourrait être proposé à un prêtre qui s’efforce de progresser sur le chemin de la perfection chrétienne ?
+
+Chers prêtres, la célébration du 150e anniversaire de la mort de saint Jean-Marie Vianney (1859) vient immédiatement après les célébrations achevées il y a peu du 150e anniversaire des apparitions de Lourdes (1858). Déjà en 1959, le bienheureux Pape Jean XXIII l’avait remarqué : « Peu avant que le Curé d’Ars n’achevât sa longue carrière pleine de mérites, \[la Vierge Immaculée\] était apparue dans une autre région de France à une enfant humble et pure pour lui communiquer un message de prière et de pénitence, dont on sait l’immense retentissement spirituel depuis un siècle. En vérité, l’existence du saint prêtre dont nous célébrons la mémoire, était à l’avance une vivante illustration des grandes vérités surnaturelles enseignées à la voyante de Massabielle ! Il avait lui-même pour l’Immaculée Conception de la Très Sainte Vierge une très vive dévotion, lui qui, en 1836, avait consacré sa paroisse à Marie conçue sans péché et devait accueillir avec tant de foi et de joie la définition dogmatique de 1854 » [\[50\]](#_ftn50 ""). Le Saint Curé rappelait toujours à ses fidèles que « Jésus-Christ, après nous avoir donné tout ce qu’il pouvait nous donner, veut encore nous faire héritiers de ce qu’il y a de plus précieux, c’est-à-dire sa Sainte Mère » [\[51\]](#_ftn51 "").
+
+Je confie cette Année sacerdotale à la Vierge Sainte, lui demandant de susciter dans l’âme de chaque prêtre un renouveau généreux de ces idéaux de donation totale au Christ et à l'Église qui ont inspiré la pensée et l’action du Saint Curé d’Ars. La fervente vie de prière et l’amour passionné de Jésus crucifié ont nourri le don quotidien et sans réserve de Jean-Marie Vianney à Dieu et à l'Église. Puisse son exemple susciter parmi les prêtres ce témoignage d’unité avec l’Évêque, entre eux et avec les laïcs, qui est si nécessaire aujourd’hui, comme en tout temps. Malgré le mal qui se trouve dans le monde, la parole du Christ à ses Apôtres au Cénacle résonne toujours avec la même force d’actualité : « Dans le monde, vous aurez à souffrir, mais gardez courage ! J’ai vaincu le monde » ( *Jn*  16, 33). La foi dans le divin Maître nous donne la force de regarder l’avenir avec confiance. Chers prêtres, le Christ compte sur vous. A l’exemple du Saint Curé d’Ars, laissez-vous conquérir par Lui et vous serez vous aussi, dans le monde d’aujourd’hui, des messagers d’espérance, de réconciliation et de paix !
+
+Avec ma bénédiction.
+
+*Du Vatican, le 16 juin 2009.*
+
+**BENEDICTUS PP. XVI**
+
+* * *
+
+[\[1\]](#_ftnref1 "") C’est ainsi que l’a proclamé le Souverain Pontife Pie XI en 1929.
+
+
+[\[2\]](#_ftnref2 "") *« Le Sacerdoce, c’est l’amour du cœur de Jésus »*(in
+*Le Curé d’Ars, Sa pensée, Son cœur.* Présentés par l’Abbé Bernard Nodet, éd. Xavier Mappus, Foi Vivante, 1966, p. 98). Par la suite :
+*Nodet*. L’expression est citée aussi dans le
+[*Catéchisme de l'Église catholique*, n. 1589](http://www.vatican.va/archive/FRA0013/__P4S.HTM).
+
+
+[\[3\]](#_ftnref3 "") Nodet, p. 101.
+
+
+[\[4\]](#_ftnref4 "") *Ibid.*, p. 97.
+
+
+[\[5\]](#_ftnref5 "") *Ibid.*, pp. 98-99.
+
+
+[\[6\]](#_ftnref6 "") *Ibid.*, pp. 98-100.
+
+
+[\[7\]](#_ftnref7 "") *Ibid.*, p. 183.
+
+
+[\[8\]](#_ftnref8 "") Alfred Monnin,
+*Le Curé d’Ars. Vie de M. Jean-Baptiste Marie Vianney,* I, Charles Douniol,  1868.
+
+
+[\[9\]](#_ftnref9 "") Cf.
+*[Lumen gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, n. 10.
+
+
+[\[10\]](#_ftnref10 "") *[Presbyterorum ordinis](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651207_presbyterorum-ordinis_fr.html)*, n. 9.
+
+
+[\[11\]](#_ftnref11 "") *Ibid.*
+
+[\[12\]](#_ftnref12 "") « La contemplation est regard de foi, fixé sur Jésus. "Je L’avise et Il m’avise", disait au temps de son saint Curé le paysan d’Ars en prière devant le Tabernacle » (
+[*Catéchisme de l'Église catholique,* n. 2715](http://www.vatican.va/archive/FRA0013/__P9H.HTM)).
+
+
+[\[13\]](#_ftnref13 "") Nodet, p. 85.
+
+
+[\[14\]](#_ftnref14 "") *Ibid.*, p. 114.
+
+
+[\[15\]](#_ftnref15 "") *Ibid.*, p. 119.
+
+
+[\[16\]](#_ftnref16 "") Alfred Monnin,
+*o.c.*. II.
+
+
+[\[17\]](#_ftnref17 "") Nodet, p. 105.
+
+
+[\[18\]](#_ftnref18 "") *Ibid.*, p. 105.
+
+
+[\[19\]](#_ftnref19 "") *Ibid.*, p. 104.
+
+
+[\[20\]](#_ftnref20 "") Alfred Monnin,
+*o.c*. , II.
+
+
+[\[21\]](#_ftnref21 "") *Ibid.*
+
+[\[22\]](#_ftnref22 "") Nodet, p. 128.
+
+
+[\[23\]](#_ftnref23 "") *Ibid.*, p. 50.
+
+
+[\[24\]](#_ftnref24 "") *Ibid.*, p. 131.
+
+
+[\[25\]](#_ftnref25 "") *Ibid.*, p. 130.
+
+
+[\[26\]](#_ftnref26 "") *Ibid.*, p. 27.
+
+
+[\[27\]](#_ftnref27 "") *Ibid.*, p. 139.
+
+
+[\[28\]](#_ftnref28 "") *Ibid.*, p. 28.
+
+
+[\[29\]](#_ftnref29 "") *Ibid.*, p. 77.
+
+
+[\[30\]](#_ftnref30 "") *Ibid.*, p. 102.
+
+
+[\[31\]](#_ftnref31 "") *Ibid.*, p. 189.
+
+
+[\[32\]](#_ftnref32 "") *[Evangelii nuntiandi](/content/paul-vi/fr/apost_exhortations/documents/hf_p-vi_exh_19751208_evangelii-nuntiandi.html)*, n . 41.
+
+
+[\[33\]](#_ftnref33 "") BenoîtXVI,
+*[Homélie de la Messe Chrismale](/content/benedict-xvi/fr/homilies/2009/documents/hf_ben-xvi_hom_20090409_messa-crismale.html),* 9 avril 2009.
+
+
+[\[34\]](#_ftnref34 "") Cf. Benoît XVI,
+*Discours à l’Assemblée plénière de la Congrégation pour le Clergé*, 16 mars 2009.
+
+
+[\[35\]](#_ftnref35 "") *Pars* I.
+
+
+[\[36\]](#_ftnref36 "") C’est le nom qu’il donna à la maison où il fit recueillir et éduquer plus de 60 petites filles abandonnées. Il était prêt à tout pour la maintenir : «
+*J’ai fait tous les commerces imaginables »*, disait-il en souriant (Nodet, p. 214).
+
+
+[\[37\]](#_ftnref37 "") Nodet, p. 216.
+
+
+[\[38\]](#_ftnref38 "") *Ibid.*, p. 215.
+
+
+[\[39\]](#_ftnref39 "") *Ibid.*, p. 216.
+
+
+[\[40\]](#_ftnref40 "") *Ibid.*, p. 214.
+
+
+[\[41\]](#_ftnref41 "") Cf.
+*Ibid.*, p. 112.
+
+
+[\[42\]](#_ftnref42 "") Cf.
+*Ibid.*, pp. 82-84 ; 102-103.
+
+
+[\[43\]](#_ftnref43 "") *Ibid.*, p. 75.
+
+
+[\[44\]](#_ftnref44 "") *Ibid.*, p. 76.
+
+
+[\[45\]](#_ftnref45 "") Benoît XVI,
+*[Homélie de la Vigile de Pentecôte](/content/benedict-xvi/fr/homilies/2006/documents/hf_ben-xvi_hom_20060603_veglia-pentecoste.html),* 3 juin 2006.
+
+
+[\[46\]](#_ftnref46 "") N. 9.
+
+
+[\[47\]](#_ftnref47 "") Benoît XVI,
+*[Discours aux Évêques amis du Mouvement des Focolari et de la Communauté de Sant’Egidio](/content/benedict-xvi/fr/speeches/2007/february/documents/hf_ben-xvi_spe_20070208_focolari.html),* 8 février 2007.
+
+
+[\[48\]](#_ftnref48 "") Cf. n. 17.
+
+
+[\[49\]](#_ftnref49 "") Cf. Jean-Paul II, Exhort. Ap.
+*[Pastores dabo vobis](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_25031992_pastores-dabo-vobis.html)*, n. 74.
+
+
+[\[50\]](#_ftnref50 "") Encycl.
+*[Sacerdotii nostri primordia](/content/john-xxiii/fr/encyclicals/documents/hf_j-xxiii_enc_19590801_sacerdotii.html)*, P III.
+
+
+[\[51\]](#_ftnref51 "") Nodet, p. 244.
+
+
+© Copyright 2009 - Libreria Editrice Vaticana

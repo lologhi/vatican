@@ -1,0 +1,27 @@
+***ADDRESS OF HIS HOLINESS JOHN PAUL II***
+
+***TO H.E. Mrs. MARY SEET-CHENG***
+
+***NEW AMBASSADOR OF SINGAPORE TO THE HOLY SEE\****
+
+*Thursday, 28 October 1993*
+
+Votre Excellence,
+
+C'est pour moi un grand plaisir de vous accueillir au Vatican et d'accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République de Singapour près le Saint-Siège. J'ai reçu avec une cordiale gratitude les chaleureuses salutations que vous m'avez apportées de la part de votre gouvernement et de votre peuple, et je vous prie de transmettre au Président Ong Teng Cheong et à vos concitoyens mes meilleurs vœux cordiaux et mes prières pour leur paix et leur bien-être.
+
+Votre Excellence a mentionné l'engagement de votre gouvernement en vue d'accroître la qualité de la vie de ses citoyens. Ce noble objectif, au-delà de tout plan économique et projets technologique, est d'abord et avant tout un effort éthique, car si les initiatives visant à un progrès politique et économique doivent atteindre leur objectif authentique, elles doivent servir le développement intégral de chaque personne et de toute la personne (cf. Message pour la Journée mondiale de la Paix 1987, n. 5). A Singapour des peuples de différentes langues, races et religions vivent et travaillent ensemble en harmonie. L'unité de la famille humaine, qui tire son origine de l'unique Dieu et Créateur, et la dignité inaliénable de chacun de ses membres, sont les principes fondamentaux qui permettent l'établissement du respect mutuel des hommes et des femmes de traditions différentes et qui les soutiennent pour faire progresser la vie de la nation à partir des ressources de leur héritage particulier (cf. Message pour la Journée mondiale de la Paix 1989, n. 32. Un véritable esprit de tolérance et de respect mutuel assurera à chaque groupe la possibilité d'apporter sa propre contribution au bien commun. La nation s'enrichit de cet «échange de dons».
+
+2\. La construction d'une société juste et pacifique requiert un engagement total au principe de liberté religieuse, qui est la pierre angulaire de toute la structure des droits de l'homme. La liberté de rechercher la vérité et la liberté de professer ses propres convictions religieuses – droits qui sont reconnus et garantis par votre Constitution, et protégés par vos structures juridiques – sont la garantie certaine que d'autres droits fondamentaux ne seront pas ignorés et que les efforts visant à assurer le bien-être et le progrès de la communauté nationale seront profondément motivés et généreusement soutenus.
+
+3\. Dans ces conditions, j'apprécie l'estime de Votre Excellence pour la contribution de l'Église catholique à la vie de la République de Singapour. Bien que l'Église donne toujours la priorité à ses objectifs spirituels, il est aussi vrai que de sa mission religieuse «découlent une fonction, des lumières et des forces qui peuvent servir à constituer et à affermir la communauté des hommes selon la loi divine» (Gaudium et spes, n. 42). L'enseignement et l'antique pratique de l'Église la conduisent à alléger les difficultés de ceux qui sont dans le besoin et de ceux qui souffrent de tant de manières (cf. Encyclique Sollicitudo rei socialis, n. 31). Grâce à son système d'écoles et de programmes d'assistance sociale, l'Église - travers ses prêtres, religieux et laïcs - continuera à œuvrer pour le bien-être de tous les citoyens, en particulier de la jeune génération - la plus grande ressource de votre pays.
+
+4\. La coopération de la République de Singapour et des États frontaliers est une condition indispensable d'une coexistence amicale dans la région et, par conséquent, d'un approfondissement de la cause de la paix. Comme j'ai eu l'occasion de remarquer lors de ma visite pastorale dans votre pays en 1986: «Faire la paix est une tâche qui ne finit jamais, mais qui est toujours en progrès, qui a toujours besoin d'être confirmée et renforcée « (homélie, Singapour, 20 novembre 1986, n. 8). Le fondement de la paix est la justice et son expression est la solidarité internationale. La différence croissante entre riches et pauvres, même à l'intérieur de nations économiquement développées, est toujours plus marquée et présente une menace grandissante pour la paix. Permettre à des situations d'extrême pauvreté de persister, crée des conditions sociales qui produisent ressentiment et division, en détruisant tout espoir d'harmonie sociale et de paix mondiale. Comme je le notais avec un grand souci l'an dernier: «Il s'agit là d'un problème qui s'impose à la conscience de l'humanité, car la situation dans laquelle se trouvent nombre de personnes offense leur dignité foncière et, en conséquence, compromet le progrès authentique et harmonieux de la communauté mondiale « (Message pour la Journée mondiale de la Paix 1993, n. 1). J'exprime donc l'espérance que la République de Singapour sera un champion convaincu au sein de la Communauté internationale, d'un partage plus juste et plus équitable des ressources du monde, entre les membres de l'unique famille humaine.
+
+En offrant mes meilleurs vœux au commencement de votre mission, je profite de l'occasion pour assurer Votre Excellence que les dicastères du Saint-Siège sont prêts à vous aider dans votre travail. Sur vous-même et sur tous les citoyens de la République de Singapour, j'invoque cordialement d'abondantes Bénédictions divines.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.45 p.6.
+
+© Copyright 1993 \- Libreria Editrice Vaticana

@@ -1,0 +1,41 @@
+VOYAGE APOSTOLIQUE AU SÉNÉGAL, EN GAMBIE ET EN GUINÉE
+
+***DISCOURS*** ***DU SAINT-PÈRE JEAN-PAUL II***
+
+***AUX CATÉCHISTES ET AUX MEMBRES***
+
+***DES CONSEILS PAROISSIAUX***
+
+*Collège Sainte-Marie de Dixin, Conakry (Guinée)*
+
+*Mardi, 25 février 1992*
+
+*Chers amis,*
+
+1\. Avec vous, dans cette belle assemblée, où se rejoignent les adultes et les jeunes, j’ai vraiment l’impression de me trouver en famille et j’en suis très heureux. Je vous remercie de votre accueil si sympathique et je vous salue de tout cœur. Monseigneur Philippe Kourouma a chaleureusement présenté les catéchistes de Guinée et les membres des Conseils paroissiaux, je lui dis mon amicale gratitude pour ses paroles. Merci aussi au Frère Supérieur du Collège Sainte-Marie pour son exposé de l’histoire et de la vie de cette maison, à laquelle il associe l’ensemble des religieux et des laïcs éducateurs, à l’œuvre dans votre pays.
+
+2\. Chers catéchistes, je m’adresse d’abord à vous, parce que vous méritez une place d’honneur dans l’Église en Guinée. Depuis la venue des premiers missionnaires, vous avez permis à l’Église de s’enraciner en beaucoup de lieux où les prêtres ne pouvaient pas être toujours présents. Vous avez pris au sérieux votre vocation de baptisés pour devenir à votre tour des porteurs de la Bonne Nouvelle et des animateurs fraternels des communautés naissantes. Et tous savent avec quel zèle persévérant vous avez traversé les années d’épreuve, en soutenant la ferveur de vos frères et sœurs, souvent privés de la visite régulière des quelques pasteurs restés dans le pays. Pour toute cette œuvre – ô combien admirable! –, accomplie avec modestie, je tiens à vous rendre hommage et à vous exprimer la gratitude de toute l’Église.
+
+3\. Comme catéchistes, dans le cadre de la mission propre de l’Église du Christ, vous accomplissez de nombreuses tâches qui se complètent. De façon exemplaire, vous répondez à la vocation des fidèles chrétiens qui prennent leurs responsabilités de baptisés dans la communauté ecclésiale et dans le monde. Vous entraînez vos frères pour constituer ensemble le peuple de Dieu vivant dans la foi, l’espérance et la charité.
+
+Par l’instruction religieuse et la préparation aux sacrements, par l’animation de la prière commune, vous aidez les baptisés à progresser dans la piété et le sens chrétien de leur vie, en même temps que vous ouvrez la voie du baptême aux catéchumènes. Ainsi, vous apportez une contribution importante à la construction de l’Église et à l’affermissement du peuple de Dieu. Vous participez à diverses formes de l’apostolat, notamment dans les mouvements. Mais vous êtes les premiers à comprendre que cet édifice reçoit sa véritable structure grâce aux ministres ordonnés auxquels le Seigneur a confié le pouvoir de célébrer son sacrifice rédempteur et de transmettre la grâce du pardon. Je pense que vous partagez ma joie d’avoir pu ordonner prêtres, ce matin même, trois fils de votre peuple.
+
+Catéchistes, vous êtes présents à la vie quotidienne de vos villages ou de vos quartiers. Vous y êtes des témoins de l’Évangile dans la façon honnête et généreuse de remplir vos tâches d’hommes, de témoigner d’un esprit de service généreux et d’un souci constant de bonne entente et d’entraide. C’est essentiellement par l’action des laïcs que l’Église désire servir loyalement la promotion de l’homme, le respect de la vie et la paix sociale. Votre action personnelle et votre influence d’animateurs vous placent au premier rang pour le travail de transformation positive du monde que les disciples du Christ souhaitent réaliser.
+
+4\. Vos pasteurs mettent une grande confiance en vous, qui vous dépensez infatigablement. Je sais que vous faites face fidèlement et avec discrétion à vos nombreuses obligations. Je voudrais saluer ici vos familles qui acceptent beaucoup de sacrifices pour que vous soyez disponibles; elles consentent en particulier à une réelle pauvreté. Elles méritent toute notre estime pour cette manière de participer à votre mission. Elles donnent un bel exemple de foyers ouverts aux autres. Que vos épouses et vos enfants en soient remerciés!
+
+J’ajouterai encore un mot pour vous, chers catéchistes: trouvez dans la prière personnelle et familiale la force de continuer votre service désintéressé; soyez les familiers du Christ, les familiers de sa Parole; méditez les dons de Dieu en prenant pour guide et Mère la Vierge Marie. Elle vous soutient dans l’espérance et dans l’amour de vos frères; comme j’aime à le dire, elle vous précède dans le pèlerinage de la foi qui est le chemin de l’homme.
+
+5\. Dans votre assemblée, il y a aussi les membres des conseils paroissiaux. Chers amis, je saisis cette occasion pour vous dire un mot d’encouragement. Chez vous, les paroisses sont grandes, avec des communautés locales nombreuses et souvent éloignées les unes des autres. Il est bon que leurs représentants se rencontrent, sous la conduite du curé, car cela permet de coordonner les actions. Les conseils pastoraux ont été voulus par l’Église, spécialement depuis le Concile Vatican II, parce que la mission évangélique ne peut être remplie qu’avec l’ensemble des frères: chacun prend sa part du fardeau, chacun apporte son expérience. Les conseils sont un lieu exemplaire pour la collaboration des laïcs avec les prêtres, bergers du troupeau au nom du Christ. Bien conçus, vos conseils peuvent être une de ces articulations du Corps du Christ dont parle saint Paul dans un passage de la Lettre aux Ephésiens que je vous laisse méditer: «Vivant selon la vérité et dans la charité, nous grandirons de toutes manières vers Celui qui est la Tête, le Christ, dont le Corps tout entier reçoit concorde et cohésion par toutes sortes de jointures qui le nourrissent et l’actionnent selon le rôle de chaque partie, opérant ainsi sa croissance et se construisant lui-même dans la charité»\[ [1](#_ftn1 "")\].
+
+6\. Nous sommes réunis dans une maison consacrée à l’éducation. Cela se voit bien, chers jeunes qui nous entourez. Vous avez peut-être trouvé austère ce que je viens de dire à vos aînés. Mais je suis content d’avoir pu rencontrer des laïcs chrétiens responsables dans une école. Ils vous font découvrir la joie que représente le service de leurs frères.
+
+Vous venez de lieux différents; beaucoup d’entre vous ne partagent pas notre foi, mais vous entrez ici dans une vraie communauté éducative. Dans ce qui m’a été dit, j’ai remarqué le souci de travail commun des éducateurs et des parents avec vous, les jeunes. Votre formation ne serait pas complète si vous n’aviez pas une bonne possibilité de dialogue avec les adultes. Vous venez chercher le savoir, bien sûr, mais vous apprenez aussi à vivre ensemble. Vous devez vous préparer à être utiles, à servir les autres. Vous vous posez certainement aussi des questions sur le sens de votre vie: d’où vient-elle? Où vous mène-t-elle? Les adultes sont là pour vous aider à découvrir des réponses aux interrogations les plus importantes. Hier soir, j’ai parlé de plusieurs aspects de la vie [avec un grand nombre de jeunes](/content/john-paul-ii/fr/speeches/1992/february/documents/hf_jp-ii_spe_19920224_giovani-guinea.html), vous étiez sans doute là. Alors, je me contente ici de vous dire: bon travail, bon courage pour construire votre avenir! Et que Dieu vous éclaire tous les jours!
+
+En votre nom, je voudrais aussi dire merci aux Frères du Sacré-Cœur, ainsi qu’aux professeurs et aux éducateurs laïcs du collège, pour leur travail et leur dévouement. Je les assure, ainsi que tous les religieux et religieuses en mission d’éducation en Guinée, que l’Église apprécie le service qu’ils rendent à la jeunesse, en continuant une longue tradition toujours vivante. J’espère qu’ils recevront le soutien nécessaire pour développer encore leur œuvre.
+
+Au moment où je dois vous quitter, je voudrais vous offrir à tous mes vœux cordiaux. Je confie vos responsabilités et votre avenir à l’intercession de Sainte Marie, la Mère de Jésus, patronne de cette Maison. Et je vous bénis au nom du Dieu vivant.
+
+* * *
+
+\[ [1](#_ftnref1 "")\] *Eph* 4, 15-16.

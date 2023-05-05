@@ -1,0 +1,57 @@
+CÉLÉBRATION EUCHARISTIQUE À FROSINONE (ITALIE)
+
+***HOMÉLIE DU PAPE JEAN PAUL II***
+
+*Dimanche 16 septembre 2001*
+
+1. "Donne-nous, Père, la joie du pardon" (cf. *Psaume responsorial*).
+
+La joie du pardon:  voilà la "bonne nouvelle" que la liturgie fait aujourd'hui retentir avec vigueur parmi nous. Le pardon est la joie de Dieu, avant même d'être la joie de l'homme. Dieu se réjouit en accueillant le pécheur repenti; et c'est même Lui, qui est Père de miséricorde infinie, " *dives in misericordia*", qui suscite dans le coeur humain l'espérance du pardon et la joie de la réconciliation.
+
+Très chers frères de l'Eglise de Frosinone-Veroli-Ferentino, avec cette annonce de réconfort et de paix, je viens à vous pour répondre à la visite que, le 2 décembre dernier, vous m'avez rendue sur la Place Saint-Pierre, à l'occasion de votre pèlerinage jubilaire. Je rends grâce à la Divine Providence qui m'a conduit parmi vous.
+
+Je suis reconnaissant à votre Evêque, le cher Mgr Salvatore Boccaccio, des sentiments chaleureux qu'il a manifestés au nom de tous. Que le Seigneur accorde des fruits abondants à son zèle pastoral! Je suis heureux de saluer, en même temps que lui, l'Evêque émérite, Mgr Angelo Cella, les Cardinaux et les prêtres ici présents, ainsi que les prêtres concélébrants, alors que j'assure d'une prière spéciale les personnes plus âgées et malades, qui s'unissent à nous spirituellement. Je salue les représentants du Gouvernement italien et les Autorités régionales, provinciales et communales, en exprimant ma gratitude particulière au Maire et à l'Administration de Frosinone. Frères et soeurs ici rassemblés, que mon salut cordial et mon remerciement sincère pour votre accueil chaleureux parviennent à chacun de vous.
+
+2. "Dieu est plus grand que notre coeur". C'est ce que nous avons chanté dans l'acclamation lors de la lecture de l'Evangile. Dans la première Lecture, Moïse donne la preuve qu'il connaît le coeur de Dieu, en invoquant son pardon pour le peuple infidèle (cf. *Ex* 32, 11-32), mais c'est cependant la page de l'Evangile d'aujourd'hui qui nous introduit pleinement dans le mystère de la miséricorde de Dieu:  Jésus nous révèle à tous le visage de Dieu, en nous faisant pénétrer dans son coeur de Père, prêts à se réjouir pour le retour du fils perdu.
+
+Un témoin privilégié de la miséricorde divine est également l'Apôtre Paul qui, comme on l'a proclamé dans la seconde Lecture, en écrivant à son fidèle collaborateur Timothée, présente sa propre conversion comme preuve du fait que le Christ est venu dans le monde pour sauver les pécheurs (cf. 1 *Tm* 1, 15-16).
+
+Telle est la vérité que l'Eglise ne se lasse pas de proclamer:  Dieu nous aime d'un amour infini. Il a donné à l'humanité son propre Fils unique, mort sur la Croix pour la rémission de nos péchés. Croire en Jésus signifie alors reconnaître en Lui le Sauveur, à qui nous pouvons dire du plus profond de notre coeur:  "Tu es mon espérance" et, avec tous nos frères, "Tu es notre espérance".
+
+3. "Jésus est notre espérance!" Très chers amis, je sais que cette expression vous est désormais familière. C'est en effet le thème du projet pastoral que votre diocèse s'est fixé pour les prochaines années. Comme je voudrais que ma visite puisse contribuer à imprimer encore davantage cette certitude dans vos coeurs! L'engagement, les initiatives, le travail de chacun et de chaque communauté doivent devenir un témoignage évangélique, enraciné dans l'expérience joyeuse de l'amour et du pardon de Dieu.
+
+Le pardon de Dieu! Que cette annonce de joie, dont le monde a particulièrement besoin aujourd'hui, soit de manière spéciale au centre de votre vie, chers prêtres, appelés à être des ministres de la miséricorde divine, qui se manifeste de façon suprême dans le pardon des péchés. J'ai précisément voulu consacrer la Lettre aux prêtres du Jeudi Saint dernier au sacrement de la Réconciliation. C'est pourquoi je vous remets à nouveau en esprit ce message, chers frères dans le sacerdoce, en invoquant pour chacun de vous et pour tout le presbyterium cette surabondance de la grâce dont nous a parlé l'Apôtre Paul (cf. 1 *Tm* 1, 14).
+
+Quant à vous, religieux et religieuses, faites rayonner à travers votre exemple la joie de ceux qui ont fait l'expérience du mystère de l'amour de Dieu, que le chant à l'Evangile exprime bien:  "Et nous, nous avons reconnu l'amour que Dieu a pour nous, et nous y avons cru" (cf. 1 *Jn* 4, 16).
+
+4. Il est urgent, à l'époque actuelle, de proclamer le Christ, Rédempteur de l'homme, afin que son amour soit connu de tous et se diffuse dans toutes les directions. Le grand Jubilé de l'An 2000 a été un véhicule providentiel de cette annonce. Mais il faut continuer à poursuivre cette route. Voilà pourquoi, lors de la clôture de l'Année Sainte, j'ai relancé à l'Eglise et au monde l'invitation du Christ à Pierre:  "Duc in altum - Avance en eau profonde" ( *Lc* 5, 4).
+
+Je te renouvelle cette invitation, cher diocèse de Frosinone-Veroli-Ferentino, afin qu'elle te serve de guide dans un renouveau spirituel courageux, traduit par un projet pastoral concret. Construis ton présent et ton avenir en gardant ton regard fixé sur Jésus. Il est tout:  tout pour l'Eglise, tout pour le salut de l'homme. Avec le Jubilé, l'Eglise universelle s'est mise à la recherche du visage du Christ. A présent, elle doit toujours davantage ressentir l'exigence, la passion de contempler la lumière qui irradie de ce Visage pour la refléter sur son chemin de chaque jour:  Jésus-Fils de Dieu; Jésus-Eucharistie; Jésus-charité. Jésus notre espérance! Jésus est tout pour nous.
+
+Que se multiplient dans les communautés paroissiales les moments forts d'étude et de réflexion sur la Parole de Dieu. Méditer, approfondir et aimer l'Ecriture Sainte signifie se mettre à l'écoute du Seigneur de façon humble et attentive, afin que la communauté se développe autour de la table de cette Parole:  celle-ci illumine les orientations et les choix, elle fait apparaître les objectifs à atteindre, mais elle rend tout d'abord les âmes ardentes de foi, elle alimente l'espérance, elle donne de la vigueur au désir d'annoncer à tous la Bonne Nouvelle. Telle est la nouvelle évangélisation, pour laquelle votre communauté diocésaine a expressément institué un "Centre pastoral".
+
+5. Très chers frères et soeurs! Que le coeur et le guide de votre itinéraire spirituel et apostolique soit l'Eucharistie. La vie sacramentelle est, en effet, source de grâce et de salut pour l'Eglise. Tout part du Christ-Eucharistie, et tout revient au Christ vivant, coeur du monde, coeur de la communauté diocésaine paroissiale. Si vous réussissez, comme je vous le souhaite, à placer le Christ au centre de votre vie, vous découvrirez qu'Il ne demande pas seulement à être accueilli par chacun personnellement, mais à être offert, donné, dispensé, communiqué aux autres. Vous deviendrez ainsi, en son nom, de "bons Samaritains" aux côtés des indigents, des pauvres, des derniers et des nombreux immigrés venus dans cette région de pays  lointains.  Vous  vous  rendrez compte que toute l'activité pastorale des centres diocésains "pour le culte et la sanctification" et "pour le caracatère ministériel et le témoignage de la charité" naît de la source surabondante de sainteté qui est le mystère eucharistique et qui appelle chacun à tendre vers la sainteté.
+
+Sur les traces des saints et des saintes de cette terre de "Ciociara", donnez-vous vous aussi comme objectif fondamental celui de devenir saints, comme le Père céleste est Saint et comme l'Esprit qui habite dans nos coeurs est Saint.  Et  l'on  devient  saint  par  la prière, par la participation à l'Eucharistie, les oeuvres de charité, par le témoignage d'une vie humble et généreuse dans le bien.
+
+6. Je désire adresser une parole spéciale aux parents. Chères mamans, chers papas, à travers votre dévouement montrez à vos enfants que Dieu est bon et grand dans l'amour. Faites voir, à travers une vie honnête et active, que la sainteté est la voie "normale" des chrétiens.
+
+Dimanche 21 octobre, j'aurai la joie d'élever aux honneurs des autels un couple d'époux romains:  Luigi et Maria Beltrame Quattrocchi. Cette béatification sera célébrée dans le cadre de la rencontre nationale des familles, organisée par la Conférence épiscopale italienne, qui aura lieu à Rome sur la Place Saint-Pierre, le samedi 20 octobre et le dimanche 21. J'invite à ces deux rendez-vous profondément significatifs, auxquels je désire prendre part personnellement part, les évêques, les prêtres, toutes les familles italiennes et, de façon particulière, celles de la Région du Latium, dans laquelle ont vécu les deux nouveaux bienheureux. Il s'agira d'une occasion pour réfléchir sur la vocation à la sainteté des familles chrétiennes et, dans le même temps, pour prendre davantage conscience du rôle social de la famille et pour demander aux institutions de la défendre et de la promouvoir, grâce à des lois et des normes appropriées.
+
+Diocèse de Frosinone-Veroli-Ferentino, sois une famille de saints! Dans cette terre bien-aimée de la "Ciociara", patrie de personnages illustres et de généreux serviteurs de l'Evangile, sois "sel de la terre" et "lumière du monde" ( *Mt* 5, 13-14).
+
+Que Marie, Mère de l'Eglise, t'accompagne à travers son intercession afin que, comme tu as intensément prié en préparant ma visite pastorale, tu puisses continuer à être une communauté vivante, solide dans la foi, unie dans l'espérance et persévérante dans la charité.
+
+Amen!
+
+* * *
+
+Au terme de la Concélébration eucharistique, Jean-Paul II a rencontré les nouvelles générations de Frosinone-Veroli-Ferentino. Après le salut de deux jeunes, le Saint-Père a prononcé les paroles suivantes:
+
+Je  ne  peux  partir  d'ici  sans  adresser une pensée particulière à vous, chers jeunes garçons et filles de la Ciociaria, qui avez voulu m'offrir cette sympathique improvisation que j'ai beaucoup appréciée. Je remercie les deux jeunes qui se sont fait l'interprète de vos sentiments, en me communiquant l'enthousiasme qui vous anime, et le désir de contempler la vie avec espérance, sans vous laisser décourager par les difficultés.
+
+Chers jeunes, souvenez-vous! La boussole fiable sur votre chemin est Jésus-Christ, "notre espérance". Regardez-le et ayez confiance en lui, en avançant avec courage sur la voie de la sainteté. Avancez sans hésitation, avec toute la communauté diocésaine, sous la direction de votre Evêque et de vos prêtres. Le Seigneur compte sur chacun de vous; il veut que vous soyez les protagonistes de la civilisation de la vie et de l'amour. Aidez-vous les uns les autres à être des témoins de l'Evangile et des Apôtres parmi les jeunes de votre âge.
+
+Je vous salue un par un et je vous donne rendez-vous, tout au moins en esprit, pour la grande rencontre de la jeunesse chrétienne qui, si Dieu le veut, se tiendra au mois de juillet de l'année prochaine à Toronto, à l'occasion de la Journée mondiale de la Jeunesse. Après Tor Vergata, Toronto! Préparez-vous à ce grand rassemblement de jeunes, qui est devenu désormais comme un itinéraire de formation pour des milliers et des milliers de jeunes catholiques de tous les continents. Préparez-vous à travers la prière et faites en sorte que chaque jour soit une étape de croissance dans la connaissance, dans l'amour du Christ et dans le service concret à vos frères.
+
+Le Pape vous suit à travers la prière et vous bénit avec affection.

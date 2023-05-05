@@ -1,0 +1,37 @@
+***DISCOURS DU PAPE JEAN-PAUL II*** ***AUX PARTICIPANTS**AU******SYMPOSIUM EUROPÉEN  SUR LE THÈME:***
+
+***"UNIVERSITÉ ET  ÉGLISE EN EUROPE"***
+
+*Samedi**19 juillet 2003*
+
+*Vénérés frères dans l'épiscopat*
+
+*et dans le sacerdoce*
+
+*Messieurs les recteurs et professeurs,*
+
+*très chers jeunes universitaires!*
+
+1. Je suis très heureux de vous accueillir, à l'occasion du Symposium *"Université et Eglise en Europe"*, organisé par le Conseil des Conférences épiscopales d'Europe et par la Commission épiscopale italienne pour l'Université, en collaboration avec le Ministère de l'Université. Je remercie cordialement Mgr Amédée Grab des paroles par lesquelles il a introduit cette rencontre, ainsi que les Autorités civiles et académiques pour leur présence appréciée. A tous, professeurs, aumôniers et étudiants, je souhaite une cordiale bienvenue.
+
+Vous vous êtes donné rendez-vous à Rome, à l'occasion du septième centenaire de la plus ancienne Université de l'Urbs, "La Sapienza". De Rome, votre horizon s'étend ces jours-ci à l'Europe tout entière pour réfléchir sur le lien entre Université et Eglise au début du troisième millénaire.
+
+2. Ce lien nous conduit directement au coeur de l'Europe, là où sa civilisation est arrivée à s'exprimer dans l'une de ses institutions les plus emblématiques. Nous sommes aux XIII et XIV siècles, à l'époque où prend forme l'"humanisme" comme synthèse très heureuse entre le savoir théologique, le savoir philosophique et les autres sciences. Synthèse impensable sans le christianisme et donc sans l'oeuvre séculaire d'évangélisation accomplie par l'Eglise dans la rencontre avec les multiples réalités ethniques et culturelles du continent (cf. [*Discours au V Symposium des Evêques d'Europe*, 19 décembre 1978](http://www.vatican.va/holy_father/john_paul_ii/speeches/1978/documents/hf_jp-ii_spe_19781219_vescovi-europa_fr.html)).
+
+Cette  *mémoire  historique* est indispensable pour fonder la perspective culturelle de l'Europe d'aujourd'hui et de demain, à la construction de laquelle l'Université est appelée à jouer un rôle irremplaçable.
+
+De même que la nouvelle Europe ne peut se projeter dans l'avenir sans puiser à ses racines, ainsi, il en est de même pour l'Université. En effet, celle-ci est par excellence le lieu de recherche de la vérité, d'une analyse attentive des phénomènes dans la recherche constante de synthèses toujours plus complètes et fécondes. Et de même que l'Europe ne peut se réduire à un marché, ainsi, l'Université, tout en devant s'insérer dans le tissu social et économique, ne peut être asservie à ses exigences, sous peine d'égarer sa nature, qui demeure principalement culturelle.
+
+3. C'est ainsi que l'Eglise qui est en Europe considère l'Université:  avec l'estime et la confiance de toujours, en s'efforçant d'offrir sa contribution multiforme. Avant tout à travers la *présence de professeurs et d'étudiants, qui sachent unir la compétence et la rigueur scientifique à une vie spirituelle intense*, afin d'animer d'esprit évangélique le milieu universitaire. En second lieu, à travers les *Universités catholiques*, dans lesquelles se réalise l'héritage des anciennes Universités, nées *ex corde Ecclesiae*. Je désire, en outre, répéter l'importance de ce que l'on appelle les *"laboratoires culturels"*, qui représentent de façon opportune un choix prioritaire de la pastorale universitaire au niveau européen. Au sein de ceux-ci s'accomplit un dialogue constructif entre foi et culture, entre science, philosophie et théologie, et l'éthique est considérée comme une exigence intrinsèque de la recherche pour un service authentique à l'homme (cf. *[Discours lors de la rencontre mondiale des Professeurs universitaires,  9  septembre 2000](http://www.vatican.va/holy_father/john_paul_ii/speeches/2000/jul-sep/documents/hf_jp-ii_spe_20000909_jubilteachers_fr.html)*).
+
+A vous, professeurs, j'adresse mon encouragement;  à  vous, étudiants, l'exhortation à faire fructifier avec application vos talents; à tous, le souhait de collaborer à promouvoir toujours la vie et la dignité de l'homme.
+
+Dans peu de temps, j'allumerai le flambeau qu'un groupe de jeunes apportera à l'église *"Sant'Ivo alla Sapienza"*, en passant par les différents sièges universitaires de Rome:  une façon de souligner la signification et la valeur du septième centenaire de l'Université "La Sapienza".
+
+Que la Très Sainte Vierge Marie, Siège de la Sagesse, veille toujours sur vous. Que vous accompagnent ma prière et ma Bénédiction.
+
+\\* \\* \*
+
+*Au terme de son discours, le Pape Jean-Paul II a salué les divers groupes de pèlerins, respectivement en français, anglais, allemand, espagnol et polonais Au pèlerins francophones, il a dit:*
+
+Je salue les professeurs et les étudiants de langue française, leur adressant mes meilleurs voeux pour leurs recherches et pour la part qu'ils prennent à l'animation chrétienne dans le monde universitaire.

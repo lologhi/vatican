@@ -1,0 +1,41 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 21 novembre 2021*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/11/21/angelus.html)**\]
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+L’Evangile de la liturgie d’aujourd’hui, dernier dimanche de l’année liturgique, culmine dans une affirmation de Jésus, qui dit:  «Je suis roi» (Jn 18, 37). Il prononce ces paroles devant Pilate, tandis que la foule crie de le condamner à mort. Il dit: «Je suis roi», et la foule crie pour le condamner à mort: beau contraste! L’heure cruciale est arrivée. Auparavant, il semble que Jésus ne voulait pas qu’on l’acclame comme roi: rappelons-nous ce jour après la multiplication des pains et des poissons, quand il s’était retiré seul pour prier (cf. Jn 6, 14-15).
+
+Le fait est que la royauté de Jésus est très différente de celle du monde. «Mon royaume — dit-il à Pilate — n’est pas de ce monde» (Jn 18, 36). Il ne vient pas pour dominer, mais pour servir. Il ne vient pas avec les signes du pouvoir, mais avec le pouvoir des signes. Il n’est pas vêtu d’insignes précieux, mais il est nu sur la croix. Et c’est précisément dans l’inscription placée sur la croix que Jésus est défini comme «roi» (cf. Jn 19, 19). Sa royauté est vraiment au-delà des paramètres humains! On pourrait dire qu’il n’est pas un roi comme les autres, mais il est un Roi pour les autres. Repensons à cela: le Christ, devant Pilate, dit qu’il est roi au moment où la foule est contre lui, tandis que quand elle le suivait et l’acclamait, il avait pris ses distances de cette acclamation. C’est-à-dire que Jésus se montre souverainement libre du désir de renommée et de gloire terrestre. Et nous — posons-nous la question — savons-nous l’imiter en cela? Savons-nous gouverner notre tendance à être continuellement recherchés et approuvés, ou bien faisons-nous tout pour être estimés des autres? Dans ce que nous faisons, en particulier dans notre engagement chrétien, je me pose la question: qu’est-ce qui compte? Est-ce que ce sont les applaudissements qui comptent ou le service?
+
+Jésus non seulement fuit toute recherche de grandeur terrestre, mais il rend aussi libre et souverain le cœur de ceux qui le suivent. Lui, chers frères et sœurs, nous libère de l’assujettissement au mal. Son Royaume est libérateur, il n’a rien d’oppressant. Il traite chaque disciple comme un ami, non comme un sujet. Le Christ, bien qu’étant au-dessus de tous les souverains, ne trace pas de lignes de séparation entre lui et les autres; il désire au contraire des frères avec qui partager sa joie (cf. Jn 15, 11). En le suivant, on ne perd pas, on ne perd rien, mais on acquiert la dignité. Car le Christ ne veut pas de servilité autour de lui, mais des hommes libres. Et — demandons-nous maintenant — d’où vient la liberté de Jésus? Nous le découvrons en revenant sur son affirmation devant Pilate: «Je suis roi.  Je ne suis né, et je ne suis venu dans le monde, que pour rendre témoignage à la vérité» (Jn 18, 37).
+
+La liberté de Jésus vient de la vérité. C’est sa vérité qui nous rend libres (cf. Jn 8, 32). Mais la vérité de Jésus n’est pas une idée, quelque chose d’abstrait: la vérité de Jésus est une réalité, c’est Lui-même qui fait la vérité en nous, nous libère des fictions, des mensonges que nous avons en nous, du double langage. En étant avec Jésus, nous devenons vrais. La vie du chrétien n’est pas une pièce de théâtre où l’on peut porter le masque qui nous  convient le mieux. Car lorsque Jésus règne dans le cœur, il le libère de l’hypocrisie, le libère des subterfuges, de la duplicité. La meilleure preuve que le Christ est notre roi, est le détachement de ce qui pollue la vie, la rend ambiguë, opaque, triste. Quand la vie est ambiguë, un peu ici, un peu là, c’est triste, c’est très triste. Bien sûr, nous devons toujours faire face aux limitations et aux défauts: nous sommes tous  pécheurs. Mais, quand on vit sous la seigneurie de Jésus, on ne se corrompt pas, on ne devient pas faux, enclin à dissimuler la vérité. On ne mène pas de double vie. Souvenez-vous bien: pécheurs oui, nous le sommes tous, \[mais\] corrompus, jamais! Pécheurs oui,  corrompus, jamais. Que la Vierge nous aide à rechercher chaque jour la vérité de Jésus, Roi de l’Univers, qui nous libère des esclavages terrestres et nous apprend à gouverner nos -vices.
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***À l'issue de l'Angélus***
+
+Chers frères et sœurs, aujourd’hui, pour la première fois en la solennité du Christ-Roi, la journée mondiale de la jeunesse est célébrée dans toutes les Eglises particulières. Pour cette raison il y a, à mes côtés, deux jeunes de Rome, qui représentent toute la jeunesse de Rome. Je salue de tout cœur les garçons et les filles de notre diocèse, et je forme le vœu que tous les jeunes du monde se sentent une partie vivante de l’Eglise, acteurs de sa mission. Merci d’être venus! Et n’oubliez pas que régner, c’est servir. Comment était-ce? Régner, c’est servir. Tous ensemble: régner, c’est servir. Comme nous l’enseigne notre Roi, je vais maintenant demander aux jeunes de vous saluer.
+
+La jeune fille: Bonne journée mondiale des jeunes à vous tous!
+
+Le jeune garçon: Témoignons que croire en Jésus est très beau!
+
+Le Pape: Mais regarde: c’est beau cela! Merci. Restez ici.
+
+C’est aujourd’hui également la journée mondiale de la pêche. Je salue tous les pêcheurs et je prie pour ceux qui vivent dans des conditions difficiles ou parfois, malheureusement, de travail forcé. J’encourage les aumôniers et les bénévoles de Stella Maris à poursuivre leur service pastorale auprès de ces personnes et de leurs familles.
+
+En ces jours nous rappelons également toutes les victimes de la route:  prions pour elles et engageons-nous à prévenir les accidents.
+
+Je désire en outre encourager les initiatives en cours auprès des Nations unies afin que l’on parvienne à un contrôle accru sur le commerce des armes.
+
+Hier à Katowice, en Pologne, a été béatifié le prêtre Giovanni Francesco Macha, tué en haine de la foi en 1942, dans le cadre de la persécution du régime nazi contre l’Eglise. Dans l’obscurité de la détention, il trouva en Dieu la force et la douceur pour affronter ce calvaire. Que son martyre soit une semence féconde d’espérance et de paix. Un applaudissement au nouveau bienheureux!
+
+Je vous salue tous, fidèles de Rome et pèlerins de divers pays. Je souhaite à tous un bon dimanche. Et s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

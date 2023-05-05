@@ -1,0 +1,53 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AUX PÈLERINS UKRAINIENS RÉUNIS POUR LE REMERCIER***
+
+***DE SA VISITE APOSTOLIQUE EN JUIN 2001***
+
+*Lundi 19 novembre 2001*
+
+*Messieurs les Cardinaux,*
+
+*vénérés frères dans l'épiscopat,*
+
+*chers frères et soeurs dans le Christ!*
+
+1. Soyez les bienvenus dans la maison du Pape, vous qui êtes ici pour rendre la visite que j'ai eu la joie d'accomplir dans votre pays au mois de juin dernier. Je salue le Cardinal Lubomyr Husar et le Cardinal Marian Jaworski, et je les remercie des paroles cordiales avec lesquelles ils ont interprété les sentiments communs. Avec eux, je salue les Evêques de l'Eglise grecque-catholique et latine, les prêtres, les religieux et les laïcs des deux rites.
+
+Je garde toujours en mémoire et dans le coeur le souvenir des intenses journées passées parmi vous et je rends grâce au Dieu Un et Trine, pour m'avoir permis d'embrasser la terre ukrainienne et de rencontrer son noble peuple. Ma visite voulait être un hommage à la fidélité de votre peuple à l'Evangile du Christ au long des siècles, en particulier celui qui vient de se conclure, au cours duquel vos Eglises ont vécu l'expérience - douloureuse et glorieuse en même temps - de la confession de la foi jusqu'au martyre.
+
+Au cours de mon voyage, j'ai pu admirer avec émotion la façon dont votre pays a conservé sa foi, en dépit de la période difficile de la persécution, et est fier aujourd'hui de la professer librement. Je vous souhaite, très chers frères et soeurs, de savoir cultiver avec sagesse cette "théophorie" de la tradition chrétienne ukrainienne, pour en tirer la nourriture nécessaire pour la vie chrétienne de chaque jour.
+
+2. L'existence dans votre pays de trois vénérables rites - byzantin, latin et arménien - témoigne de la dimen-sion universelle de l'Eglise présente dans diverses cultures et manifeste clairement le mystère de communion qui unit tous les croyants dans le Christ. Qu'il n'y ait donc entre vous aucune rivalité, mais un respect et un amour réciproques:  "Que le Dieu de la constance et de la consolation vous accorde d'avoir les uns pour les autres la même aspiration à l'exemple du Christ Jésus, afin que d'un même coeur et d'une même bouche, vous glorifiez le Dieu et Père de notre Seigneur Jésus-Christ" ( *Rm* 15, 5-6).
+
+Je vous exhorte à partager, dans une attitude d'échange réciproque de dons, vos trésors spirituels et à accueillir ce qui peut compléter, enrichir et renforcer votre expérience de vie chrétienne et votre témoignage. En effet, l'histoire enseigne qu'une communauté qui se renferme sur soi se condamne à un appauvrissement intérieur et limite ses possibilités d'action apostolique.
+
+Vos Eglises particulières, chacune selon sa tradition, sa spiritualité et sa piété, manifestent, comme l'enseigne saint Ignace Théophore, la magnifique symphonie intérieure de l'Eglise du Christ. De cette manière, celles-ci, dans leur unité catholique, sont et seront les gardiennes et les porteuses d'un grand patrimoine spirituel auquel peuvent puiser tous les peuples de la terre.
+
+3. Chers frères et soeurs, au début de ce nouveau millénaire, un important devoir et une grande responsabilité se présentent aux chrétiens:  il s'agit de l'annonce toujours nouvelle de Jésus-Christ, chemin, vérité et vie (cf. *Jn* 14, 6) pour tous les hommes et femmes de tous les temps et de tous les pays. Vous êtes donc appelés à rendre accessibles, avec sagesse et efficacité, les trésors de la foi, que ce soit à ceux qui en ont déjà quelque connaissance, ou à ceux qui s'y approchent pour la première fois. Pour accomplir cette mission, vous savez tous qu'il faut avant tout vivre avec cohérence la vocation reçue dans le Baptême et organiser sa vie personnelle et sociale selon la loi de Dieu. N'épargnez pas les efforts pour vous assurer, ainsi qu'aux jeunes générations, une formation approfondie au niveau humain, spirituel et culturel, qui permette de donner à tous raison de l'espérance qui est en vous (1 *P* 3, 15).
+
+Un cruel régime athée a tenté, pendant de nombreuses décennies, de déraciner le Christ de la terre ukrainienne; de nombreuses générations ont été éduquées sans le Christ ou même contre Lui. Mais pour l'homme contemporain, plongé dans le chaos et la confusion de la vie quotidienne, les paroles ne suffisent plus:  il ne veut pas seulement entendre "parler" du Christ, il désire de quelque façon le "voir".
+
+4. Avec respect et une reconnaissance sincère pour la grâce propre à chaque Eglise, je m'adresse à tous les chrétiens de votre grand pays - catholiques, orthodoxes et protestants - et je les exhorte "par la douceur et l'indulgence du Christ" (2 *Co* 10, 1):  donnez au peuple ukrainien la possibilité de connaître le Christ! Donnez-lui la possibilité de voir son Sauveur! N'attendez pas que quelqu'un crée les conditions favorables à l'engagement et au travail  pastoral;  suscitez- les vous-mêmes par l'imagination et la générosité. Mais surtout, témoignez à travers votre vie et vos oeuvres de la présence du Ressuscité parmi vous! Ce sera le message le plus éloquent et efficace, le service le plus élevé que vous puissiez rendre à vos concitoyens. La réalisation du commandement de l'amour envers le prochain sera la preuve de la vérité de votre engagement. Le Christ Sauveur nous l'enseigne clairement lorsqu'il dit:  "dans la mesure où vous l'avez fait à l'un de ces plus petits de mes frères, c'est  à  moi  que  vous   l'avez   fait" ( *Mt* 25, 40).
+
+5. Chers évêques, prêtres, religieux et religieuses, catéchistes, fidèles de toutes les Eglises chrétiennes, à travers votre vie, montrez le visage divin du Christ. Plus le Christ sera présent en chacun de vous, plus votre témoignage en faveur de son Evangile de salut sera crédible.
+
+Je vous confie à la Très Sainte Mère de Dieu, Patronne de l'Ukraine, afin qu'elle vous protège tous. Et je vous accompagne avec affection et sympathie, tandis que je prie constamment pour vous, afin que le Seigneur tout-puissant comble "tous vos besoins, selon sa richesse, avec magnificence, dans le Christ Jésus" ( *Ph* 4, 19).
+
+Avec ces sentiments, je vous donne à tous une affectueuse Bénédiction apostolique, que j'étends volontiers à vos proches et à tous les fidèles de votre Terre bien-aimée.
+
+                                                               \\* \\* \*
+
+Au cours de l'Audience aux pèlerins d'Ukraine, le Saint-Père s'est également adressé aux nombreux pèlerins de langue polonaise présents lors de l'audience:
+
+Je souhaite une cordiale bienvenue à tous les pèlerins de langue polonaise. Je salue le Cardinal Marian Jaworski, Archevêque métropolitain de Lviv des Latins, les évêques, les prêtres, les personnes consacrées et les fidèles laïcs. Je suis heureux de votre présence. Je salue l'Eglise grecque-catholique en Ukraine et en Pologne. Je salue les pèlerins venus de Wilamowice.
+
+Vous êtes venus à Rome pour rendre grâce à Dieu pour les fruits spirituels de mon voyage en Ukraine. Je m'unis volontiers à cette action de grâce, en rappelant les jours merveilleux que j'ai pu passer parmi vous à Kiev et à Lviv. Comment pourrais-je oublier ces villes magnifiques sur le Dniepr et sur la Peltew, et tous ces lieux sanctifiés par une tradition chrétienne plus que millénaire? Combien j'ai été heureux de pouvoir rendre gloire à Dieu, là où saint Wladimir, et avec lui toute la Rus', reçut le baptême pour la fidélité de ce peuple, pour le témoignage chrétien qu'il a apporté à travers les siècles, sans épargner les sacrifices, jusqu'à l'effusion de sang. Je me réjouis car, précisément en terre ukrainienne, il m'a été donné de béatifier au moins quelques-uns de l'innombrable multitude de saints:  je prie Dieu afin que l'effusion de leur sang apporte constamment une floraison de la foi dans les coeurs de tous les habitants d'Ukraine.
+
+Je suis également infiniment reconnaissant à Dieu d'avoir pu élever à la gloire des autels le bienheureux Archevêque Józef Bilczewski. Je partage cette joie de façon particulière avec vous, habitants de Lviv, où il accomplit son ministère épiscopal, mais également avec vous, habitants de Wilamowice, où il naquit et d'où il partit. Je vous confie tous à la protection de ce Patron auquel - comme je l'ai dit - je suis uni personnellement par une sorte de lien particulier dans la succession apostolique. Je voudrais rappeler ici également le bienheureux dom Zygmunt Gorazdowski. Je prie Dieu afin que l'intercession de ce pasteur zélé soutienne de façon particulière les prêtres qui accomplissent leur ministère dans l'Eglise d'Ukraine, et surtout les soeurs de Saint-Joseph, qui lui doivent la fondation de leur Institut. Que la bienheureuse Jozafata Michalina Hordaszewska entoure de sa protection toutes les religieuses qui servent avec abnégation, un coeur pur, une sensibilité féminine et une grande promptitude à aider ceux qui sont dans le besoin.
+
+Je garderai dans mon coeur le souvenir inoubliable de la rencontre chaleureuse - malgré une pluie battante - avec les jeunes d'Ukraine. Je suis heureux parce que vous étiez venus à cette rencontre tous ensemble - toute l'Eglise catholique dans sa double tradition, qui est la richesse de la terre ukrainienne. Je suis certain que votre génération, à laquelle l'avenir appartient, lui apportera l'enthousiasme de la foi, de l'espérance et de l'amour, qui accompagnait la prière et la fête devant le temple de la Naissance de la Mère de Dieu. Chers jeunes, je vous embrasse tous de tout coeur. Transmettez mes remerciements et mon salut aux jeunes de votre âge dans toute l'Ukraine.
+
+De façon particulière, je voudrais remercier Dieu avec vous pour l'Esprit d'amour fraternel qui nous unissait en ces jours. Que cet Esprit vous accompagne toujours. N'éteignez pas Ses inspirations. Qu'il embrase vos coeurs, qu'il purifie vos consciences, qu'il renforce votre volonté de marcher ensemble le long du chemin qui conduit au Royaume de notre unique Père. "Un seul Seigneur, une seule foi, un seul baptême. Un seul Dieu et Père de tous, qui est au-dessus de tous, par tous et en tous" ( *Ep* 4, 5-6).
+
+Une fois de plus, je remercie toute l'Eglise d'Ukraine pour son accueil chaleureux et pour son témoignage vivant de foi. A vous tous ici présents j'adresse mes remerciements d'être venus ainsi que pour la prière auprès des tombeaux des saints Apôtres Pierre et Paul selon l'intention de mon ministère en faveur de l'Eglise. C'est le don le plus précieux que vous ayez pu m'offrir. Que cette prière devienne pour vous également une source d'inépuisable grâce divine. Apportez mon salut à vos familles, à ceux qui  vous  sont chers ainsi qu'à tous ceux qui n'ont pas pu se joindre à nous. Transmettez ma Bénédiction à tous les fidèles d'Ukraine. Que Dieu vous bénisse également!

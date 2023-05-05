@@ -1,0 +1,37 @@
+SOLENNITÉ DE L'IMMACULÉE CONCEPTION
+
+DE LA VIERGE MARIE
+
+**PAPE FRANÇOIS**
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Samedi 8 décembre 2018*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/12/8/angelus.html)**\]
+
+* * *
+
+Chers frères et sœurs, bonjour et bonne fête!
+
+La Parole de Dieu d’aujourd’hui nous présente une alternative. Dans la première lecture, il y a l’homme qui aux origines a dit *non* à Dieu, et dans l’Evangile, il y a Marie qui, lors de l’Annonciation, dit *oui* à Dieu. Dans les deux lectures, c’est Dieu qui cherche l’homme. Mais dans le premier cas, après le péché, il se rend auprès d’Adam et lui demande: «Où es-tu?» (Gn 3, 9), et celui-ci répond: «Je me suis caché» (v. 10). Dans le second cas, en revanche, il va auprès de Marie, sans péché, qui répond: «Je suis la servante du Seigneur» (Lc 1, 38). *Me voici*, c’est l’opposé de *je me suis caché*. Le *me voici* ouvre à Dieu, tandis que le péché ferme, isole, fait rester seul avec soi-même.
+
+*Me voici* est le mot clé de la vie. Il marque le passage d’une vie horizontale, centrée sur soi et sur ses besoins, à une vie verticale, élancée vers Dieu. *Me voici*, c’est être disponible pour le Seigneur, c’est le remède à l’égoïsme, c’est l’antidote d’une vie insatisfaite, à laquelle il manque toujours quelque chose. *Me voici* c’est le remède au vieillissement du péché, c’est la thérapie pour rester jeune intérieurement. *Me voici*, c’est croire que Dieu compte plus que mon «moi». C’est choisir de parier sur le Seigneur, dociles à ses surprises. C’est pourquoi lui dire *Me voici*, est la plus grande louange que nous puissions lui offrir. Pourquoi ne pas commencer la journée ainsi, par un «Me voici, Seigneur»? Il serait beau de dire tous les matins: « *Me voici Seigneur, aujourd’hui que ta volonté soit faite en moi*». Nous allons le dire dans la prière de l’ *Angelus*, mais nous pouvons déjà le répéter maintenant, ensemble: *Me voici, Seigneur, aujourd’hui que ta volonté soit faite en moi!*
+
+Marie ajoute: «Qu’il m’advienne selon ta parole». Elle ne dit pas: «Qu’il advienne selon moi», mais «selon Toi». Elle ne pose pas de limites à Dieu. Elle ne pense pas: «Je me consacre un peu à lui, je me dépêche et ensuite je fais ce que je veux». Non, Marie n’aime pas le Seigneur quand elle en a envie, par moments. Elle vit en faisant confiance à Dieu en tout et pour tout. Voilà le secret de la vie. Celui qui fait confiance à Dieu en tout peut tout. Mais le Seigneur, chers frères et sœurs, souffre lorsque nous lui répondons comme Adam: «J’ai eu peur et je me suis caché ». Dieu est le Père, le plus tendre des pères, et il désire la confiance de ses enfants. Combien de fois, au contraire, nous le soupçonnons, nous soupçonnons Dieu! Nous pensons qu’il peut nous envoyer quelque épreuve, nous priver de la liberté, nous abandonner. Mais c’est une grande tromperie, c’est la tentation des origines, la tentation du diable: insinuer la méfiance envers Dieu. Marie surmonte cette première tentation par son *Me voici*. Et aujourd’hui, nous regardons la beauté de la Vierge Marie, qui est née et a vécu sans péché, toujours docile et transparente pour Dieu.
+
+Cela ne signifie pas que la vie a été facile pour elle, non. Etre avec Dieu ne résout pas les problèmes comme par magie. La conclusion de l’Evangile d’aujourd’hui le rappelle: «L’ange la quitta» (v. 38). Il l’a quittée: c’est un verbe fort. L’ange laisse la Vierge seule dans une situation difficile. Elle savait de quelle façon particulière elle allait devenir Mère de Dieu — l’ange l’avait dit — mais l’ange ne l’avait pas expliqué aux autres, seulement à elle. Et les problèmes commencèrent immédiatement: pensons à la situation irrégulière selon la loi, au tourment de saint Joseph, aux projets de vie manqués, à ce que les gens auraient dit… Mais Marie place sa confiance en Dieu avant les problèmes. L’ange l’a quittée, mais elle croit que Dieu est resté avec elle, en elle. Et elle fait confiance. Elle fait confiance à Dieu. Elle est sûre qu’avec le Seigneur tout ira bien, même si c’est d’une manière inattendue. Voilà l’attitude sage: ne pas vivre en dépendant des problèmes — une fois fini l’un, un autre se présentera! — mais faire confiance à Dieu en se remettant à Lui chaque jour: *Me voici!* «Me voici» est le mot. «Me voici» est la prière. Demandons à l’Immaculée d’avoir la grâce de vivre ainsi.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Aujourd’hui, Mgr Pierre Claverie et dix-huit compagnons, religieux et religieuses, tués en haine de la foi, sont proclamés bienheureux au sanctuaire de Notre-Dame de Santa Cruz à Oran, en Algérie: 19 nouveaux bienheureux! Ces martyrs de notre époque ont été des annonciateurs fidèles de l’Evangile, d’humbles bâtisseurs de paix et des témoins héroïques de la charité chrétienne: un évêque, des prêtres, des religieuses, des religieux et des laïcs. Leur témoignage courageux est source d’espérance pour la communauté catholique algérienne et semence de dialogue pour toute la société. Que cette béatification soit pour tous une incitation à construire ensemble un monde de fraternité et de solidarité. Applaudissons tous ensemble les nouveaux bienheureux.
+
+Je vous salue avec affection, pèlerins d’Italie et de différents pays, notamment les familles, les groupes paroissiaux et les associations.
+
+Cet après-midi, je me rendrai à Sainte- Marie-Majeure pour prier la Vierge et ensuite [j’irai place d’Espagne pour renouveler le traditionnel acte d’hommage et de prière au pied du monument à l’Immaculée](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/12/8/immacolata.html). Je vous demande de vous unir spirituellement à moi dans ce geste, qui exprime la dévotion filiale à notre Mère céleste.
+
+Et je souhaite à tous une bonne fête et un bon chemin d’Avent, guidés par la Vierge Marie. S’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

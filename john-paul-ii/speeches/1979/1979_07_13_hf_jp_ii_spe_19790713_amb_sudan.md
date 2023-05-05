@@ -1,0 +1,33 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AU NOUVEL AMBASSADEUR DU SOUDAN***
+
+***LORS DE LA PRÉSENTATION DES LETTRES DE CRÉANCE\****
+
+*Vendredi, 13 juillet 1979*
+
+*Monsieur l’Ambassadeur*,
+
+CE SONT DES PAROLES de gratitude que je voudrais vous adresser en tout premier lieu, car vous avez choisi, pour inaugurer votre mission, d’illustrer des thèmes auxquels l’Eglise catholique et le Pape en particulier attachent une grande importance, et vous l’avez fait en des termes empreints d’élévation et de noblesse. Je souhaite que votre représentation auprès du Saint-Siège, commencée sous des auspices aussi heureux, se révèle très fructueuse.
+
+Et comment pourrait-il en être autrement? Votre pays ne s’efforce-t-il pas de devenir, au sein d’une Afrique encore soumise à de vives tensions en certaines régions, un lieu de compréhension entre les diverses communautés qui le peuplent, un lieu où des solutions tenant compte le plus possible des droits et des croyances de chacun sont recherchées aux inévitables problèmes qui se posent? Il fait ainsi preuve de modération et de tolérance.
+
+Son Excellence le Général Gaafar Mohammed Nimeiri, qui avait participé, le 22 décembre 1973, à une rencontre très significative autour de mon vénéré prédécesseur Paul VI avec d’autres personnalités africaines, vous envoie maintenant auprès du nouveau Pape. Je vous prie de l’en remercier, et de lui porter mon salut et mes vœux personnels pour ses fonctions à la tête de l’Etat comme à la Présidence actuelle de l’Organisation de l’Unité Africaine. Vous lui direz que je regarde vers le Soudan avec espoir et confiance.
+
+Pour vous, Monsieur l’Ambassadeur, vous découvrirez toujours davantage, par vos fonctions mêmes, le caractère tout à fait specifique du Saint-Siège et de son rôle dans le concert des nations. Vos contacts au Vatican, l’analyse des documents publiés, l’intérêt que vous porterez à la vie de l’Eglise, tout cela vous permettra d’aider votre Gouvernement à mieux comprendre cette réalité. Vous serez amené par conséquent à exposer le contenu et la portée de nos interventions au plan international. Et puis, si le Soudan compte beaucoup de musulmans, nombre de vos compatriotes sont cependant chrétiens. Il y a là, une connaissance approfondie du monde catholique, une base pour une collaboration encore plus efficiente dans la promotion des valeurs spirituelles. Je suis heureux, pour ma part, du témoignage que donnent, au Soudan, les fidèles de l’Eglise, sous l’impulsion des Evêques, des prêtres, des religieux et des religieuses, autochtones et missionnaires, qui tous n’ont d’autre but que de servir la population.
+
+Mes souhaits les plus fervents accompagnent donc Votre Excellence au seuil de sa mission. Je prie le Dieu Tout-Puissant de les exaucer, afin que les années à venir voient de nouveaux progrès dans l’entente mutuelle et la promotion commune des idéaux supérieurs, pour un plus grand bien de l’humanité.
+
+* * *
+
+\*AAS 71 (1979), p.1353-1354.
+
+*Insegnamenti di Giovanni Paolo II*, vol. II, 2 pp. 46-47.
+
+*L’Attività della Santa Sede* 1979 pp. 496-497.
+
+*L'Osservatore Romano* 14.7.1979 p.1.
+
+*L'Osservatore Romano. Edition hebdomadaire en langue française* n.30 p.7.
+
+© Copyright 1979 - Libreria Editrice Vaticana

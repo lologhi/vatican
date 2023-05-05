@@ -1,0 +1,19 @@
+[VISITE PASTORALE À AREZZO, LA VERNA ET SANSEPOLCRO \
+\
+(13 MAI 2012)](/content/benedict-xvi/fr/travels/2012/index_arezzo.html)
+
+***SALUT DU PAPE BENOÎT XVI***
+
+***DU BALCON DE L'ÉVÊCHÉ D'AREZZO***
+
+*Dimanche 13 mai 2012*
+
+*Chers amis,*
+
+Merci de tout cœur pour cette très belle présentation de votre grande culture de la Renaissance qui a réellement touché mon cœur. Quiconque est capable de rendre présente de façon si parfaite la culture du passé est également capable d’ouvrir la culture à l’avenir car il connaît l’homme, il aime l’homme, dont la très grande dignité est non seulement d’être homme, mais image de Dieu. Et cette dignité de l’homme crée pour nous des obligations, mais nous réconforte et nous encourage également: si nous sommes réellement image de Dieu, nous sommes aussi capables d’aller de l’avant et de surmonter les problèmes du présent et d’ouvrir des chemins au nouvel avenir.
+
+Merci de tout cœur pour tout cela! Que le Seigneur vous bénisse!
+
+*(Bénédiction)*
+
+Merci, ces sons sont pour moi inoubliables!

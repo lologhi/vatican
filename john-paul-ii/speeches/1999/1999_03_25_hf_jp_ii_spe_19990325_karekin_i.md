@@ -1,0 +1,23 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***À SA SAINTETÉ KARÉKINE Ier,***
+
+***PATRIARCHE SUPRÊME***
+
+***ET CATHOLICOS DE TOUS LES ARMÉNIENS***
+
+*Jeudi 25 mars 1999*
+
+«Bénis le Seigneur, ô mon âme,
+
+Que tout mon cœur bénisse son saint nom!» ( *Ps* 103, 1-2).
+
+Oui, je bénis le Seigneur qui nous donne ce moment de grâce et de rencontre fraternelle. C'est une grande joie de pouvoir accueillir en ces jours Votre Sainteté, ainsi que Sa Béatitude Monseigneur Torkom Manoogian et toutes les personnalités éminentes qui vous accompagnent.
+
+Je me réjouis de la présence dans les Musées du Vatican d'une impressionnante exposition sur l'histoire et la culture arméniennes. Nous pouvons y admirer un patrimoine tout imprégné de la foi chrétienne! Grâce à sa fidélité à ses racines et à sa ténacité dans l'adversité, le peuple arménien a su faire de ses multiples souffrances une source de créativité et de dynamisme. Selon la tradition, l'Eglise arménienne a reçu la foi des Apôtres Thaddée et Barthélemy. Mais c'est grâce à l'activité missionnaire de saint Grégoire l'Illuminateur que l'Evangile s'est répandu chez le peuple arménien au tout début du IVème siècle. Depuis ces temps anciens, la foi chrétienne n'a jamais cessé d'éclairer et d'inspirer le peuple arménien dans ses convictions profondes et dans sa vie quotidienne.
+
+Les chrétiens vont bientôt célébrer le grand mystère de la passion, de la mort et de la résurrection du Christ. «Si nous sommes morts avec le Christ, nous croyons que nous vivons aussi avec lui, sachant que le Christ une fois ressuscité des morts ne meurt plus, que la mort n'exerce plus de pouvoir sur lui» ( *Rm* 6, 8-9). Nous allons chanter et célébrer le mystère de notre rédemption. Notre foi en Jésus-Christ est le fondement de notre vie, de notre mission et des liens de communion fraternelle entre nos Eglises. Je salue avec satisfaction les progrès réalisés dans notre commune recherche de l'unité dans le Christ, le Verbe de Dieu fait chair; ils sont les fruits de nos relations œcuméniques et de nos dialogues théologiques. Les divisions regrettables du passé ne devraient plus continuer à influencer de façon négative la vie et le témoignage de nos Eglises. Le grand Jubilé de l'An 2000 et le dix-septième centenaire de la fondation de l'Eglise arménienne nous invitent avec insistance à un témoignage commun de notre foi en Jésus-Christ.
+
+L'Eglise catholique et l'Eglise arménienne ont développé de profondes relations, notamment depuis le Concile Vatican II. D'heureuses rencontres ont eu lieu depuis ce mémorable jour de 1971 où le Catholicos Vasken Ier et le Pape Paul VI s'embrassèrent dans un geste plein d'amitié fraternelle. Je tiens aussi à remercier tout spécialement Votre Sainteté pour ce qu'Elle a accompli et ce qu'Elle accomplit encore pour que se réalise l'unité des chrétiens. Dans cet esprit qui nous anime, il faut souhaiter que, partout où des fidèles catholiques et arméniens vivent ensemble, ils prolongent ces gestes fraternels par des initiatives soutenues dans les différents domaines du service des hommes. Puissions-nous ne pas négliger les moindres occasions d'approfondir et d'élargir notre collaboration concrète dans cette unique mission que le Christ nous a confiée!
+
+Sainteté, en me réjouissant vivement de l'invitation à me rendre en Arménie, qui m'a aussi été faite par le Président de la République, je vous remercie de m'avoir fait part de votre désir de me recevoir comme hôte dans votre patriarcat d'Etchmiadzine, pour renforcer nos liens et affermir l'unité entre les chrétiens. Je prie le Seigneur pour qu'il me permette d'accomplir cette visite. En vous remerciant d'avoir effectué ce voyage à Rome, expression hautement symbolique de la fraternité chrétienne, je vous souhaite une bonne santé, pour que vous puissiez servir longtemps votre Eglise. Je demande à l'Esprit Saint de nous assister pour que nous soyons toujours des serviteurs des hommes et pour que nous marchions dans la voie de l'unité, à laquelle le Christ nous invite. Je prie le Seigneur de bénir l'Eglise arménienne, ses pasteurs et ses fidèles. Je demande à la Vierge Marie, dont le nom contient tous les mystères du salut, comme le disait saint Grégoire l'Illuminateur, d'accompagner vos communautés de sa tendresse maternelle. Que le Seigneur vous découvre son visage et vous garde dans la paix!

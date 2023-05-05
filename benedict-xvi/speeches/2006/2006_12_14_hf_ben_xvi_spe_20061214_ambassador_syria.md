@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À**S.E. M. MAKRAM OBEID***
+
+***NOUVEL AMBASSADEUR DE SYRIE***
+
+***PRÈS LE SAINT-SIÈGE\****
+
+*Salle du Consistoire*
+
+*Jeudi 14 décembre 2006*
+
+*Monsieur l'Ambassadeur,*
+
+Je suis heureux de vous accueillir au Vatican et d'accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République arabe de Syrie près le Saint-Siège. Je vous remercie pour vos paroles et pour les salutations que vous me transmettez de la part de votre Président, M. Bachar Al Assad. Je vous prie de l'assurer de mes prières constantes pour le bien-être et la prospérité de votre nation.
+
+Comme vous l'avez indiqué, depuis les temps anciens, la Syrie a connu une grande floraison de civilisations et de religions. Votre capitale, Damas, est chère aux chrétiens comme le lieu du baptême de saint Paul, à la suite de la spectaculaire expérience de sa conversion au cours de son voyage à cet endroit. Et de nombreux grands saints ont conduit des vies de sainteté exemplaire sur le sol syrien. Depuis de nombreux siècles désormais, des relations harmonieuses existent entre les communautés chrétiennes et musulmanes dans votre pays. La Syrie occupe donc une position unique pour offrir au monde un exemple de coexistence pacifique et de tolérance entre les fidèles de différentes religions. A cet égard, je vous assure du soutien du Saint-Siège pour les efforts que votre gouvernement a accomplis dans le pays et à l'étranger pour promouvoir le dialogue entre les religions et les cultures. Comme j'ai eu l'occasion de le réaffirmer récemment, "tous les hommes sont profondément solidaires et \[il faut\] les inviter à mettre en valeur leurs différences historiques et culturelles non pour s'affronter mais pour se respecter mutuellement" ( *[Discours au Corps diplomatique](/content/benedict-xvi/fr/speeches/2006/november/documents/hf_ben-xvi_spe_20061128_diplomatic-corps.html)*, Ankara, 28 novembre 2006).
+
+Vous avez évoqué la préoccupation de votre gouvernement à l'égard de l'annexion du plateau du Golan par Israël en 1967. Avec une profonde peine dans le cœur, je note qu'un grand nombre de contentieux territoriaux et d'autres natures ont conduit récemment à des conflits armés et menacent la paix et la stabilité de tout le Moyen-Orient. J'ai exhorté à plusieurs reprises à la cessation de la violence au Liban, en Terre Sainte et en Irak. Le monde assiste avec une grande tristesse à la spirale de morts et de destruction, tandis que des personnes innocentes continuent de souffrir et que des civils sont enlevés ou assassinés. Comme bon nombre d'observateurs neutres, le Saint-Siège considère que des solutions sont possibles dans le cadre du droit international, à travers la mise en œuvre des résolutions appropriées des Nations unies.  A cet égard, j'ai fréquemment exhorté à soutenir les diverses nations du Moyen-Orient dans leurs aspirations en vue de vivre en paix à l'intérieur de frontières sûres et reconnues au niveau international.
+
+Comme vous le savez, l'Eglise rejette avec vigueur la guerre comme moyen de résoudre les conflits internationaux, et elle a souvent souligné que celle-ci ne conduit qu'à de nouveaux conflits encore plus complexes. Malheureusement, la situation actuelle au Moyen-Orient montre avec évidence que c'est effectivement le cas. En particulier, le fléau du terrorisme accroît la peur et l'insécurité ressenties par de si nombreuses personnes dans la région aujourd'hui (cf. *[Message pour la Journée mondiale  de  la  Paix  2006](/content/benedict-xvi/fr/messages/peace/documents/hf_ben-xvi_mes_20051213_xxxix-world-day-peace.html)*, n. 9) et à cet égard, je suis heureux de noter vos paroles à propos de l'engagement du gouvernement syrien en vue de combattre cette menace croissante contre la paix et la stabilité. Le monde se tourne en particulier vers les pays ayant une influence importante au Moyen-Orient dans l'attente confiante de signes de progrès en vue de la résolution de ces conflits de longue date.
+
+La communauté catholique de Syrie, comme vous le savez, désire jouer son rôle dans la vie nationale, en coopération avec les chrétiens des différentes Eglises orientales qui y sont représentées. Votre pays constitue certainement un terrain fertile pour les relations œcuméniques entre les disciples du Christ et je voudrais assurer de l'engagement constant de l'Eglise catholique en vue de cette tâche importante. J'ai pu d'ailleurs récemment le faire publiquement, lorsque j'ai eu la joie de rendre visite au Patriarche œcuménique au Phanar; ensemble, nous avons signé une [Déclaration commune](/content/benedict-xvi/fr/speeches/2006/november/documents/hf_ben-xvi_spe_20061130_dichiarazione-comune.html) exprimant l'engagement des Eglises catholique et orthodoxe en vue d'œuvrer de toutes les façons possibles à l'objectif de la communion pleine et visible. J'apprécie en particulier la récente législation mise en place par le gouvernement syrien en vue de reconnaître le statut juridique des Eglises catholiques présentes dans votre pays, conformément aux normes du droit canonique. Cette étape laisse espérer un avenir de compréhension réciproque croissante entre les membres des différentes Eglises et des différentes religions en Syrie. De plus, elle jette les bases d'une coopération croissante entre l'Eglise et le gouvernement, qui devrait faciliter la recherche d'une solution des différends, telles que la question des biens de l'Eglise confisqués par l'Etat. Pouvoir discuter de ces questions de façon ouverte, honnête et dans le respect réciproque est un signe de réelle maturité dans les relations.
+
+Votre Excellence, je suis certain que la noble mission que vous commencez aujourd'hui consolidera ces bonnes relations entre la République arabe syrienne et le Saint-Siège. En vous offrant mes meilleurs vœux pour le succès de votre mission, je voudrais vous assurer que les divers bureaux de la Curie romaine seront toujours heureux de vous apporter une assistance et un soutien dans l'accomplissement de votre mission. Sur vous, sur votre famille et sur tout le peuple de Syrie, j'invoque cordialement une abondance de Bénédictions de Dieu.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* 2007 n.4 p.9, 10.
+
+© Copyright 2006 - Libreria Editrice Vaticana

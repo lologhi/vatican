@@ -1,0 +1,35 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 10 octobre 2021*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/10/10/angelus.html)**\]
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+La liturgie d’aujourd’hui nous propose la rencontre entre Jésus et un homme qui «avait de grands biens» (Mc 10, 22) et qui est entré dans l’histoire comme «le jeune homme riche» (cf. Mt 19, 20-22). Nous ne connaissons pas son nom. L’Evangile de Marc, en réalité, parle de lui comme «un tel», sans en mentionner l’âge et le nom, comme pour suggérer que dans cet homme, nous pouvons tous nous voir, comme dans un miroir. Sa rencontre avec Jésus, en effet, nous permet de faire un test sur la foi. En lisant cela, je fais un test sur ma foi.
+
+Cet homme commence par une question: «Que dois-je faire pour avoir la vie éternelle? (v. 17). Notons les verbes qu’il utilise: devoir faire — pour avoir. Voici sa religiosité: un devoir, un faire pour avoir; «Je fais quelque chose pour obtenir ce dont j’ai besoin». Mais c’est une relation commerciale avec Dieu, un do ut des. La foi, en revanche, n’est pas un rite froid et mécanique, un «je dois — je fais — j’obtiens». C’est une question de liberté et d’amour. La foi est une question de liberté, est une question d’amour. Voilà un premier test: qu’est-ce que la foi pour moi? S’il s’agit principalement d’un devoir ou d’une monnaie d’échange, nous nous trompons, car le salut est un don et non un devoir, il est gratuit et ne peut pas s’acheter. La première chose à faire est de se débarrasser d’une foi commerciale et mécanique, qui insinue la fausse image d’un Dieu comptable, d’un Dieu contrôleur, pas d’un père. Et bien souvent, dans la vie, on peut vivre ce rapport de foi «commerciale»: je fais ça pour que Dieu me donne ça.
+
+Jésus — deuxième passage — aide celui-là en lui offrant le vrai visage de Dieu. En effet — dit le texte — «il fixa sur lui son regard» et «l’aima» (v. 21): voilà qui est Dieu! C’est de là que la foi naît et renaît: non d’un devoir, non pas d’une chose à faire ou à payer, mais d’un regard d’amour à accueillir. Ainsi, la vie chrétienne devient belle, si elle ne se fonde pas sur nos capacités et nos projets, mais se fonde sur le regard de Dieu. Ta foi, ma foi est-elle fatiguée? Tu veux la fortifier? Cherche le regard de Dieu: mets-toi en adoration, laisse-toi pardonner dans la confession, place-toi devant le Crucifix. Bref, laisse-toi aimer par Lui. Voilà le commencement de la foi: se laisser aimer par Lui, qui est père.
+
+Après la question et le regard, il y a — troisième et dernier passage — une invitation de Jésus, qui dit: «Une seule chose te manque». Que manquait-il à cet homme riche? Le don, la gratuité: «Va, ce que tu as, vends-le et donne-le aux pauvres» (v. 21). C’est peut-être ce qui nous manque aussi. Souvent, nous faisons le minimum indispensable, alors que Jésus nous invite au maximum possible. Combien de fois nous contentons-nous  des devoirs — les préceptes, quelques prières et tant de choses comme ça — alors que Dieu, qui nous donne la vie, nous demande des élans de vie! Dans l’Evangile d’aujourd’hui, nous voyons clairement ce passage du devoir au don; Jésus commence par rappeler les commandements: «Ne tue pas, ne commets pas d'adultère, ne vole pas…» et ainsi de suite (v. 19), et arrive à la proposition positive: «Va, vends, donne, suis-moi!» (cf. v. 21). La foi ne peut se limiter aux non, car la vie chrétienne est un oui, un oui d’amour.
+
+Chers frères et sœurs, une foi sans don, une foi sans gratuité est une foi incomplète, c’est une foi faible, une foi malade. Nous pourrions la comparer à un aliment riche et nourrissant qui manque cependant de saveur, ou à un match plus ou moins bien joué mais sans but: non, ça ne marche pas, il n’y a pas de «sel». Une foi sans don, sans gratuité, sans œuvres de charité finit par nous rendre tristes: comme cet homme qui, bien que regardé avec amour par Jésus lui-même, rentra chez lui «attristé» et «assombri» (v. 22) . Aujourd’hui, nous pouvons nous demander: «Où en est ma foi? Est-ce que je la sens comme une chose mécanique, comme une relation de devoir ou d’intérêt avec Dieu? Est-ce que je me souviens de la nourrir en laissant Jésus me regarder et m’aimer?». Se laisser regarder et aimer par Jésus; laisser Jésus nous regarder, nous aimer. «Et, attiré par lui, est-ce que je réponds avec gratuité, avec générosité, de tout mon cœur?».
+
+Que la Vierge Marie, qui a dit un oui total à Dieu, un oui sans mais — il n’est pas facile de dire oui sans mais: la Vierge l’a fait, un oui sans mais — nous fasse savourer la beauté de faire de la vie un don.
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***A l'issue de l’Angélus***
+
+Chers frères et sœurs, aujourd’hui aussi, j’ai la joie d’annoncer la proclamation de nouveaux bienheureux. Hier, à Naples, Maria Lorenza Longo, épouse et mère de famille du XVIe siècle, a été béatifiée. Veuve, elle fonda à Naples l’hôpital des incurables et des clarisses capucines. Femme d’une grande foi et d’une intense vie de prière, elle se prodigua pour les besoins des pauvres et des souffrants. Et aujourd’hui, à Tropea, en Calabre, a été béatifié le père Francesco Mottola, fondateur des Oblats et des Oblates du Sacré-Cœur, décédé en 1969. Pasteur zélé et annonceur inlassable de l’Evangile, il fut un témoin exemplaire d’un sacerdoce vécu dans la charité et dans  la contemplation. Un applaudissement pour  ces nouveaux bienheureux!
+
+Aujourd’hui, à l’occasion de la Journée mondiale de la santé mentale, je voudrais rappeler nos frères et sœurs souffrant de troubles mentaux et aussi les victimes, souvent jeunes, de suicide. Prions pour eux et leurs familles, afin qu’ils ne soient pas laissés seuls ni discriminés, mais accueillis et soutenus.
+
+Je vous salue tous, Romains et pèlerins de différents pays: familles, groupes, associations et fidèles individuels. Je salue en particulier les fidèles de Bussolengo et ceux de Novoli; les confirmands de la paroisse de la Résurrection à Rome et la coopérative du soleil de Corbetta. Je vois aussi qu’elles sont de Montella, et je les salue… A l’effigie de sœur Bernadette. Nous prions pour la canonisation rapide.
+
+Je souhaite à tous un bon dimanche. Et s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

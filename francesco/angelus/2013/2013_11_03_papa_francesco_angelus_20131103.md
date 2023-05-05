@@ -1,0 +1,33 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche**3 novembre 2013*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_QA2BZRB9)**
+
+*Chers frères et sœurs, bonjour !*
+
+La page de l’Évangile de Luc de ce dimanche nous montre Jésus qui, sur son chemin vers Jérusalem, entre dans la ville de Jéricho. C’est la dernière étape d’un voyage qui résume le sens de toute la vie de Jésus, consacrée à chercher et sauver les brebis perdues de la maison d’Israël. Mais plus le chemin s’approche de la destination finale, plus un cercle d’hostilité se resserre autour de Jésus.
+
+Pourtant à Jéricho a lieu l’un des événements les plus joyeux racontés par saint Luc : la conversion de Zachée. Cet homme est une brebis perdue, il est méprisé et c’est un « excommunié », parce qu’il est un publicain, ou plutôt, il est le chef des publicains de la ville, ami des occupants romains détestés, c’est un voleur et un exploiteur.
+
+Empêché de s’approcher de Jésus, probablement en raison de sa mauvaise réputation, et étant de petite stature, Zachée grimpe sur un arbre, pour pouvoir voir le Maître qui passe. Ce geste extérieur, un peu ridicule, exprime l’acte intérieur de l’homme qui cherche à se mettre au-dessus de la foule pour avoir un contact avec Jésus. Zachée lui-même ne connaît pas le sens profond de son geste, il ne sait pas pourquoi il fait cela, mais il le fait ; il n’ose pas non plus espérer que la distance qui le sépare du Seigneur puisse être comblée ; il se résigne à le voir seulement de passage. Mais quand Jésus arrive près de l’arbre, il l’appelle par son nom : « Zachée, descends vite, car il me faut aujourd'hui demeurer chez toi » ( *Lc* 19, 5). Cet homme petit de stature, rejeté par tous, et éloigné de Jésus, est comme perdu dans l’anonymat ; mais Jésus l’appelle, et ce nom « Zachée », dans la langue de ce temps, a une belle signification, pleine d’allusions : « Zachée », en effet, veut dire : « Dieu se souvient ».
+
+Et Jésus se rend dans la maison de Zachée, suscitant les critiques de toute la population de Jéricho qui disait (parce qu’en ce temps-là aussi on médisait beaucoup !) : — Mais comment ? Avec tous les gens de bien qu’il y a dans la ville, il va demeurer justement chez ce publicain ? Oui, parce qu’il était perdu ; et Jésus dit : « Aujourd’hui le salut est arrivé pour cette maison, parce que lui aussi est un fils d’Abraham » ( *Lc* 19, 9). La joie est désormais entrée dans la maison de Zachée, la paix est entrée, le salut est entré, Jésus est entré.
+
+Il n’y a pas de profession ou de condition sociale, il n’y a pas de péché ou de crime d’aucune sorte qui puisse effacer un seul de ses enfants de la mémoire et du cœur de Dieu. « Dieu se souvient », toujours, il n’oublie aucun de ceux qu’il a créés ; Il est un père toujours en attente vigilante et aimante, de voir renaître dans le cœur de son fils le désir de revenir à la maison. Et quand il reconnaît ce désir, même seulement évoqué, et très souvent, presque inconscient, il se rend immédiatement présent, et par son pardon il rend le chemin de conversion et de retour plus facile. Tournons aujourd’hui notre regard vers Zachée sur l’arbre : son geste est ridicule, mais c’est un geste de salut. Et je te dis, à toi : si tu as un poids sur la conscience, si tu as honte de tant de choses que tu as commises, arrête-toi un peu, n’aie pas peur. Pense qu’il y a quelqu’un qui t’attend parce qu’il n’a jamais cessé de se souvenir de toi ; et ce quelqu’un c’est ton père, c’est Dieu qui t’attend ! Grimpe, comme Zachée l’a fait, monte sur l’arbre de l’envie d’être pardonné ; je t’assure que tu ne seras pas déçu. Jésus est miséricordieux et il ne se lasse jamais de pardonner! Souviens-t’en bien, Jésus est comme cela !
+
+Frères et sœurs, laissons Jésus nous appeler nous aussi par notre nom ! Au plus profond de notre cœur, écoutons sa voix qui nous dit : « Aujourd’hui je dois demeurer chez toi », c’est-à-dire dans ton cœur, dans ta vie. Et accueillons-le avec joie : lui, peut nous changer, il peut transformer notre cœur de pierre en cœur de chair, il peut nous libérer de l’égoïsme et faire de notre vie un don d’amour. Jésus peut le faire : laisse Jésus tourner son regard vers toi !
+
+* * *
+
+*Chers frères et sœurs*,
+
+Je salue avec affection tous les Romains et les pèlerins présents, en particulier les familles, les paroisses, et les groupes de nombreux pays du monde.
+
+Je salue les fidèles venus du Liban, et ceux de la ville de Madrid.
+
+Je vous souhaite à tous un bon dimanche, et un bon déjeuner ! Au revoir !

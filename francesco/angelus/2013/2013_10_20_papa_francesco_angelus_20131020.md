@@ -1,0 +1,33 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche**20 octobre 2013*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_57HGFEW5)**
+
+*Chers frères et sœurs,*
+
+Dans l’Évangile d’aujourd’hui, Jésus raconte une parabole sur la nécessité de toujours prier, sans se lasser. Le personnage central est une veuve qui, à force de supplier un juge malhonnête, réussit à ce qu’il lui rende justice. Et Jésus conclut : si la veuve a réussi à convaincre ce juge, croyez-vous que Dieu ne nous écoute pas, nous, si nous le prions avec insistance ? L’expression de Jésus est très forte : « Dieu ne fera-t-il pas justice à ses élus qui crient vers lui jour et nuit ? » ( *Lc* 18, 7).
+
+Crier vers Dieu « jour et nuit » ! Cette image de la prière nous frappe. Mais demandons-nous : pourquoi Dieu veut-il cela ? Est-ce qu’il ne connaît pas déjà nos besoins ? Quel sens cela a-t-il d’« insister » auprès de Dieu ?
+
+Voilà la bonne question, qui nous fait approfondir un aspect très important de la foi : Dieu nous invite à prier avec insistance, non parce qu’il ne sait pas de quoi nous avons besoin, ou parce qu’il ne nous écoute pas. Au contraire, Il écoute toujours et il sait tout de nous, avec amour. Sur notre chemin quotidien, en particulier dans les difficultés, dans la lutte contre le mal en dehors et au-dedans de nous, le Seigneur n’est pas loin, Il est à nos côtés ; nous luttons avec Lui à nos côtés, et notre arme est justement la prière, qui nous fait sentir sa présence à nos côtés, sa miséricorde, également son aide. Mais la lutte contre le mal est dure et longue, elle exige patience et résistance — comme Moïse qui devait garder les bras levés pour faire vaincre son peuple (cf. *Ex* 17, 8-13). C’est ainsi : il y a un combat à mener chaque jour, mais Dieu est notre allié, la foi en Lui est notre force, et la prière est l’expression de cette foi. C’est pourquoi Jésus nous assure de la victoire, mais à la fin, il se demande : « Mais le Fils de l’Homme, quand il viendra, trouvera-t-il la foi sur terre ? » ( *Lc* 18, 8). Si la foi s’éteint, la prière s’éteint, et nous marchons dans le noir, nous nous égarons sur le chemin de la vie.
+
+Apprenons donc de la veuve de l’Évangile à prier toujours, sans nous lasser. Elle était bien cette veuve ! Elle savait lutter pour ses enfants ! Et je pense aux si nombreuses femmes qui luttent pour leur famille, qui prient, qui ne se lassent jamais. Souvenons-nous tous aujourd’hui de ces femmes, dont le comportement nous donne un vrai témoignage de foi, de courage, un modèle de prière. Souvenons-nous d’elles ! Prier toujours, mais pas pour convaincre le Seigneur à force de paroles ! Lui sait mieux que nous de quoi nous avons besoin ! La prière persévérante est plutôt l’expression de la foi en un Dieu qui nous appelle à combattre avec Lui, chaque jour, à chaque instant, pour vaincre le mal par le bien.
+
+* * *
+
+**À l'issue de l'Angélus :**
+
+Chers frères et sœurs !
+
+C’est aujourd’hui la Journée mondiale des missions. Quelle est la mission de l’Église ? Diffuser dans le monde la flamme de la foi, que Jésus a allumée dans le monde : la foi en Dieu qui est Père, Amour, Miséricorde. La méthode de la mission chrétienne n’est pas le prosélytisme, mais celle de la flamme partagée qui réchauffe l’âme. Je remercie tous ceux qui, à travers la prière et l’aide concrète, soutiennent l’œuvre missionnaire, en particulier la sollicitude de l’Évêque de Rome pour la diffusion de l’Évangile. En ce jour, nous sommes proches de tous les missionnaires, hommes et femmes, qui travaillent beaucoup sans faire de bruit, et donnent leur vie. Comme l’italienne Afra Martinelli, qui a travaillé pendant de nombreuses années au Nigeria : elle a été tuée il y a quelques jours, à l’occasion d’un vol ; tous l’ont pleurée, chrétiens et musulmans. Ils l’aimaient. Elle a annoncé l’Évangile à travers sa vie, à travers l’œuvre qu’elle a réalisée, un centre d’éducation. Et c’est ainsi qu’elle a diffusé la flamme de la foi, qu’elle a combattu le bon combat ! Pensons à notre sœur et saluons-la tous par des applaudissements !
+
+Je pense également à Etienne Sándor, qui a été proclamé bienheureux hier à Budapest. C’était un salésien laïc, exemplaire dans son service aux jeunes, à l’aumônerie et dans l’éducation professionnelle. Quand le régime communiste ferma toutes les œuvres catholiques, il affronta les persécutions avec courage, et fut tué à 39 ans. Nous nous unissons à l’action de grâce de la famille salésienne et de l’Église hongroise.
+
+Je désire exprimer ma proximité aux populations des Philippines frappées par un fort séisme, et je vous invite à prier pour ce cher pays, qui récemment a connu diverses catastrophes naturelles.
+
+Bon dimanche ! Au revoir et bon repas !

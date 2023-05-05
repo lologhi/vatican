@@ -1,0 +1,7 @@
+***MESSAGE-RADIO******DU PAPE JEAN XXIII******AUX POPULATIONS FRANÇAISES***
+
+***VICTIMES DE L'ÉCROULEMENT DE LA DIGUE DE FRÉJUS***
+
+*Vendredi**4 décembre 1959*
+
+Ces derniers jours Nous ont apporté la triste nouvelle des nombreux désastres causés par la vague de mauvais temps qui déferle actuellement sur l'Europe. La France vient d'être atteinte à son tour par une catastrophe d'une ampleur exceptionnelle : la rupture du barrage de Malpasset, dont les eaux ont semé la mort et la ruine sur de vastes étendues. Notre compassion paternelle va de façon particulière aux populations de Fréjus, touchées de façon si subite et si tragique par le fléau. Bien des souvenirs, en effet, Nous attachent à ce beau diocèse, auquel Nous avons donné naguère comme coadjuteur le premier évêque français de Notre pontificat. Nous faisons monter vers Dieu de ferventes prières, non seulement pour les trop nombreuses victimes, mais aussi pour toutes les familles frappées dans leurs affections, pour celles qui se trouvent aujourd'hui sans toit, incertaines du lendemain. Nous invitons Nos fils de France à faire de même et aussi à se montrer dignes, selon leurs moyens, de la générosité traditionnelle de leur grand pays, toujours proche de Notre cœur, dans les jours heureux comme au temps de l'adversité.

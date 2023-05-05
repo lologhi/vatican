@@ -1,0 +1,33 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 5 novembre 2017*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/11/5/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+L’Evangile d’aujourd’hui (cf. Mt 23, 1-12) se déroule les derniers jours de la vie de Jésus, à Jérusalem; des jours chargés d’attentes et également de tensions. D’un côté, Jésus adresse *des critiques sévères* aux scribes et aux pharisiens et, de l’autre, il laisse d’importantes *consignes aux chrétiens* de tous les temps, et donc à nous aussi.
+
+Il dit à la foule: «Sur la chaire de Moïse se sont assis les scribes et les pharisiens: faites donc et observez tout ce qu’ils pourront vous dire». Cela signifie qu’ils ont l’autorité d’enseigner ce qui est conforme à la Loi de Dieu. Cependant, immédiatement après, Jésus ajoute: «Mais ne vous réglez pas sur leurs actes: car ils disent et ne font pas» (v. 2-3). Frères et sœurs, un défaut courant chez tous ceux qui ont une autorité, qu’elle soit civile ou ecclésiastique, est d’exiger des autres des choses, même justes, mais qu’eux-mêmes ne mettent pas en pratique en première personne. Ils mènent une double vie. Jésus dit: «Ils lient de pesants fardeaux et les imposent aux épaules des gens, mais eux-mêmes se refusent à les remuer du doigt» (v. 4). Cette attitude est un mauvais exercice de l’autorité, qui devrait au contraire tirer sa première force précisément du bon exemple. L’autorité naît du bon exemple, pour aider les autres à pratiquer ce qui est juste et nécessaire, en les soutenant dans les épreuves que l’on rencontre sur la voie du bien. L’autorité est une aide, mais si elle est mal exercée, elle devient oppressive, elle ne laisse pas croître les personnes et crée un climat de méfiance et d’hostilité et conduit également à la corruption.
+
+Jésus dénonce ouvertement certains comportements négatifs des scribes et de certains pharisiens: «Ils aiment à occuper le premier divan dans les festins et les premiers sièges dans les synagogues, à recevoir les salutations sur les places publiques» (vv. 6-7). C’est une tentation qui correspond à l’orgueil humain et qu’il n’est pas toujours facile de vaincre. C’est l’attitude de vivre uniquement pour l’apparence.
+
+Puis Jésus donne *les consignes à ses disciples*: «Pour vous, ne vous faites pas appeler “rabbi”: car vous n’avez qu’un Maître, et tous vous êtes des frères \[...\] Ne vous faites pas non plus appeler “guides”: car vous n’avez qu’un guide, le Christ. Le plus grand parmi vous, sera votre serviteur» (vv. 8-11).
+
+Nous, disciples de Jésus, ne devons pas chercher des titres d’honneur, d’autorité ou de suprématie. Je vous dis que personnellement, je souffre de voir des personnes qui vivent psychologiquement en courant après la vanité des distinctions. Nous, disciples de Jésus, ne devons pas le faire parce qu’entre nous, il doit y avoir une attitude simple et fraternelle. Nous sommes tous frères et nous ne devons en aucune façon dominer les autres et les regarder de haut. Non. Nous sommes tous frères. Si nous avons reçu des qualités du Père céleste, nous devons les mettre au service de nos frères, et ne pas en profiter pour notre satisfaction et notre intérêt personnel. Nous ne devons pas nous considérer supérieurs aux autres; la modestie est essentielle pour une existence qui veut être conforme à l’enseignement de Jésus, qui est doux et humble de cœur et qui est venu non pour être servi, mais pour servir.
+
+Que la Vierge Marie, «humble et plus élevée que toutes les créatures» (Dante, Paradis, XXXIII, 2), nous aide, par son intercession maternelle, à éviter l’orgueil et la vanité, et à être doux et dociles à l’amour qui vient de Dieu, pour le service de nos frères et pour leur joie, qui sera aussi la nôtre.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs, hier, à Indore, en Inde, a été proclamée bienheureuse Rani Maria Vattalil, religieuse de la congrégation des sœurs clarisses franciscaines, tuée pour sa foi chrétienne en 1995. Sœur Vattalil a rendu témoignage au Christ dans l’amour et dans la douceur, et vient s’ajouter à la longue liste des martyrs de notre temps. Que son sacrifice soit semence de foi et de paix, en particulier en terre indienne. Elle était si bonne. On l’appelait la «sœur du sourire».
+
+Je souhaite à tous un bon dimanche. S’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

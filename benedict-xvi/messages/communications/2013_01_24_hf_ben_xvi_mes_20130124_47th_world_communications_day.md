@@ -1,0 +1,57 @@
+***MESSAGE DU PAPE BENOÎT XVI***
+
+***POUR LA 47ème JOURNÉE MONDIALE***
+
+***DES COMMUNICATIONS SOCIALES***
+
+***"Réseaux sociaux : portes de vérité et de foi ; nouveaux espaces pour l’évangélisation"***
+
+\[Dimanche, 12 mai 2013\]
+
+*Chers frères et sœurs,*
+
+À l’approche de
+
+la Journée
+mondiale des Communications sociales de 2013, je voudrais proposer quelques réflexions sur une réalité toujours plus importante concernant la manière dont les personnes communiquent entre elles aujourd'hui. Je voudrais examiner le développement des réseaux sociaux numériques qui contribuent à mettre en évidence une nouvelle « *agora* », un espace public ouvert où les personnes partagent des idées, des informations, des opinions, et où peuvent naître aussi de nouvelles relations et formes de communauté.
+
+Ces espaces, quand ils sont bien valorisés et de manière équilibrée, contribuent à promouvoir des formes de dialogue et de débat qui, si elles sont effectuées avec respect, attention pour la vie privée, responsabilité et dévouement à la vérité, peuvent renforcer les liens d'unité entre les personnes et promouvoir efficacement l'harmonie de la famille humaine. L'échange d'informations peut devenir une réelle communication, les liens peuvent se développer en amitié, les connexions faciliter la communion. Si les réseaux sont appelés à réaliser ce grand potentiel, les personnes qui y participent doivent s'efforcer d'être authentiques, parce que dans ces espaces on ne partage pas seulement des idées et des informations mais en définitive on se communique soi-même.
+
+Le développement des réseaux sociaux exige de l’engagement : les personnes participent à construire des relations et à trouver de l'amitié, dans la recherche de réponses à leurs questions, en se divertissant mais aussi en se stimulant intellectuellement et dans le souci du partage des compétences et des connaissances. En unissant les personnes en fonction de ces besoins fondamentaux, les réseaux font de plus en plus partie du tissu social même. Les réseaux sociaux sont donc alimentés par des aspirations enracinées dans le cœur humain.
+
+La culture des réseaux sociaux et les changements dans les formes et les styles de communication, posent des défis importants à ceux qui veulent parler de vérité et de valeurs. Souvent, comme c'est le cas pour d’autres médias sociaux, la signification et l'efficacité des différentes formes d'expression semblent plus déterminés par leur popularité que par leur importance intrinsèque et leur validité. La popularité est encore fréquemment liée à la célébrité ou à des stratégies de persuasion plutôt qu’à la logique de l'argumentation. Parfois, la voix discrète de la raison peut être dominée par la rumeur des informations excessives et ne parvient pas à éveiller l'attention qui est réservée par contre à qui s'exprime d’une manière plus persuasive. Les médias sociaux ont besoin donc de l'engagement de tous ceux qui sont conscients de l'importance du dialogue, du débat raisonné, de l’argumentation logique ; des personnes qui cherchent à cultiver des formes de discours et d'expression qui font appel aux plus nobles aspirations de ceux qui sont impliqués dans le processus de communication. Le dialogue et le débat peuvent s'épanouir et grandir aussi quand on converse et prend au sérieux ceux qui ont des idées différentes des nôtres. « Étant donné la diversité culturelle, il faut faire en sorte que les personnes, non seulement acceptent l’existence de la culture de l’autre, mais aspirent aussi à s’en enrichir et à lui offrir ce que l’on possède de bien, de vrai et de beau. » *( [Discours à la rencontre avec le monde de la culture,](/content/benedict-xvi/fr/speeches/2010/may/documents/hf_ben-xvi_spe_20100512_incontro-cultura.html)* [Belém, Lisbonne, \
+\
+12 mai 2010](/content/benedict-xvi/fr/speeches/2010/may/documents/hf_ben-xvi_spe_20100512_incontro-cultura.html) *)*
+
+Le défi que les réseaux sociaux doivent affronter est d’être effectivement inclusif : alors ils bénéficieront de la pleine participation des croyants qui souhaitent partager le message de Jésus et les valeurs de la dignité humaine promues dans son enseignement. En fait, les croyants ont de plus en plus ce sentiment que si
+
+la Bonne
+Nouvelle
+n’est pas connue aussi dans l'environnement numérique, elle pourrait être absente de l'expérience d'un grand nombre pour qui cet espace existentiel est important. L'environnement numérique n'est pas un monde parallèle ou purement virtuel, mais fait partie de la réalité quotidienne de nombreuses personnes, en particulier des plus jeunes. Les réseaux sociaux sont le résultat de l'interaction humaine, mais ils donnent à leur tour de nouvelles formes à la dynamique de la communication qui crée des relations : une compréhension approfondie de cet environnement est donc la condition préalable pour y assurer une présence significative.
+
+La capacité d'utiliser les nouveaux langages est requise non pas tant pour être à la mode du temps, mais justement pour permettre à l’infinie richesse de l’Évangile de trouver des formes d'expression qui soient en mesure d'atteindre les esprits et les cœurs de tous. Dans l'environnement numérique la parole écrite est souvent accompagnée d'images et de sons. Une communication efficace, comme les paraboles de Jésus, nécessite l'implication de l'imagination et de la sensibilité émotionnelle de ceux que nous voulons inviter à la rencontre avec le mystère de l'amour de Dieu. En outre, nous savons que la tradition chrétienne a toujours été riche en signes et en symboles : je pense par exemple, à la croix, aux icônes, aux images de
+
+la Vierge Marie
+, à la crèche, aux vitraux et aux peintures des églises. Une partie importante du patrimoine artistique de l'humanité a d’ailleurs été réalisée par des artistes et des musiciens qui ont essayé d'exprimer les vérités de la foi.
+
+L'authenticité des croyants dans les réseaux sociaux est mise en évidence par le partage de la source profonde de leur espérance et de leur joie : la foi en Dieu riche de miséricorde et d'amour révélé en Jésus Christ. Un tel partage consiste non seulement dans l'expression explicite de la foi, mais aussi dans le témoignage, c'est-à-dire dans la façon dont se communiquent « choix, préférences, jugements qui soient profondément cohérents avec l'Évangile, même lorsqu'on n’en parle pas explicitement. » *( [Message pour \*
+*\*
+*la Journée\*
+*mondiale des Communications sociales, 2011](/content/benedict-xvi/fr/messages/communications/documents/hf_ben-xvi_mes_20110124_45th-world-communications-day.html))*. Une manière particulièrement significative de témoigner sera la volonté de se donner soi-même aux autres à travers la disponibilité à s'impliquer avec patience et respect dans leurs questions et leurs doutes, sur le chemin de la recherche de la vérité et du sens de l'existence humaine. L'émergence dans les réseaux sociaux du dialogue autour de la foi et des croyances, confirme l'importance et la pertinence de la religion dans le débat public et social.
+
+Pour ceux qui ont accueilli d’un cœur ouvert le don de la foi, la réponse la plus radicale aux questions de l'homme sur l'amour, la vérité et le sens de la vie – questions qui ne sont en aucune façon absentes dans les réseaux sociaux – se trouve dans la personne de Jésus Christ. Il est naturel que celui qui a la foi désire, avec respect et sensibilité, la partager avec ceux qu'il rencontre dans l'environnement numérique. En définitive, cependant, si notre partage de l'Évangile est capable de donner de bons fruits, c'est toujours grâce à la force de
+
+la Parole
+de Dieu de toucher les cœurs, bien avant tout effort de notre part. La confiance dans la puissance de l'action de Dieu doit toujours dépasser toute sécurité mise dans l'utilisation de moyens humains. Même dans l'environnement numérique, où il est facile que s’élèvent des voix sur un ton trop vif et conflictuel et où parfois le sensationnalisme risque de l'emporter, nous sommes invités à un discernement attentif. Et rappelons-nous à cet égard, que Élie reconnut la voix de Dieu non dans le vent impétueux et fort, ni dans le tremblement de terre ou le feu, mais dans le « murmure d'une brise légère » ( *1 R* 19, 11-12). Nous devons avoir confiance dans le fait que les désirs fondamentaux d’aimer et d’être aimé, de trouver sens et vérité – que Dieu lui-même a mis au cœur de l'être humain – maintiennent également les femmes et les hommes de notre temps toujours et de toute manière ouverts à ce que le Bienheureux Cardinal Newman appelle la « gentille lumière » de la foi.
+
+Les réseaux sociaux, outre qu’instruments d'évangélisation, peuvent être un facteur de développement humain. Par exemple, dans certains contextes géographiques et culturels où les chrétiens se sentent isolés, les réseaux sociaux peuvent renforcer le sentiment de leur unité effective avec la communauté universelle des croyants. Les réseaux facilitent le partage des ressources spirituelles et liturgiques, rendant les personnes capables de prier avec un sens revigoré de proximité avec ceux qui professent la même foi. La participation authentique et interactive aux questions et aux doutes de ceux qui sont loin de la foi doit nous faire ressentir le besoin de nourrir avec la prière et la réflexion notre foi en la présence de Dieu, ainsi que notre charité active : « Quand je parlerais les langues des hommes et des anges, si je n'ai pas la charité, je ne suis plus qu'airain qui sonne ou cymbale qui retentit. » ( *1 Co* 13, 1).
+
+Il existe des réseaux sociaux qui, dans l'environnement numérique, offrent à l'homme d'aujourd'hui des opportunités de prière, de méditation, ou de partage de la parole de Dieu. Mais ces réseaux peuvent aussi ouvrir des portes à d'autres dimensions de la foi. En effet, beaucoup de gens sont en train de découvrir, grâce à un contact au départ en ligne, l'importance de la rencontre directe, des expériences de communauté ou même de pèlerinage, éléments toujours importants dans le cheminement de foi. En nous efforçant de rendre l'Évangile présent dans l'environnement numérique, nous pouvons inviter les personnes à vivre des rencontres de prière ou des célébrations liturgiques dans des lieux concrets tels que des églises ou des chapelles. Il ne devrait pas y avoir manque de cohérence ou d'unité dans l'expression de notre foi et dans notre témoignage évangélique dans la réalité où nous sommes appelés à vivre, qu’elle soit physique ou numérique. Lorsque nous sommes en présence des autres, de toute manière, nous sommes appelés à faire connaître l'amour de Dieu jusqu'aux extrémités de la terre.
+
+Je prie pour que l'Esprit de Dieu vous accompagne et vous éclaire toujours, et de tout cœur je vous bénis tous, afin que vous puissiez être vraiment les hérauts et les témoins de l'Evangile. « Allez dans le monde entier et proclamez l'Évangile à toute créature » ( *Mc* 16, 15)
+
+*Du Vatican, le 24 janvier 2013, fête de saint François*
+
+**BENEDICTUS PP. XVI**
+
+© Copyright 2013 - Libreria Editrice Vaticana

@@ -1,0 +1,35 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*IIIe dimanche de l'Avent 13 décembre 2015*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/12/13/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+Dans l’Evangile d’aujourd’hui, une question est répétée par trois fois: «Que nous faut-il donc faire?» (Lc 3, 10-12-14). Trois catégories de personnes l’adressent à Jean-Baptiste: en premier, la foule en général; en second, les publicains, à savoir les percepteurs d’impôts; et en troisième, certains soldats. Chacun de ces groupes interroge le prophète sur ce qu’il doit faire pour appliquer la conversion qu’il est en train de prêcher. La réponse de Jean à la question de la foule est le partage des biens de première nécessité. C’est-à-dire qu’au premier groupe, la foule, il dit de partager les biens de première nécessité, et parle ainsi: «Que celui qui a deux tuniques partage avec celui qui n’en a pas, et que celui qui a de quoi manger fasse de même». Ensuite, au second groupe, aux percepteurs d’impôts, il dit de ne rien exiger de plus que la somme due (cf. v. 13). Qu’est-ce que cela veut dire? Ne pas accepter de «pots-de-vin», Jean-Baptiste est clair. Et au troisième groupe, aux soldats, il demande de ne rien extorquer à personne mais de se contenter de leurs soldes (cf. v. 14). Ce sont les trois réponses aux trois questions de ces groupes. Trois réponses pour un chemin identique de conversion, qui se manifeste en engagements concrets de justice et de solidarité. C’est la route que Jésus indique dans toute sa prédication: la route de l’amour concret pour le prochain.
+
+De ces admonestations de Jean-Baptiste, nous comprenons quelles étaient les tendances générales de ceux qui à cette époque détenaient le pouvoir, sous diverses formes. Les choses n’ont pas beaucoup changé. Toutefois, aucune catégorie de personnes n’est exclue du parcours de conversion pour obtenir le salut, pas même les publicains considérés pécheurs par définition: même eux ne sont pas exclus du salut. Dieu ne nie à personne la possibilité de se sauver. Il est — pour ainsi dire — soucieux d’user de miséricorde, d’en faire preuve envers tout le monde, et d’accueillir chacun dans la tendre étreinte de la réconciliation et du pardon.
+
+Cette question — *que devons-nous faire?*—, nous la sentons également nôtre. La liturgie d’aujourd’hui nous répète, à travers les paroles de Jean, qu’il faut se convertir, il faut changer de direction et emprunter la route de la justice, de la solidarité, de la sobriété: ce sont les valeurs indispensables d’une existence pleinement humaine et authentiquement chrétienne. *Convertissez-vous!* C’est la synthèse du message de Jean-Baptiste. Et la liturgie de ce troisième dimanche de l’Avent nous aide à redécouvrir une dimension particulière de la conversion: *la joie*. Ceux qui se convertissent et s’approchent du Seigneur ressentent de la joie. Le prophète Sophonie nous dit aujourd’hui: «Pousse des cris de joie, fille de Sion!» en s’adressant à Jérusalem (So 3, 14); et l’apôtre Paul exhorte ainsi les chrétiens de Philippes: «Réjouissez-vous sans cesse dans le Seigneur» (Ph 4, 4). Il faut du courage aujourd’hui pour parler de joie, il faut surtout de la foi! Le monde est assailli par tant de problèmes, l’avenir est marqué d’inconnues et de craintes. Pourtant le chrétien est une personne joyeuse, et sa joie n’est pas quelque chose de superficiel et d’éphémère, mais de profond et de stable, car c’est un don du Seigneur qui remplit la vie. Notre joie dérive de la certitude que «le Seigneur est proche» (Ph 4, 5): il est proche par sa tendresse, par sa miséricorde, par son pardon et son amour.
+
+Que la Vierge Marie nous aide à renforcer notre foi, afin que nous sachions accueillir le Dieu de la joie, le Dieu de la miséricorde, qui veut toujours habiter au milieu de ses enfants. Et que notre mère nous enseigne à partager les larmes de celui qui pleure, pour pouvoir aussi partager le sourire.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+La Conférence sur le climat vient de se conclure à Paris avec l’adoption d’un accord, qualifié d’historique par beaucoup. Son application demandera un engagement profond et un dévouement généreux de la part de chacun. En souhaitant que soit garantie une attention particulière envers les populations les plus vulnérables, j’exhorte la communauté internationale tout entière à poursuivre avec sollicitude le chemin entrepris, sous le signe d’une solidarité qui devienne toujours plus concrète.
+
+Mardi 15 décembre prochain, à Nairobi, débutera la Conférence ministérielle de l’Organisation internationale du commerce. Je m’adresse aux pays qui y participeront, afin que les décisions prises tiennent compte des besoins des pauvres et des personnes les plus vulnérables, de même que des aspirations légitimes des pays les moins développés et du bien commun de la famille humaine tout entière.
+
+Dans toutes les cathédrales du monde s’ouvrent les portes saintes afin que le jubilé de la miséricorde puisse être vécu pleinement dans les Eglises particulières. Je souhaite que ce moment fort encourage de nombreuses personnes à se faire instrument de la tendresse de Dieu. Comme expression des œuvres de miséricorde, les «portes de la miséricorde» sont également ouvertes dans les lieux de difficultés et d’exclusion. A cet égard, je salue les détenus des prisons du monde entier, spécialement ceux de la prison de Padoue, qui aujourd’hui sont unis à nous spirituellement en ce moment pour prier, et je les remercie pour le don du concert.
+
+Je vous salue tous, pèlerins venus de Rome, d’Italie et de tant de parties du monde. Je salue également les membres du Mouvement des Focolari avec des amis de certaines communautés islamiques. Allez de l’avant! Allez de l’avant avec courage sur la voie du dialogue et de la fraternité, car nous sommes tous fils de Dieu!
+
+Je vous souhaite à tous un bon dimanche et un bon déjeuner. N’oubliez pas s’il vous plaît, de prier pour moi. Au revoir!

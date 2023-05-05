@@ -1,0 +1,39 @@
+SOLENNITÉ DE LA TOUSSAINT
+
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Samedi 1er novembre 2014*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.html/content/vaticanevents/fr/2014/11/1/angelus1novembre2014isolennitdituttiisantii)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour !*
+
+Les deux premiers jours du mois de novembre constituent pour nous tous un moment intense de foi, de prière et de réflexion sur les « choses ultimes » de la vie. En effet, en célébrant tous les saints et en commémorant tous les fidèles défunts, l’Église en pèlerinage sur terre vit et exprime dans la liturgie le lien spirituel qui l’unit à l’Église du ciel. Aujourd’hui, nous élevons notre louange à Dieu pour la foule innombrable de saints et de saintes de tous les temps : des hommes et des femmes communs, simples, parfois les « derniers » pour le monde, mais les « premiers » pour Dieu. Dans le même temps, nous rappelons déjà nos chers défunts en visitant les cimetières : c’est un motif de grand réconfort de penser qu’ils sont en compagnie de la Vierge Marie, des apôtres, des martyrs et de tous les saints et les saintes du paradis !
+
+La solennité d’aujourd’hui nous aide ainsi à considérer une vérité fondamentale de la foi chrétienne, que nous professons dans le « Credo » : la *communion des saints*. Qu’est-ce que cela signifie : la *communion des saints*? C’est la communion qui naît de la foi et unit tous ceux qui appartiennent au Christ en vertu du baptême. Il s’agit d’une union spirituelle — nous sommes tous unis ! — qui n’est pas brisée par la mort, mais qui se poursuit dans l’autre vie. En effet, il subsiste un lien indestructible entre nous qui vivons dans ce monde et ceux qui ont franchi le seuil de la mort. Nous ici bas sur terre, avec ceux qui sont entrés dans l’éternité, nous formons une seule et grande famille. Cette notion de famille est conservée.
+
+Cette communion merveilleuse, cette union commune merveilleuse entre la terre et le ciel se réalise de la façon la plus élevée et intense dans la liturgie, et en particulier dans la célébration de l’Eucharistie, qui exprime et réalise l’union la plus profonde entre les membres de l’Église. Dans l’Eucharistie, en effet, nous rencontrons Jésus vivant et sa force, et à travers Lui, nous entrons en communion avec nos frères dans la foi: ceux qui vivent avec nous sur cette terre et ceux qui nous ont précédés dans l’autre vie, la vie sans fin. Cette réalité nous comble de joie : il est beau d’avoir tant de frères dans la foi qui marchent à nos côtés, nous soutiennent par leur aide et parcourent avec nous la même route vers le ciel. Et il est réconfortant de savoir qu’il y a d’autres frères qui ont déjà rejoint le ciel, qui nous attendent et prient pour nous, afin qu’ensemble nous puissions contempler pour l’éternité la face glorieuse et miséricordieuse du Père.
+
+Dans la grande assemblée des saints, Dieu a voulu réserver la première place à la Mère de Jésus. Marie est au centre de la communion des saints, comme gardienne particulière du lien de l’Église universelle avec le Christ, du lien de la famille. Elle est la Mère, elle est notre Mère, notre Mère. Pour celui qui veut suivre Jésus sur la voie de l’Évangile, elle est le guide sûr, car elle est la première disciple. Elle est la Mère prévenante et attentive, à qui confier chaque désir et difficulté.
+
+Prions ensemble la Reine de tous les saints, pour qu’elle nous aide à répondre avec générosité et fidélité à Dieu, qui nous appelle à être saints comme Il est Saint (cf. *Lv* 19, 2 ; *Mt* 5, 48).
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs,
+
+La liturgie d’aujourd’hui parle de la gloire de la Jérusalem du ciel, la Jérusalem céleste. Je vous invite à prier pour que la Ville sainte, chère aux juifs, aux chrétiens et aux musulmans, qui ces jours derniers a été témoin de diverses tensions, puisse être toujours davantage un signe et une anticipation de la paix que Dieu désire pour toute la famille humaine.
+
+Aujourd’hui, à Vitoria (Espagne), est proclamé bienheureux le martyr Pietro Asúa Mendía. Prêtre humble et austère, il prêcha l’Évangile par la sainteté de vie, la catéchèse et le dévouement envers les pauvres et les indigents. Arrêté, torturé et tué pour avoir manifesté sa volonté de rester fidèle au Seigneur et à l’Église, il représente pour nous tous un admirable exemple de force dans la foi et de témoignage de la charité.
+
+Cet après-midi, je me rendrai au cimetière du Verano et je célébrerai une Messe d’intention pour les défunts. En visitant le principal cimetière de Rome, je m’unis spirituellement à ceux qui se rendent ces jours-ci sur les tombes de leurs morts dans les cimetières du monde entier.
+
+Je souhaite à tous une bonne fête des saints, dans la joie d’appartenir à la grande famille des saints. N’oubliez pas, s’il vous plaît, de prier pour moi. Bon déjeuner et au revoir !

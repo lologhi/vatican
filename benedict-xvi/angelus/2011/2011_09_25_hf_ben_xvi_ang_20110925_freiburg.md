@@ -1,0 +1,19 @@
+[VOYAGE APOSTOLIQUE EN ALLEMAGNE\
+\
+22-25 SEPTEMBRE 2011](http://w2.vatican.va/content/benedict-xvi/fr/travels/2011/outside/documents/germania.html)
+
+**BENOÎT XVI**
+
+***ANGÉLUS***
+
+**Aéroport de Freiburg im Breisgau**
+
+*Dimanche 25 septembre 2011*
+
+**( [Vidéo](https://www.youtube.com/watch?v=K_eyLlvWa04&list=PLC9tK3J1RlaZGkT-qS3F021VSzUv-YuwO&index=77&ab_channel=TheVatican-Archive))**
+
+*Chers sœurs et frères,*
+
+Nous allons conclure maintenant cette [messe solennelle](http://w2.vatican.va/content/benedict-xvi/fr/homilies/2011/documents/hf_ben-xvi_hom_20110925_freiburg.html) par l’Angélus. Cette prière nous rappelle chaque fois de nouveau le commencement historique de notre salut. L’archange Gabriel présente à la Vierge Marie le plan du salut de Dieu, suivant lequel elle devrait devenir la Mère du Rédempteur. Marie fut toute troublée. Mais l’ange du Seigneur lui dit pour la consoler : « Sois sans crainte, Marie, car tu as trouvé grâce auprès de Dieu » ( *Lc* 1, 30). Marie peut ainsi dire son grand « oui ». Ce « oui », par lequel elle accepte d’être la servante du Seigneur, exprime son adhésion confiante au plan de Dieu et à notre salut. Et enfin, Marie dit ce « oui » à nous tous, qui, au pied de la croix, lui avons été confiés comme fils (cf. *Jn* 19, 27). Elle ne renie jamais cette promesse. Et c’est pour cela qu’elle doit être appelée heureuse, et même, bienheureuse, parce qu’elle a cru à l’accomplissement de ce qui lui avait été dit de la part du Seigneur (Cf. *Lc* 1, 45). En récitant maintenant cette salutation de l’Ange, nous pouvons nous unir ce « oui » de Marie et adhérer avec confiance à la beauté du plan de Dieu et de la providence que, dans sa grâce, il nous a réservé. Alors, l’amour de Dieu deviendra aussi - pour ainsi dire - chair dans notre vie, il prendra toujours plus forme. Nous ne devons pas avoir peur au milieu de toutes nos préoccupations. Dieu est bon. En même temps, nous pouvons nous sentir soutenus par la communauté des nombreux fidèles qui, en ce moment, prient l’Angélus avec nous dans le monde entier, à travers la télévision et la radio.
+
+© Copyright 2011 - Libreria Editrice Vaticana

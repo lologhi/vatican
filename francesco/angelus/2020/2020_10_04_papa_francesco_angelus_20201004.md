@@ -1,0 +1,47 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 4 octobre 2020*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/10/4/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour !*
+
+Dans l’Evangile d’aujourd’hui (cf. Mt 21, 33-43), Jésus, prévoyant sa passion et sa mort, raconte la parabole des vignerons homicides, pour avertir les chefs des prêtres et les anciens du peuple qu’ils sont sur le point de prendre une mauvaise voie. En effet, ils nourrissent de mauvaises intentions à son égard et cherchent le moyen de l’éliminer.
+
+Le récit allégorique décrit un maître qui, après avoir pris grand soin de sa vigne (cf. v.33) et devant partir, la confie aux cultivateurs. Puis, au moment de la récolte, il envoie des serviteurs pour récolter les fruits; mais ces vignerons accueillent les serviteurs à coups de bâtons et en tuent même certains. Le maître envoie d’autres serviteurs, plus nombreux, qui reçoivent toutefois le même traitement (cf. vv. 34-36). Le comble est atteint lorsque le propriétaire décide d’envoyer son fils: les vignerons n’ont aucun respect pour lui, au contraire, ils pensent qu’en l’éliminant ils pourront s’emparer de la vigne, et ils le tuent donc lui aussi (cfr vv. 37- 39).
+
+L’image de la vigne est claire : elle représente le peuple que le Seigneur a choisi et a formé avec tant de soin; les serviteurs envoyés par le maître sont les prophètes, envoyés par Dieu, tandis que le fils est la figure de Jésus. Et de même que les prophètes furent rejetés, ainsi, le Christ lui aussi a été rejeté et tué.
+
+Au terme du récit, Jésus demande aux chefs du peuple : « Lors donc que viendra le maître de la vigne, que fera-t-il à ces vignerons-là ? » (v. 40). Et eux, pris par la logique du récit, prononcent eux-mêmes leur propre condamnation: le maître – disent-ils – punira sévèrement ces méchants et il confiera la vigne « à d'autres vignerons, qui lui en livreront les fruits en leur temps » (v. 41).
+
+A travers cette parabole très dure, Jésus place ses interlocuteurs face à leurs responsabilités, et il le fait avec une extrême clarté. Mais ne pensons pas que cet avertissement ne vale que pour ceux qui rejetèrent alors Jésus. Elle vaut pour tous les temps, le nôtre aussi. De même, aujourd’hui, Dieu attend les fruits de sa vigne de la part de ceux qu’il a envoyés y travailler. Nous tous.
+
+A toute époque, ceux qui ont autorité, toute autorité, même dans l’Eglise, sur le peuple de Dieu, peuvent être tentés de penser à leurs propres intérêts, au lieu de ceux de Dieu lui-même. Et Jésus dit que la véritable autorité est quand on accomplit un service, elle réside dans le service, pas dans l’exploitation des autres. La vigne appartient au Seigneur, pas à nous. L’autorité est un service, et en tant que tel, elle doit être exercée, pour le bien de tous et pour la diffusion de l’Evangile. Il n’est pas bon de voir dans l’Eglise des personnes qui ont de l’autorité rechercher leur propres intérêts.
+
+Saint Paul, dans la seconde lecture de la liturgie d’aujourd’hui, nous dit comment être de bons ouvriers dans la vigne du Seigneur: ce qui est vrai, noble, juste, pur, aimable, honoré; qui est vertu et mérite louange, que tout cela soit l’objet de notre engagement quotidien (cf. Ph 4, 8) . Je répète: ce qui est vrai, noble, juste, pur, aimable, honoré; ce qui est vertu et mérite louange, que tout cela soit l’objet de notre engagement quotidien. C’est l’attitude de l’autorité, et également de chacun de nous, parce que chacun de nous, même dans sa petitesse, a une certaine autorité. Nous deviendrons ainsi une Eglise toujours plus riche de fruits de sainteté, nous rendrons gloire au Père qui nous aime avec une infinie tendresse, au Fils qui continue de nous apporter le salut, à l’Esprit qui ouvre nos cœurs et nous pousse vers la plénitude du bien.
+
+Nous nous tournons à présent vers la Très Sainte Vierge Marie, spirituellement unis aux fidèles rassemblés dans le sanctuaire de Pompéi pour la Supplication, et en ce mois d’octobre nous renouvelons, notre engagement à prier le saint Rosaire.
+
+* * *
+
+**À l'issue de l'Angélus**
+
+*Chers frères et sœurs !*
+
+[Hier, je suis allé à Assise](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/10/3/assisi-enciclica.html) pour signer la nouvelle encyclique *[Fratelli tutti](http://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html)* sur la fraternité et l’amitié sociale. Je l’ai offerte à Dieu sur la tombe de saint François qui me l’a inspirée, comme pour la précédente, *[Laudato si’](http://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*. Les signes des temps montrent clairement que la fraternité humaine et le soin de la Création forment la seule voie vers le développement intégral et la paix déjà indiquée par les saints papes [Jean XXIII](http://www.vatican.va/content/john-xxiii/fr.html), [Paul VI](http://www.vatican.va/content/paul-vi/fr.html) et [Jean-Paul II](http://www.vatican.va/content/john-paul-ii/fr.html). Aujourd’hui, à  vous qui êtes sur la Place – et aussi en dehors de la place –, j’ai la joie d’offrir la nouvelle encyclique dans l’édition extraordinaire de *L’Osservatore Romano*. Et avec cette édition recommence l’édition quotidienne papier de *L’Osservatore Romano*. Que saint François accompagne le chemin de fraternité dans l’Eglise, parmi les croyants de toute religion, et parmi tous les peuples.
+
+Aujourd’hui se conclut le *Temps de la Création*, commencé le 1er septembre dernier, au cours duquel nous avons célébré un « Jubilé pour la terre » avec nos frères de différentes Eglises chrétiennes. Je salue les représentants du Mouvement catholique mondial pour le climat, les divers cercles *Laudato si’* et les associations qui s’y réfèrent, engagées dans des parcours d’écologie intégrale. Je me réjouis des initiatives qui se déroulent aujourd’hui dans différents endroits, et je rappelle en particulier celle dans la région du Delta du Pô.
+
+Le 4 octobre d’il y a 100 ans,  naissait en Ecosse l’œuvre *Stella Maris* pour soutenir les gens de mer. En cet anniversaire si important, j’encourage les aumôniers et les bénévoles à témoigner avec joie de la présence de l’Eglise dans les ports, parmi les marins, les pêcheurs et leurs familles.
+
+Aujourd’hui, à Bologne, est béatifié le père Olinto Marella, prêtre natif du diocèse de Chioggia, pasteur selon le cœur du Christ, père des pauvres et défenseur des faibles. Puisse son témoignage extraordinaire être un modèle pour de nombreux prêtres, appelés à être des serviteurs humbles et courageux du peuple de Dieu. Applaudissons maintenant le nouveau bienheureux!
+
+Je vous salue tous, Romains et pèlerins de différents pays – je vois beaucoup de drapeaux... –: familles, groupes paroissiaux, associations et fidèles individuels. En particulier, je salue les familles et les amis des Gardes suisses, venus assister aujourd’hui à la prestation de serment des nouvelles recrues. Ces jeunes sont bien !  La Garde suisse fait un parcours de vie au service de l’Eglise, du Souverain Pontife. Ce sont de braves jeunes gens qui viennent ici pour 2, 3, 4 ans et plus. Je vous demande de chaleureux applaudissements pour la Garde suisse.
+
+Et je souhaite à tous un bon dimanche. S’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir !

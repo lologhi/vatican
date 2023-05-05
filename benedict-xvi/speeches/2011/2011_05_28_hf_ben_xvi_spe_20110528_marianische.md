@@ -1,0 +1,21 @@
+***DISCOURS*** ***DU PAPE BENOÎT XVI***
+
+***AUX ASSOCIÉS DE LA CONGRÉGATION MARIALE***
+
+***MASCULINE DE RATISBONNE***
+
+*Salle des Papes*
+
+*Samedi**28 mai 2011*
+
+*Cher Monsieur le président,*
+
+*chers associés!*
+
+Je vous adresse un cordial *«Vergelt’s Gott»* \[Dieu vous bénisse\] pour votre visite, pour votre don, pour avoir ressorti des souvenirs une date de ma vie que j’avais oubliée. En effet, il s’agit d’une date qui n’appartient pas simplement au passé: l’admission au sein de la Congrégation mariale est orientée vers l’avenir et n’est jamais simplement un fait ayant eu lieu. Voilà que, après 70 ans, cette date est encore une date d’«aujourd’hui», une date qui indique le chemin vers «demain». Je vous suis reconnaissant d’avoir «ressorti» cette date et j’en suis heureux. Je vous remercie de tout cœur, cher président, pour vos aimables paroles qui sont venues du cœur et qui sont allées droit au cœur. A cette époque, nous vivions alors des temps sombres, il y avait la guerre. Hitler avait soumis l’un après l’autre la Pologne, le Danemark, les Etats du Benelux, la France et, en avril 1941 — précisément en cette période, il y a 70 ans — il avait occupé la Yougoslavie et la Grèce. Il semblait que le continent était entre les mains de ce pouvoir qui, dans le même temps, remettait en cause l’avenir du christianisme. Nous avions été admis à la Congrégation, mais, peu de temps après, éclata la guerre contre la Russie; le séminaire fut fermé et la Congrégation — avant qu’elle ne se réunisse, qu’elle ne puisse se rassembler — avait déjà été dispersée aux quatre vents. Ainsi, cela n’est pas resté comme une «date extérieure» de la vie, mais comme une «date intérieure» de la vie, car depuis toujours, il a été clair que la catholicité ne peut exister sans une attitude mariale, qu’être catholiques signifie être mariaux, que cela signifie l’amour pour la Mère, que dans la Mère et pour la Mère, nous trouvons le Seigneur.
+
+Ici, à travers les visites «ad limina» des évêques j’observe constamment que les personnes — surtout en Amérique latine, mais également dans les autres continents — peuvent se confier à la Mère, peuvent aimer la Mère et, à travers Elle, apprennent ensuite à connaître, à comprendre et à aimer le Christ; je constate que la Mère continue de mettre au monde le Seigneur, que Marie continue de dire «oui» et d’apporter le Christ au monde. Lorsque nous étudiions, après la guerre — et je crois qu’aujourd’hui, cela n’a pas beaucoup changé, je ne crois pas que la situation se soit beaucoup améliorée — la mariologie que l’on enseignait dans les universités allemandes était un peu austère et sobre. Je crois toutefois que nous y avons trouvé l’essentiel. A cette époque, nous étions guidés par Romano Guardini et par le livre de son ami, le curé Josef Weiger, *«Maria, Mutter der Glaubenden» (Marie, Mère des croyants),* qui se fonde sur les paroles d’Elisabeth: «Bienheureuse, toi qui as cru!» (cf. *Lc* 1, 45). Marie est la grande croyante. Elle a accepté la mission d’Abraham d’être croyante et a concrétisé la foi d’Abraham dans la foi en Jésus Christ, nous indiquant ainsi à tous le chemin de la foi, le courage de nous confier à ce Dieu qui se remet entre nos mains, la joie d’être ses témoins: puis sa détermination à demeurer ferme lorsque tous ont fui, le courage d’être aux côtés du Seigneur lorsqu’il semblait perdu et d’apporter précisément ainsi le témoignage qui a conduit à la Pâque.
+
+Je suis donc reconnaissant d’apprendre qu’en Bavière, il existe environ 40.000 associés; qu’aujourd’hui encore, il existe des hommes qui, avec Marie, aiment le Seigneur, qui à travers Marie, apprennent à connaître et à aimer le Seigneur et, comme Elle, témoignent du Seigneur dans les heures difficiles et dans celles heureuses; qui sont avec Lui, sous la Croix et qui continuent de vivre joyeusement la Pâque avec lui. Je vous remercie donc tous car vous continuez d’apporter ce haut témoignage, car nous savons qu’il existe des hommes catholiques bavarois qui sont associés, qui parcourent ce chemin ouvert par les jésuites au XVIe siècle, et qui continuent de démontrer que la foi n’appartient pas au passé, mais ouvre toujours à un «aujourd’hui», et, surtout, à un «demain».
+
+«Vergelt’s Gott für alles» (Dieu vous bénisse pour tout) et Dieu vous bénisse tous! Merci de tout cœur.

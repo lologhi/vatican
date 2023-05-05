@@ -1,0 +1,41 @@
+[VOYAGE APOSTOLIQUE À MADRID\
+\
+À L'OCCASION DE LA XXVIe JOURNÉE MONDIALE DE LA JEUNESSE\
+\
+18-21 AOÛT 2011](/content/benedict-xvi/fr/travels/2011/index_madrid.html)
+
+CÉRÉMONIE DE BIENVENUE
+
+***DISCOURS DU PAPE BENOÎT XVI*** *Aéroport international de Madrid-Barajas* *Jeudi 18 août 2011*
+
+\[**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_4SMNWGZQ)** **\]**
+
+*Majestés,*
+
+*Monsieur le Cardinal Archevêque de Madrid,*
+
+*Messieurs les Cardinaux,*
+
+*Chers frères dans l’Épiscopat et dans le Sacerdoce,*
+
+*Autorités nationales, des communautés autonomes et locales,*
+
+*Cher peuple de Madrid et de l’Espagne toute entière*
+
+Merci, Majesté, pour votre présence ici avec la Reine, et pour les paroles si déférentes et affables que vous m’avez adressées en me souhaitant la bienvenue. Ces paroles me font revivre les inoubliables marques de sympathie reçues lors de mes visites apostoliques antérieures en Espagne, et plus particulièrement celles de mon récent [voyage à Saint Jacques de Compostelle et à Barcelone](/content/benedict-xvi/fr/travels/2010/index_spagna.html). Je salue très cordialement ceux qui se trouvent présents à Barajas, et ceux qui suivent cet événement par la radio et la télévision. Je mentionne également avec grande reconnaissance tous ceux qui, instances ecclésiales et civiles, ont contribué par leurs efforts et leur travail, avec grand engagement et dévouement, pour que ces [Journées Mondiales de la Jeunesse, de Madrid](/content/benedict-xvi/fr/travels/2011/index_madrid.html), puissent bien se dérouler et porter des fruits abondants.
+
+Je désire aussi remercier de tout cœur pour l’hospitalité offerte par tant de familles, de paroisses, de collèges et d’autres institutions qui ont accueilli les jeunes venus du monde entier, d’abord dans différentes régions et villes d’Espagne, et maintenant dans cette grande ville de Madrid, cosmopolite et aux portes grandes ouvertes.
+
+Je viens ici pour rencontrer des milliers de jeunes du monde entier, intéressés par le Christ ou en recherche de la vérité qui donne un sens authentique à leur existence. Je viens comme Successeur de Pierre pour les confirmer tous dans leur foi, en vivant quelques jours d’intense activité pastorale pour annoncer que Jésus-Christ est le Chemin, la Vérité et la Vie. Pour pousser à l’engagement de construire le Règne de Dieu dans le monde, et entre nous. Pour exhorter les jeunes à rencontrer personnellement le Christ-Ami et ainsi, enracinés dans sa Personne, se convertir en disciples fidèles et en témoins courageux.
+
+Pour quoi et par quoi cette multitude de jeunes est-elle venue à Madrid ? Bien que la réponse devrait être donnée par eux, on peut bien penser qu’ils désirent écouter la Parole de Dieu, comme l’a proposé la devise de ces [Journées Mondiales de la Jeunesse](/content/benedict-xvi/fr/travels/2011/index_madrid.html), de manière qu’enracinés dans le Christ et construits sur Lui, ils manifestent la fermeté de leur foi.
+
+Beaucoup d’entre eux ont écouté la voix de Dieu, parfois uniquement comme un léger murmure, qui les a poussés à le chercher avec plus de diligence, et à partager avec les autres l’expérience de la force qu’ils tiennent dans leur vie. Cette découverte du Dieu vivant anime les jeunes et ouvre leurs yeux aux défis du monde où ils vivent, avec leurs possibilités et leurs limites. Ils voient la superficialité, la consommation et l’hédonisme régnants, tant de banalité au moment de vivre la sexualité, tant de manques de solidarité, tant de corruption. Et ils savent que sans Dieu il serait difficile d’affronter ces défis et d’être vraiment heureux, tournant vers lui leur enthousiasme pour l’obtention d’une vie authentique. Toutefois, avec Lui à leurs côtés, ils obtiendront la lumière pour marcher et des raisons pour espérer, ne se décourageant pas devant ces hauts idéaux qui motiveront leur engagement généreux pour construire une société où la dignité humaine et une vraie fraternité se respectent. Ici, durant ces Journées, ils ont une occasion privilégiée pour mettre en commun leurs aspirations, échanger entre eux les richesses de leurs cultures et de leurs expériences, s’encourager mutuellement dans leur cheminement de foi et de vie, où certains se croient isolés ou ignorés par leur entourage quotidien. Mais non, ils ne sont pas seuls ! Beaucoup de leurs contemporains partagent leurs projets et, se confiant entièrement au Christ, ils savent qu’ils ont vraiment un avenir devant eux et ils ne craignent pas les engagements décisifs qui demandent toute la vie. Pour cela, les écouter, prier ensemble et célébrer l’Eucharistie avec eux me causent une immense joie. Les [Journées Mondiales de la Jeunesse](/content/benedict-xvi/fr/travels/2011/index_madrid.html) nous apporte un message d’espérance, comme une brise d’air pur et juvénile, avec des parfums nouveaux qui nous remplissent de confiance pour le demain de l’Église et du monde.
+
+Certes, les difficultés ne manquent pas. Des tensions et des confrontations existent en tant d’endroits du monde, avec même du sang qui coule. La justice et la haute valeur de la personne humaine se plient facilement à des intérêts égoïstes, matériels et idéologiques. L’environnement et la nature que Dieu a créés avec tant d’amour ne sont pas respectés comme il se doit. De plus, beaucoup de jeunes regardent avec préoccupation leur avenir face à la difficulté de trouver un emploi digne ou bien pour l’avoir perdu ou encore parce que celui qu’ils ont est précaire et n’est pas assuré. Il y en a d’autres qui ont besoin d’aide pour ne pas tomber dans les filets de la drogue, d’une aide efficace si par malheur ils y sont déjà tombés. À cause de leur foi dans le Christ, beaucoup souffrent en eux-mêmes la discrimination, qui conduit à la dépréciation et à la persécution ouverte ou larvée qui afflige des régions déterminées de certains pays. Ils sont aussi sollicités pour s’éloigner de Lui, en les privant des signes de sa présence dans la vie publique, et en réduisant au silence son Nom même. Pourtant aujourd’hui, je redis aux jeunes, avec toute la force de mon cœur, que rien ni personne ne vous prive de la paix ! N’ayez pas honte du Seigneur ! Il n’a rien objecté à se faire l’un de nous et à faire l’expérience de nos angoisses pour nous élever vers Dieu, et faisant ainsi il nous a sauvés.
+
+Dans ce contexte, il est urgent d’aider les jeunes disciples de Jésus à demeurer fermes dans la foi et à assumer la belle aventure de l’annoncer et d’en témoigner ouvertement par leurs propres vies. Un témoignage courageux et plein d’amour au frère humain, à la fois décidé et prudent, sans cacher sa propre identité chrétienne, dans un climat de respectueuse connivence avec d’autres options légitimes et en même temps avec l’exigence du respect dû aux propres convictions.
+
+Majesté, en vous remerciant de nouveau pour l’accueil déférent que vous m’avez réservé, je désire exprimer mon appréciation et ma proximité à tous les peuples d’Espagne, tout comme mon admiration pour un pays si riche en histoire et en culture, pour la vitalité de sa foi qui a fructifié en de nombreux saints et saintes de toutes les époques, en de nombreux hommes et femmes qui, laissant leur terre, ont apporté l’Évangile aux limites du monde, et en des personnes droites, solidaires et bonnes de votre pays. C’est là un grand trésor dont il convient certainement de prendre soin par une attitude constructive pour le bien commun d’aujourd’hui et pour offrir un horizon lumineux à l’avenir des nouvelles générations. Même s’il existe actuellement des motifs de préoccupations, plus grand est l’élan des Espagnols, avec l’ardeur qui les caractérise, pour les dépasser, et ce qui y contribue le plus ce sont leurs racines chrétiennes profondes, très fécondes au cours des siècles.
+
+A partir d’ici, je salue très cordialement tous les amis espagnols et madrilènes, et tous ceux qui sont venus d’autres terres. Durant ces jours je vous serai proche, ayant très présent à l’esprit tous les jeunes du monde, en particulier ceux qui passent par toutes sortes d’épreuves. Confiant cette rencontre à la très sainte Vierge Marie, et à l’intercession des saints protecteurs de ces Journées, je demande à Dieu qu’il bénisse et protège toujours les fils et les filles d’Espagne. Merci beaucoup.

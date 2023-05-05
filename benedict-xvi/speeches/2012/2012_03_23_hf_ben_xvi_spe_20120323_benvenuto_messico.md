@@ -1,0 +1,40 @@
+[VOYAGE APOSTOLIQUE AU MEXIQUE ET À CUBA\
+\
+(23-29 MARS 2012)](/content/benedict-xvi/fr/travels/2012/index_messico-cuba.html)
+
+**CÉRÉMONIE DE BIENVENUE**
+
+***DISCOURS******DU PAPE BENOÎT XVI***
+
+*Aéroport international de Guanajuato*
+
+**Vendredi** *23 mars 2012*
+
+**\[****[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_G46HFT58)****\]**
+
+*Monsieur le Président de* *la République* *,*
+
+*Messieurs les Cardinaux,*
+
+*Chers frères dans l’Épiscopat et le Sacerdoce,*
+
+*Autorités présentes,*
+
+*Cher peuple de Guanajuato et du Mexique tout entier,*
+
+Je suis très heureux d’être ici et je rends grâce à Dieu pour m’avoir permis de réaliser le désir, présent dans mon cœur depuis longtemps, de pouvoir confirmer dans la foi le peuple de Dieu de cette grande nation sur sa propre terre. La ferveur du peuple mexicain pour le Successeur de Pierre, qui le tient toujours présent dans sa prière, est proverbiale. Je le dis dans ce lieu considéré comme le centre géographique de votre territoire, lieu où depuis son premier voyage, mon vénéré  prédécesseur, le bienheureux [Jean-Paul II](/content/john-paul-ii/fr.html), désirait déjà venir. Ne pouvant le faire, il a laissé à cette occasion un message d’encouragement et de bénédiction lorsqu’il survola son espace aérien. Je suis heureux de me faire l’écho de ses paroles sur la terre ferme et en étant parmi vous : Je rends grâce – a-t-il écrit dans son message – pour l’affection envers le Pape et pour la fidélité au Seigneur des fidèles de Bajió et de Guanajuato. Que Dieu les accompagne toujours (cf. *Télégramme*, 30 janvier 1979).
+
+Avec ce souvenir émouvant, je vous remercie, Monsieur le Président, pour votre accueil chaleureux, et je salue avec déférence votre épouse distinguée et les Autorités qui ont désiré m’honorer de leur présence. Un salut spécial va à Mgr José Guadalupe Martín Rábago, Archevêque de León, tout comme à Mgr Carlos Aguiar Retes, Archevêque de Tlalnepantla, Président de la Conférence épiscopale mexicaine et du Conseil épiscopal latino-américain. Par cette brève visite, je désire serrer les mains de tous les Mexicains et embrasser les nations et les peuples latino-américains, bien représentés ici par de nombreux évêques, précisément en ce lieu où le majestueux monument au Christ Roi, sur le mont du Cubilete, manifeste l’enracinement de la foi catholique parmi les Mexicains qui recourent à sa constante bénédiction dans tous les événements de leur vie.
+
+Le Mexique et la majorité des peuples latino-américains ont commémoré le bicentenaire de leur indépendance ou le font en ces années. Nombreuses ont été les célébrations religieuses afin de rendre grâce à Dieu pour ce moment si important et significatif. En ces occasions, comme cela se fit durant la Sainte Messe dans la Basilique Saint-Pierre à Rome, en la solennité de Notre Dame de Guadalupe, on a invoqué avec ferveur Marie, la très Sainte, qui fit voir avec douceur comment le Seigneur nous aime tous et se donne pour chacun sans distinction. Notre Mère du ciel a continué de veiller sur la foi de ses fils, également lors de la formation de ces nations et continue à le faire aujourd’hui, alors que de nouveaux défis se présentent à eux.
+
+Je viens comme pèlerin de la foi, de l’espérance et de la charité. Je désire confirmer dans la foi les croyants dans le Christ, les fortifier en elle en les invitant à la revitaliser par l’écoute de
+
+la Parole
+de Dieu, par les sacrements et par la cohérence de vie. Ainsi, pourront-ils la partager avec les autres, étant missionnaires parmi leurs frères, et être un levain dans la société en contribuant à une cohabitation respectueuse et pacifique basée sur l’inégalable dignité de toute personne humaine, créée par Dieu, et qu’aucun pouvoir n’a le droit d’oublier ni de déprécier. Cette dignité s’exprime de manière éminente dans le droit fondamental à la liberté religieuse, pris dans son sens authentique et dans sa pleine intégrité.
+
+Comme pèlerin de l’espérance, je vous dis avec saint Paul : « Il ne faut pas que vous vous désoliez comme les autres qui n’ont pas d’espérance » ( *1Th*, 4, 13). La confiance en Dieu offre la certitude de le rencontrer, de recevoir sa grâce, et sur cela se fonde l’espérance de celui qui croit. Et, le sachant, il s’efforce de transformer aussi les structures et les évènements présents désagréables, qui paraissent immuables et insurmontables, en aidant celui qui dans la vie ne trouve ni sens ni avenir. Oui, l’espérance change l’existence concrète de chaque homme et de chaque femme de façon réelle (cf. *[Spe salvi](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20071130_spe-salvi.html)*, 2). L’espérance indique « un ciel nouveau et une terre nouvelle » ( *Ap* 21,1), permettant de rendre palpable déjà maintenant certains de ses reflets. En outre, quand elle s’enracine dans un peuple, quand elle se partage, elle se diffuse comme la lumière qui écarte les ténèbres qui obscurcissent et blessent. Ce pays, ce continent, sont appelés à vivre l’espérance en Dieu comme une conviction profonde, en la convertissant en une attitude du cœur et en un engagement concret à cheminer ensemble vers un monde meilleur. Comme je l’ai déjà dit à Rome, « qu’ils continuent de progresser sans se décourager dans l’édification d’une société fondée sur le développement du bien, sur le triomphe de l’amour et sur la diffusion de la justice » ( [*Homélie en la solennité de Notre Dame de Guadalupe*, Rome, 12 décembre 2011](/content/benedict-xvi/fr/homilies/2011/documents/hf_ben-xvi_hom_20111212_america-latina.html)).
+
+Avec la foi et l’espérance, le croyant dans le Christ et l’Église dans son ensemble, vivent et pratiquent la charité comme un élément essentiel de leur mission. Dans son acception première, la charité est « avant tout simplement la réponse à ce qui, dans une situation déterminée, constitue la nécessité immédiate » ( *[Deus caritas est](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html)*, 31a) comme, secourir ceux qui souffrent de la faim, ceux qui manquent de domicile, qui sont malades ou nécessiteux dans certains aspects de leur existence. Personne, à cause de son origine ou de sa croyance, n’est exclu de cette mission de l’Église, qui n’entre pas en compétition avec d’autres initiatives privées ou publiques ; elle est davantage, avec joie elle collabore avec ceux qui poursuivent ces mêmes fins. Elle ne prétend pas autre chose que de faire de manière désintéressée et respectueuse le bien à celui qui est dans le besoin, à qui il manque précisément plus que tout une preuve d’amour authentique.
+
+Monsieur le Président, chers amis, en ces jours, je demanderai instamment au Seigneur et à la Vierge de Guadalupe que ce peuple fasse honneur à la foi reçue et à ses traditions les meilleures. Et je prierai spécialement pour ceux qui en ont le plus besoin, particulièrement ceux qui souffrent à cause de rivalités anciennes ou nouvelles, de ressentiments et de formes de violence. Je sais que je suis dans un pays fier de son hospitalité et désireux que personne ne se sente étranger sur sa terre. Je le sais, je le savais déjà, mais maintenant, je le vois et je le ressens profondément dans mon cœur. J’espère de toute mon âme que le ressentent également tant de mexicains qui vivent en dehors de leur patrie natale, mais qui ne l’oublient jamais, et qui désirent la voir croître dans la concorde et dans un authentique développement intégral. Merci beaucoup.

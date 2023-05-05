@@ -1,0 +1,23 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***À**L'ASSOCIATION BIBLIQUE ITALIENNE***
+
+*Salle Clémentine*
+
+*Vendredi 12 septembre 2014*
+
+*Chers amis,*
+
+Je vous rencontre au terme de la Semaine biblique nationale, promue par l’Association biblique italienne. Votre rendez-vous inaugure les célébrations pour le 50e anniversaire de la Constitution dogmatique du Concile Vatican ii. Nous devons être reconnaissants pour les ouvertures que le Concile nous a offertes, qui sont le fruit de longs efforts de recherche, ainsi que pour l’abondance et la facilité d’accès à l’Ecriture Sainte. Le chrétien en a besoin aujourd’hui plus que jamais, étant sollicité par des provocations culturelles opposées. La foi, pour répondre, ne doit pas être étouffée, elle doit être constamment nourrie par la Parole de Dieu.
+
+Je vous exprime mon estime et ma reconnaissance pour le travail précieux que vous accomplissez dans votre ministère de professeurs et d’experts de la Bible. En outre, cette rencontre m’offre l’opportunité de répéter, en continuité avec le Magistère de l’Église, l’importance de l’exégèse biblique pour le Peuple de Dieu. Nous pouvons rappeler ce qu’a affirmé la Commission pontificale biblique : « L’exégèse biblique — je cite — remplit, dans l’Église et dans le monde, une tâche indispensable. Vouloir se passer d’elle pour comprendre la Bible relèverait de l’illusion et manifesterait un manque de respect pour l’Écriture inspirée \[...\] Pour parler aux hommes et aux femmes, dès l’époque de l’Ancien Testament, Dieu a exploité toutes les possibilités du langage humain, mais en même temps, il a dû aussi soumettre sa parole à tous les conditionnements de ce langage. Le respect véritable pour l’Écriture inspirée exige que soient accomplis tous les efforts nécessaires pour qu’on puisse bien saisir son sens. Il n’est pas possible, assurément, que chaque chrétien fasse personnellement les recherches de tous genres qui permettent de mieux comprendre les textes bibliques. Cette tâche est confiée aux exégètes, responsables, en ce secteur, du bien de tous » ( *L’interprétation de la Bible dans l’Église*, 15 avril 1993, Conclusion).
+
+Précisément en rencontrant les membres de la Commission pontificale biblique, à l’occasion de la présentation du document qui vient d’être cité, saint [Jean-Paul II](http://www.vatican.va/holy_father/john_paul_ii/index_fr.htm) rappela que « pour respecter la cohérence de la foi de l’Église et de l’inspiration de l’Écriture, l’exégèse catholique doit être attentive à ne pas s’en tenir aux aspects humains des textes bibliques. Il lui faut aussi et surtout aider le peuple chrétien à percevoir plus nettement dans ces textes la parole de Dieu, de façon à mieux l’accueillir, pour vivre pleinement en communion avec Dieu » ( *[Discours du 23 avril 1993](http://www.vatican.va/holy_father/john_paul_ii/speeches/1993/april/documents/hf_jp-ii_spe_19930423_due-anniversari_fr.html)*). Dans ce but, il est naturellement nécessaire que l’exégète lui-même sache percevoir dans les textes la Parole divine, et cela est possible uniquement si sa vie spirituelle est fervente, riche de dialogue avec le Seigneur ; autrement, la recherche exégétique reste incomplète, perd de vue son objectif principal.
+
+Dans la conclusion de ce Document, se trouve une expression très concrète : « L’exégèse catholique n’a pas le droit de ressembler à un cours d’eau qui se perd dans les sables d’une analyse hypercritique ».
+
+C’est pourquoi, outre la compétence académique, est demandé à l’exégète catholique également et surtout la foi, reçue et partagée avec tout le peuple croyant qui, dans sa totalité, ne peut pas se tromper. Je reprends les paroles de saint [Jean-Paul II](http://www.vatican.va/holy_father/john_paul_ii/index_fr.htm) : « Pour arriver à une interprétation pleinement valable des paroles inspirées par l’Esprit Saint, il faut être soi-même guidé par l’Esprit Saint et, pour cela, il faut prier, prier beaucoup, demander dans la prière la lumière intérieure de l’Esprit et accueillir docilement cette lumière, demander l’amour, qui seul rend capable de comprendre le langage de Dieu, qui est amour (1 *Jn* 4, 8.16) » ( *[Discours du 23 avril 1993](http://www.vatican.va/holy_father/john_paul_ii/speeches/1993/april/documents/hf_jp-ii_spe_19930423_due-anniversari_fr.html)*).
+
+Le modèle est la Vierge Marie, dont saint Luc nous rapporte qu’elle méditait dans son cœur les paroles et les événements qui concernaient son Fils Jésus (cf. 2, 19). La Vierge nous enseigne à accueillir pleinement la Parole de Dieu, non seulement à travers la recherche intellectuelle, mais dans toute notre vie.
+
+Chers frères et sœurs, je vous remercie encore, je vous bénis, ainsi que votre travail, et je vous demande s’il vous plaît de prier pour moi.

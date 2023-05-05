@@ -1,0 +1,57 @@
+VISITE PASTORALE À ANCÔNE
+
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***LORS DE SA RENCONTRE AVEC LE CLERGÉ,***
+
+***LES RELIGIEUX ET LES LAÏCS***
+
+*Dimanche 30 mai 1999*
+
+*Très chers frères et sœurs!*
+
+1\. Je vous salue avec une grande af- fection dans cette très belle cathédrale de saint Cyriaque, image et centre de votre archidiocèse. La célébration de son millénaire évoque la présence mystérieuse et bénéfique de Dieu dans l'histoire de cette terre et tout le bien accompli par ceux qui, devenus des auditeurs attentifs et généreux de l'Evangile, ont secondé le chemin de la Grâce. Je pense aux prêtres et aux diacres ordonnés dans ce temple, aux vierges consacrées, aux nombreux chrétiens engagés, qui ont cherché ici la force pour devenir des pierres qualifiées de l'édifice spirituel de l'Eglise et des instruments providentiels de l'histoire du salut.
+
+Cette rencontre se situe en continuité avec la célébration eucharistique de ce matin. Là, autour du Successeur de Pierre et de l'Archevêque, votre communauté diocésaine s'est manifestée dans toute sa plénitude. Maintenant, elle présente ici ses structures portantes: les prêtres, les diacres, les religieux et les religieuses, les agents de la pastorale et les représentants des groupes laïcs ecclésiaux. L'acteur principal de la rencontre de ce matin a été la «pâte fermentée», prête à devenir du bon pain; à présent, les acteurs principaux sont ceux qui, par l'administration des Sacrements et le service de la Parole, insufflent à l'histoire de ce peuple le dynamisme de la Vie nouvelle de l'Evangile. Merci de votre présence, merci pour tout le bien que vous accomplissez, en répondant avec un dévouement constant et avec un amour fidèle à l'appel du Seigneur, qui vous envoit semer et irriguer l'Eglise, son champ mystique.
+
+J'adresse un salut cordial à votre bien-aimé pasteur, Mgr Franco Festorazzi, à qui sont confiés en premier le labeur et la joie d'annoncer l'Evangile dans cet antique et noble archidiocèse d'Ancône-Osimo. Je lui suis également très reconnaissant pour les paroles cordiales qu'il a voulu m'adresser en votre nom à tous.
+
+2\. En m'approchant de votre cathédrale, que la position dominante et les puissantes structures architecturales transforment en signe fort de la présence de Dieu parmi vous, j'ai pensé aux paroles du Psalmiste qui, à côté du temple de Jérusalem, s'exclamait: «J'étais joyeux que l'on me dise: Allons à la maison de Yahvé!» ( *Ps* 122, 1). La vue du «beau saint Cyriaque» , comme le qualifie l'un de vos chants populaires, invite à une contemplation pleine d'admiration du Dieu créateur, l'Artiste absolu, qui a créé l'univers dans toute sa beauté et harmonie (cf. *Gn* 1, 31).
+
+Il confie à l'homme, fait à son image et ressemblance, la tâche de poursuivre son œuvre et, en particulier, il appelle les artistes à être des prophètes de la beauté, en les associant au mystère de la création. Le rapport fécond entre l'art, l'Evangile et l'Eglise, a fait de la beauté un itinéraire singulier de la rencontre avec Dieu, comme en témoigne l'importante Exposition «Livres de pierre», inaugurée à l'occasion des célébrations du millénaire.
+
+Ces célébrations constituent un hymne de louange au Seigneur qui, en permettant aux artistes qui ont édifié et décoré ce temple de se pencher «pour un instant sur cet abîme de lumière» qui possède en Lui sa source originelle, leur a ouvert «une voie d'accès à la réalité la plus profonde de l'homme et du monde» et un itinéraire de salut possible (cf. *Lettre aux artistes*, n. 6).
+
+3\. Votre cathédrale raconte une histoire de foi longue de mille ans. Temple de pierre qui a défié les siècles, elle est en même temps l'Eglise mère qui accueille toute la communauté composée de «pierres vivantes pour la construction d'un édifice spirituel» (1 *P* 2, 5) et a «pour fondation les apôtres et prophètes et pour pierre d'angle le Christ Jésus lui-même» ( *Ep* 2, 20).
+
+Les images bibliques qui, à partir de la réalité visible du temple, renvoient au mystère de l'Eglise, constituent pour vous, communauté diocésaine qui y est rassemblée, un engagement à réaliser ce que l'édifice de pierre représente. Les célébrations du millénaire vous exhortent donc à être toujours davantage une Eglise vivante qui, défiant les vents, les tempêtes et les infiltrations dangereuses de l'esprit du monde, manifeste chaque jour l'amour de Dieu pour les hommes, révélé en Jésus-Christ. Maison de Dieu sise sur le mont, votre cathédrale vous engage à être une communauté exemplaire, vers laquelle tous peuvent se tourner comme un point de référence d'où l'on peut tirer l'inspiration pour l'instauration de relations humaines dans la société civile.
+
+Très chers frères et sœurs, quelle mission extraordinaire le Père vous confie-t-il! Sur les traces des martyrs et des saints qui ont donné sa grandeur à votre histoire, vous êtes appelés à vous engager à l'édification spirituelle de votre Eglise avec l'amour et la passion des artistes qui ont rendu splendide cette cathédrale. Votre tâche est plus grande que la leur: rendre plus splendide, au seuil d'un nouveau millénaire chrétien, le visage de l'Eglise de Dieu qui est à Ancône-Osimo.
+
+4\. En ce moment si riche de foi et d'espérance, je désire vous indiquer quelques voies pour réaliser cette entreprise exaltante, qui ne manque pas de difficultés, mais qui est soutenue par la fidélité de Celui qui répète sans cesse à ses apôtres: «Et voici que je suis avec vous pour toujours jusqu'à la fin du monde» ( *Mt* 28, 20).
+
+Je vous exhorte tout d'abord à être toujours plus profondément unis à votre évêque. La communion de pensées, de sentiments et d'initiatives est le plus grand don du Seigneur à son Eglise, la substance de la vie de la communauté chrétienne et l'objectif de toute sa mission. Elle exige du chrétien une réponse permanente d'amour, d'accueil, de générosité et de joie, qui constitue la véritable identité du disciple du Seigneur (cf. *Jn* 13, 3).
+
+Dans l'Eglise locale, la communion trouve dans l'Evêque, «vicaire et délégué du Christ» ( *Lumen gentium*, n. 27), le principe visible et le fondement ( *Ibid*., n. 23), à qui chaque fidèle est tenu d'adhérer comme au Seigneur. Saint Ignace d'Antioche rappelle les motivations profondes de cette caractéristique de la véritable Eglise du Christ par des paroles lumineuses: «Vous devez être un avec la pensée de l'évêque, comme vous l'êtes déjà. En effet, votre collège presbytéral, digne de son nom, digne de Dieu, est uni à l'évêque comme les cordes à la lyre; et de votre unité, de votre amour unanime s'élève un chant à Jésus-Christ. Mais vous aussi, les laïcs, vous ne devez former qu'un seul chœur, en vous mettant tous au diapason de Dieu, en vous concertant dans la plus stricte harmonie, pour élever un hymne à une voix au Père, à travers Jésus-Christ. Il vous écoutera et reconnaîtra, à vos œuvres, que vous êtes le chant de son Fils» ( *Lettres aux Ephésiens*, 3-6).
+
+Je forme des vœux cordiaux afin que votre engagement de communion suscite dans la communauté d'Ancône une harmonie toujours nouvelle, capable de glorifier le Seigneur et d'attirer les âmes au Christ.
+
+5\. Je vous invite également, à répondre avec joie à la vocation particulière que Dieu adresse à chacun. Par la multiplicité de vos ministères et charismes, vous êtes le signe de l'amour imprévisible de Dieu «qui distribue ses dons variés pour le bien de l'Eglise à la mesure de ses richesses et des exigences des services» ( *Lumen gentium*, n. 7). Le Seigneur appelle chacun de vous dans la diversité des membres et des fonctions, à édifier le Corps du Christ.
+
+«Menez une vie digne de l'appel que vous avez reçu» et de l'appel particulier qui vous a été adressé par le Seigneur Jésus ( *Ep* 4, 1.11). Cette exhortation de l'Apôtre Paul engage chacun à répondre avec générosité, créativité et responsabilité à la vocation reçue pour devenir des instruments efficaces de communion et offrir un témoignage joyeux de foi aux non-croyants, avec une ardeur toujours nouvelle pour annoncer l'Evangile à ceux qui sont proches ou éloignés. Danc ce but, il est nécessaire d'effectuer un sérieux travail de formation pour acquérir la préparation nécessaire afin d'évangéliser la société et la culture contemporaine, parfois lointaines ou indifférentes à l'annonce de l'Evangile.
+
+Vous venez de célébrer les 90 ans du séminaire régional des Marches, où se sont préparés au sacerdoce de nombreux prêtres de vos Eglises. En rendant grâce au Seigneur pour l'œuvre tenace et intelligente accomplie par les formateurs passés et présents, je vous exhorte à faire preuve de sollicitude afin que votre soutien spirituel et matériel constant à cette institution digne d'éloges ne vienne jamais à manquer. J'exhorte dans le même temps les séminaristes à répondre avec générosité à l'appel du Seigneur et aux attentes du Peuple de Dieu, en se préparant à la grande mission qui les attend par une solide formation spirituelle, théologique, culturelle et humaine.
+
+6\. Une autre voie pour la croissance et la construction de l'unité de la communauté diocésaine est constituée par la collaboration inter-paroissiale. La paroisse «est toujours comme un noyau» du diocèse et en constitue la structure de base qui doit être soutenue à tout prix comme le suggèrent les programmes pastoraux de ces dernières années. Elle «offre un exemple remarquable d'apostolat communautaire, car elle rassemble dans l'unité tout ce qui se trouve en elle de diversités humaines et elle les insère dans l'universalité de l'Eglise» ( *Apostolicam actuositatem*, n. 10) et elle doit être conçue comme un instrument très efficace pour réaliser l'unité de l'Eglise locale. La collaboration généreuse et organique entre les paroisses, outre à favoriser la communion ecclésiale, représente un puissant facteur de croissance pour la vie de cette même communauté paroissiale. En effet, en s'ouvrant aux problèmes d'un territoire plus vaste, la paroisse découvre la richesse des dons du Seigneur, elle cultive la dimension missionnaire et éduque les fidèles au sens de l'Eglise locale et universelle.
+
+Ayez soins, chers agents de pastorale, d'accomplir tous les efforts en votre pouvoir pour réaliser, au niveau paroissial et inter-paroissial, toutes les formes de collaboration possible, pour mieux diffuser et témoigner de l'Evangile.
+
+7\. Très chers prêtres, religieux, religieuses et laïcs engagés! Au terme de ma visite à votre communauté, je souhaite que la célébration du millénaire de la cathédrale constitue, pour votre archidiocèse et pour chacun de vous, un moment de grâce spéciale, à la veille du grand Jubilé. Puisse-t-elle vous préparer à introduire votre diocèse dans un nouveau millénaire de foi et d'espérance.
+
+Que Marie, Mère de l'Eglise et Reine de tous les saints, fasse grandir en vous l'amour pour votre Eglise et vous transforme en ferment évangélique qui fait lever la pâte.
+
+Avec ces vœux, en invoquant saint Cyriaque et Leopardo, protecteurs de votre archidiocèse, je donne avec une vive cordialité à votre pasteur, à chacun de vous et à la bien-aimée Eglise d'Ancône-Osimo, une Bénédiction apostolique spéciale.
+
+Au terme de la rencontre, le Saint-Père s'est adressé aux nombreux fidèles qui l'attendaient sur le parvis de la cathédrale:
+
+Il y a presque vingt ans j'ai vu Ancône d'en-bas. Aujourd'hui, d'Ancône, je vois la mer et je me trouve en-haut... Merci pour cette rencontre. Que le Seigneur vous bénisse! Il a fallu beaucoup de patience pour revenir ici, presque vingt ans. Loué soit Jésus-Christ!

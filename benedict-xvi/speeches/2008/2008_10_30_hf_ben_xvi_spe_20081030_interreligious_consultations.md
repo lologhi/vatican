@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE BENOÎT XVI*** ***AUX MEMBRES DE L'«*** ***INTERNATIONAL JEWISH***
+
+***COMMITTEE ON INTERRELIGIOUS CONSULTATIONS*** ***»***
+
+*Salle des Papes*
+
+*Jeudi 30 octobre 2008*
+
+Chers amis,
+
+Je suis heureux de recevoir cette délégation de l' *"International Jewish Committee on Interreligious Consultations"*. Depuis plus de trente ans votre Comité et le Saint-Siège ont des contacts réguliers et fructueux, qui ont contribué à une compréhension et une acceptation plus grande entre les catholiques et les juifs. Je saisis volontiers cette occasion pour réaffirmer l'engagement pour la réalisation des principes exposés dans la déclaration historique *[Nostra aetate](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_nostra-aetate_fr.html)* du Concile Vatican ii. Cette déclaration, qui a condamné avec fermeté toutes les formes d'antisémitisme, a été aussi bien une pierre milliaire significative dans la longue histoire des relations entre les catholiques et les juifs, qu'une invitation à une compréhension théologique renouvelée des relations entre l'Eglise et le peuple juif.
+
+Aujourd'hui, les chrétiens sont toujours plus conscients du patrimoine spirituel qu'ils partagent avec le peuple de la Torah, le peuple élu par Dieu dans son ineffable miséricorde, un patrimoine qui exhorte à une appréciation, à un respect et à un amour plus grands et réciproques (cf. *[Nostra aetate](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_nostra-aetate_fr.html)*, n. 4). Les juifs aussi sont appelés à découvrir ce qu'ils ont en commun avec ceux qui croient dans le Seigneur, le Dieu d'Israël, qui le premier s'est révélé à travers sa Parole puissante et qui donne la vie. Comme le psalmiste nous le rappelle, la Parole de Dieu est une lampe pour éclairer nos pas et une lumière sur notre chemin; elle nous garde vivants et nous donne une nouvelle vie (cf. Ps 119, 105). Cette Parole nous invite à apporter un témoignage commun de l'amour, de la miséricorde et de la vérité de Dieu. Il s'agit d'un service vital à notre époque, menacée par la perte des valeurs spirituelles et morales qui garantissent la dignité humaine, la solidarité, la justice et la paix.
+
+Dans notre monde inquiet, si souvent marqué par la pauvreté, par la violence et par l'exploitation, le dialogue entre cultures et religions doit être toujours davantage considéré comme un devoir sacré de ceux qui sont engagés dans l'édification d'un monde digne de l'homme. La capacité de se respecter et de s'accepter réciproquement et d'énoncer la vérité avec amour, est essentielle pour dépasser les différences, prévenir les incompréhensions et éviter les conflits inutiles. Comme vous en avez vous-mêmes fait l'expérience au cours des années, durant les rencontres de l'"International Liaison Committee", le dialogue n'est sérieux et honnête que lorsqu'il respecte les différences et reconnaît les autres précisément dans leur diversité. Un dialogue sincère a besoin d'ouverture et d'un profond sens d'identité des deux parties, afin que chacun soit enrichi par les dons de l'autre.
+
+Ces derniers mois, j'ai eu l'occasion de rencontrer des [communautés juives à New York](/content/benedict-xvi/fr/speeches/2008/april/documents/hf_ben-xvi_spe_20080418_synagogue-ny.html), à [Paris](/content/benedict-xvi/fr/speeches/2008/september/documents/hf_ben-xvi_spe_20080912_parigi-juive.html) et ici au Vatican. Je rends grâce à Dieu pour ces rencontres et pour le progrès qu'elles reflètent dans les relations entre catholiques et juifs. C'est donc avec cet esprit que je vous encourage à persévérer dans votre œuvre importante avec patience et un engagement renouvelé. Je vous offre mes meilleurs vœux dans la prière, alors que votre Comité se prépare à rencontrer le mois prochain à Budapest une délégation de la Commission du Saint-Siège pour les relations religieuses avec les juifs, pour débattre sur le thème:  "Religion et société civile aujourd'hui".
+
+Chers amis, avec ces sentiments je demande au Tout-Puissant de continuer à veiller sur vous et sur vos familles et à guider vos pas le long du chemin de la paix.
+
+© Copyright 2008 - Libreria Editrice Vaticana

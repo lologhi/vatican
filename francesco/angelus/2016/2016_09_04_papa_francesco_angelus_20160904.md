@@ -1,0 +1,25 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 4 septembre  2016*
+
+\[ **[Multimedia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/9/4/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs*,
+
+Alors que nous nous apprêtons à conclure cette célébration, je désire vous saluer et vous remercier, vous tous qui y avez pris part.
+
+Avant tout les femmes et les hommes missionnaires de la charité, qui sont la famille spirituelle de mère Teresa. Que votre sainte fondatrice veille toujours sur votre chemin et obtienne que vous soyez fidèles à Dieu, à l’Église et aux pauvres.
+
+Avec un respect reconnaissant, je salue les hautes autorités ici présentes, en particulier celles des pays les plus liés à la figure de la nouvelle sainte, ainsi que les délégations officielles et les nombreux pèlerins venus de ces pays en cette heureuse circonstance. Que Dieu bénisse vos nations.
+
+C’est avec affection que je vous salue tous, chers bénévoles et agents de la miséricorde. Je vous confie à la protection de mère Teresa: qu’elle vous enseigne à contempler et à adorer chaque jour Jésus crucifié pour le reconnaître et le servir dans vos frères dans le besoin. Demandons cette grâce également pour tous ceux qui sont unis à nous à travers les *médias*, dans toutes les régions du monde.
+
+En ce moment, je voudrais rappeler tous ceux qui se prodiguent au service de leurs frères dans des contextes difficiles et dangereux. Je pense en particulier aux nombreuses religieuses qui donnent leur vie sans compter. Prions en particulier pour la sœur missionnaire espagnole, sœur Isabel, qui a été tuée il y a deux jours dans la capitale d’Haïti, un pays très éprouvé, pour lequel je souhaite que cessent ces actes de violence et qu’il y ait une plus grande sécurité pour tous. Rappelons également d’autres sœurs qui, récemment, ont subi des violences dans d’autres pays.
+
+Nous le faisons en nous adressant en prière à la Vierge Marie, Mère et Reine de tous les saints.

@@ -1,0 +1,31 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Mercredi 19 juin 2019*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/6/19/udienzagenerale.html)\]**
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+Cinquante jours après la Pâque, dans ce cénacle qui est désormais leur maison et où la présence de Marie, Mère du Seigneur, est l’élément de cohésion, les apôtres vivent un événement qui dépasse leurs attentes. Réunis en prière — la prière est le «poumon» qui donne souffle aux disciples de tous les temps; sans prière on ne peut pas être disciple de Jésus; sans prière nous ne pouvons pas être chrétiens! C’est l’air, c’est le poumon de la vie chrétienne —, ils sont surpris par l’ *irruption de Dieu*. Il s’agit d’ *une irruption qui ne tolère pas la fermeture: elle ouvre les portes* à travers la force d’un vent qui rappelle la *ruah*, le souffle primordial, et elle accomplit la promesse de la «force» faite par le Ressuscité avant son congé (cf. Ac 1, 8). Elle arrive à l’improviste, d’en-haut, «un bruit pareil à celui d’un violent coup de vent: toute la maison où ils se tenaient en fut remplie» (Ac 2, 2).
+
+Au vent s’ajoute ensuite le feu qui rappelle le buisson ardent et le Sinaï avec le don des dix paroles (cf. Ex 19, 16-19). Dans la tradition biblique, le feu accompagne la manifestation de Dieu. Dans le feu, Dieu remet sa parole vivante et énergique (cf. He 4, 12) qui ouvre à l’avenir; le feu exprime symboliquement son œuvre de réchauffer, d’illuminer et de sonder les cœurs, son soin à éprouver la résistance des œuvres humaines, à les purifier et à les revitaliser. Alors qu’au Sinaï on entend la voix de Dieu, à Jérusalem, pendant la fête de Pentecôte, c’est Pierre qui parle, le roc sur lequel le Christ a choisi d’édifier son Eglise. Sa parole, faible et même capable de renier le Seigneur, traversée par le feu de l’Esprit acquiert force, devient capable de transpercer les cœurs et d’inciter à la conversion. En effet, Dieu choisit ce qui est faible dans le monde pour confondre les forts (cf. 1 Co 1, 27).
+
+L’Eglise naît donc du feu de l’amour et d’un « *incendie*» qui éclate à la Pentecôte et qui manifeste la force de la Parole du Ressuscité imprégnée d’Esprit Saint. *L’Alliance nouvelle et définitive est fondée non plus sur une loi écrite sur des tables de pierre, mais sur l’action de l’Esprit de Dieu qui fait toutes choses nouvelles et qui se grave dans des cœurs de chair.*
+
+La parole des apôtres s’imprègne de l’Esprit du Ressuscité et devient une parole nouvelle, différente, que l’on peut cependant comprendre, presque comme si elle avait été traduite simultanément dans toutes les langues: en effet, «chacun d’eux les entendait parler sa propre langue» (Ac 2, 6). Il s’agit du *langage de la vérité et de l’amour*, qui est la *langue universelle*: même les analphabètes peuvent la comprendre. Tout le monde comprend le langage de la vérité et de l’amour. Si tu vas avec la vérité de ton cœur, avec la sincérité, et que tu vas avec amour, tous te comprendront. Même si tu ne peux pas parler, mais avec une caresse véritable et aimante.
+
+L’Esprit Saint ne se manifeste pas seulement à travers *une symphonie de sons qui unit et qui compose de manière harmonieuse les diversités,* mais il se présente comme le chef d’orchestre qui fait jouer les partitions des louanges pour les «grandes œuvres» de Dieu. L’Esprit Saint *est l’artisan de la communion, il est l’artiste de la réconciliation qui sait ôter les barrières* entre juifs et grecs, entre esclaves et hommes libres, pour en faire un seul corps. Il édifie la communauté des croyants en harmonisant l’unité du corps et la multiplicité des membres. Il fait grandir l’Eglise en l’aidant à aller au-delà des limites humaines, des péchés et de tout scandale.
+
+L’émerveillement est grand, et certains se demandent si ces hommes sont ivres. Alors Pierre intervient au nom de tous les apôtres et relit cet événement à la lumière de Joël 3, où l’on annonce une nouvelle effusion de l’Esprit Saint. Les disciples de Jésus ne sont pas ivres, mais ils vivent ce que saint Ambroise définit comme «la sobre ivresse de l’Esprit», qui allume la prophétie ai sein du peuple de Dieu, à travers des songes et des visions. Ce don prophétique n’est pas réservé seulement à certains, mais à tous ceux qui invoquent le nom du Seigneur.
+
+Dorénavant, à partir de ce moment, l’Esprit de Dieu incite les cœurs à accueillir le salut qui passe à travers une Personne, Jésus Christ, Celui que les hommes ont cloué au bois de la croix et que Dieu a ressuscité d’entre les morts «en mettant fin aux douleurs de la mort» (Ac 2, 24). C’est Lui qui a répandu cet Esprit qui orchestre la polyphonie de louanges et que tous peuvent écouter. Comme le disait [Benoît XVI](http://w2.vatican.va/content/benedict-xvi/fr.html), «la Pentecôte est cela: Jésus, et à travers Lui Dieu, vient à nous et nous attire en lui» ( [*Homélie*, 3 juin 2006](http://w2.vatican.va/content/benedict-xvi/fr/homilies/2006/documents/hf_ben-xvi_hom_20060603_veglia-pentecoste.html)). L’Esprit accomplit l’attraction divine: Dieu nous séduit par son Amour et ainsi il nous entraîne, pour faire avancer l’histoire et lancer des processus à travers lesquels filtre la vie nouvelle. En effet, seul l’Esprit de Dieu a le pouvoir d’ *humaniser et de fraterniser* chaque contexte, à partir de ceux qui l’accueillent.
+
+Demandons au Seigneur de nous faire expérimenter une nouvelle Pentecôte, qui élargisse nos cœurs et harmonise nos sentiments avec ceux du Christ, de sorte que nous annoncions sans honte sa parole transformatrice et que nous témoignions de la puissance de l’amour qui rappelle à la vie tout ce qu’il rencontre.
+
+* * *
+
+Je salue cordialement les pèlerins de Suisse, de France et d’autres pays francophones, venant en particulier de Genève, de Paris et de La Guadeloupe. Alors que nous allons célébrer la fête du Corps et du Sang du Christ, je vous invite à donner une place centrale à l’Eucharistie dans vos vies. C’est elle qui nous fait vivre de la vie du Christ. C’est elle qui fait l’Eglise. Que Dieu vous bénisse !

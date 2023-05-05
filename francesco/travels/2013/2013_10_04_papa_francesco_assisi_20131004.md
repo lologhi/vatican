@@ -1,0 +1,41 @@
+**VISITE PASTORALE À ASSISE**(4 octobre 2013)
+
+![Assisi 2013](/content/dam/francesco/images/francesco/travels/2013/img/assisi.jpg)
+
+Transmissions vidéo en direct du CTV *(Centre Télévisé du Vatican)*
+
+![Vatican Player](/content/dam/francesco/images/francesco/img/player.jpg)
+
+- [Programme](/content/francesco/fr/travels/2013/documents/papa-francesco-programma-assisi_20131004.html)
+- ***[Galerie photographique](http://www.photogallery.va/content/photogallery/fr/celebrazioni-liturgiche/assisi2013.html)***
+
+
+
+
+
+* * *
+
+
+- **[Rencontre avec les enfants malades de l'Institut séraphique (Assise, 4 octobre 2013)](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_bambini-assisi.html)**
+
+\[ [Allemand](/content/francesco/de/speeches/2013/october/documents/papa-francesco_20131004_bambini-assisi.html), [Espagnol](/content/francesco/es/speeches/2013/october/documents/papa-francesco_20131004_bambini-assisi.html), [Français](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_bambini-assisi.html), [Italien](/content/francesco/it/speeches/2013/october/documents/papa-francesco_20131004_bambini-assisi.html), [Portugais](/content/francesco/pt/speeches/2013/october/documents/papa-francesco_20131004_bambini-assisi.html)\]
+
+- **[Rencontre avec les pauvres, les chômeurs et les immigrés assistés par la Caritas à l'évêché (4 octobre 2013)](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_poveri-assisi.html)**
+
+\[ [Allemand](/content/francesco/de/speeches/2013/october/documents/papa-francesco_20131004_poveri-assisi.html), [Anglais](/content/francesco/en/speeches/2013/october/documents/papa-francesco_20131004_poveri-assisi.html), [Espagnol](/content/francesco/es/speeches/2013/october/documents/papa-francesco_20131004_poveri-assisi.html), [Français](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_poveri-assisi.html), [Italien](/content/francesco/it/speeches/2013/october/documents/papa-francesco_20131004_poveri-assisi.html), [Portugais](/content/francesco/pt/speeches/2013/october/documents/papa-francesco_20131004_poveri-assisi.html)\]
+
+- **[Messe sur la Place Saint-François d'Assise (4 octobre 2013)](/content/francesco/fr/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html)**
+
+\[ [Allemand](/content/francesco/de/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html), [Anglais](/content/francesco/en/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html), [Arabe](/content/francesco/ar/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html), [Espagnol](/content/francesco/es/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html), [Français](/content/francesco/fr/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html), [Italien](/content/francesco/it/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html), [Portugais](/content/francesco/pt/homilies/2013/documents/papa-francesco_20131004_omelia-visita-assisi.html)\]
+
+- **[Rencontre avec le clergé, les consacrés et les membres de conseils pastoraux du diocèse en la cathédrale Saint-Rufin (Assise, 4 octobre 2013)](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_clero-assisi.html)**
+
+\[ [Allemand](/content/francesco/de/speeches/2013/october/documents/papa-francesco_20131004_clero-assisi.html), [Anglais](/content/francesco/en/speeches/2013/october/documents/papa-francesco_20131004_clero-assisi.html), [Espagnol](/content/francesco/es/speeches/2013/october/documents/papa-francesco_20131004_clero-assisi.html), [Français](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_clero-assisi.html), [Italien](/content/francesco/it/speeches/2013/october/documents/papa-francesco_20131004_clero-assisi.html), [Portugais](/content/francesco/pt/speeches/2013/october/documents/papa-francesco_20131004_clero-assisi.html)\]
+
+- **Prière silencieuse devant le crucifix de saint Damien en la chapelle du chœur de la basilique Sainte-Claire (4 octobre 2013)**
+
+- **[Paroles aux clarisses (4 octobre 2013)](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_monache-assisi.html)**\[ [Allemand](/content/francesco/de/speeches/2013/october/documents/papa-francesco_20131004_monache-assisi.html), [Anglais](/content/francesco/en/speeches/2013/october/documents/papa-francesco_20131004_monache-assisi.html), [Espagnol](/content/francesco/es/speeches/2013/october/documents/papa-francesco_20131004_monache-assisi.html), [Français](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_monache-assisi.html), [Italien](/content/francesco/it/speeches/2013/october/documents/papa-francesco_20131004_monache-assisi.html), [Portugais](/content/francesco/pt/speeches/2013/october/documents/papa-francesco_20131004_monache-assisi.html)\]
+
+- **[Rencontre avec les jeunes d'Ombrie devant la basilique Sainte-Marie des Anges (4 octobre 2013)](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_giovani-assisi.html)**
+
+\[ [Allemand](/content/francesco/de/speeches/2013/october/documents/papa-francesco_20131004_giovani-assisi.html), [Anglais](/content/francesco/en/speeches/2013/october/documents/papa-francesco_20131004_giovani-assisi.html), [Espagnol](/content/francesco/es/speeches/2013/october/documents/papa-francesco_20131004_giovani-assisi.html), [Français](/content/francesco/fr/speeches/2013/october/documents/papa-francesco_20131004_giovani-assisi.html), [Italien](/content/francesco/it/speeches/2013/october/documents/papa-francesco_20131004_giovani-assisi.html), [Portugais](/content/francesco/pt/speeches/2013/october/documents/papa-francesco_20131004_giovani-assisi.html)\]

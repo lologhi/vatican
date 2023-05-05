@@ -1,0 +1,23 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU 17e CHAPITRE GÉNÉRAL***
+
+***DE LA CONGRÉGATION DES MISSIONNAIRES DE MARIANNHILL***
+
+*Salle du Consistoire*
+
+*Jeudi 20 octobre 2022*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2022/10/20/missionari-mariannhill.html)\]**
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Je suis heureux de vous saluer vous qui vous préparez à conclure votre 17e chapitre général. Je remercie le supérieur général pour ses aimables paroles de présentation et je lui adresse mes meilleurs vœux ainsi qu'au conseil.
+
+Votre chapitre se déroule après la célébration des cent premières années de vie de la congrégation et cherche à poursuivre, parmi les défis du temps présent, le zèle pour l'évangélisation qui a inspiré l'abbé Franz Pfanner et ses compagnons trappistes à poser les bases de leur apostolat particulier. Je souhaite que vos délibérations confirment la congrégation dans son charisme fondateur, qui unit la fidélité aux conseils évangéliques avec la passion pour la diffusion de l'Evangile *ad gentes*  et la croissance du Royaume du Christ en sainteté, justice et paix.
+
+Le thème du chapitre — *Solidarité: appelés à avoir un seul esprit et un seul but*  — est particulièrement d'actualité, à la lumière du parcours synodal plus vaste entrepris ces mois-ci par l'Eglise universelle, en préparation à l'assemblée du synode des évêques de l'année prochaine. Ce chemin ecclésial entend favoriser la communion, la participation et l'engagement missionnaire de tous les baptisés, à travers un processus de discernement spirituel centré sur la rencontre, l'écoute et la réflexion, pour parvenir à une ouverture toujours plus grande à la nouveauté de l'Esprit et à ses suggestions. Un élément essentiel du parcours synodal est le développement d'un plus grand sens de coresponsabilité des fidèles laïcs pour la vie et l'avenir de l'Eglise.
+
+Cette préoccupation se reflète clairement dans la référence de votre chapitre à l'appel passionné de saint Paul à la communauté chrétienne de Corinthe, d'être «en parfaite union de pensée et d'intention» (1 Co 1, 10). L'histoire de votre congrégation montre que, dès le début, la prédication de l'Evangile a été accompagnée par l'engagement d'encourager les vocations autochtones, de promouvoir un développement humain intégral au sein des communautés locales et de développer un esprit de responsabilité partagée pour le bien commun. Tout en persévérant dans vos efforts pour faire progresser cette unité et cette solidarité au service de l'Evangile, je vous encourage à cultiver une constante conversion pastorale, qui puisse trouver son expression dans toutes les dimensions de la vie et de l'activité de votre congrégation, de la formation sacerdotale et spirituelle des laïcs à la planification concrète des projets apostoliques. Si la synodalité à laquelle l'Eglise est appelée à notre époque implique une marche ensemble et une écoute ensemble, la première voix à laquelle nous devons prêter attention doit  être assurément celle de l'Esprit Saint (cf. *[Discours aux fidèles du diocèse de Rome](https://www.vatican.va/content/francesco/fr/speeches/2021/september/documents/20210918-fedeli-diocesiroma.html)*, 18 septembre 2021).
+
+Non loin de nous se trouve le grand obélisque de la place Saint-Pierre. Vous connaissez tous l'impression qu’a suscitée l'histoire de l'élévation du grand monolithe en l'abbé Pfanner. Malgré l'immense effort humain, l'obélisque ne put être sauvé de la chute au dernier moment qu'en versant de l'eau sur les cordes. Aujourd’hui, comme toujours, l'eau de l'Esprit Saint est nécessaire, non seulement pour faire croître le travail de nos mains, mais surtout pour adoucir le terrain dur de nos cœurs. Je vous assure de ma prière pour que, par une nouvelle effusion de l'Esprit, votre chapitre apporte des fruits spirituels abondants pour la croissance des missionnaires de Mariannhill dans la sainteté et dans le service fidèle à l'Evangile. Et je vous souhaite cet «adoucissement» de la charité, pas de cœurs durs, pas de fermetures: avec la charité proche et la parole douce, que l'Esprit manifeste lorsqu’il travaille dans un cœur. Et cette belle douceur: voilà mon souhait. Je vous confie, vous et vos confrères, à l'intercession aimante de Marie, Mère de l'Eglise, et je vous bénis de tout cœur. Et je vous demande de prier pour moi. Merci.

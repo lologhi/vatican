@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***À LA FÉDÉRATION NATIONALE***
+
+***DES ORDRES DES MÉDECINS CHIRURGIENS ET DES** **ODONTOLOGUES ITALIENS***
+
+*Salle Clémentine*
+
+*Vendredi 20 septembre 2019*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/9/20/medici.html)\]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je vous accueille avec plaisir, vous tous qui appartenez à la Fédération nationale des ordres des médecins chirurgiens et des odontologues, et je remercie votre vice-président pour ses paroles cordiales.
+
+Je sais que vous avez consacré ces trois dernières années aux «états généraux» de la profession médicale, c’est-à-dire que vous vous êtes confrontés sur la manière d’exercer au mieux votre activité dans un contexte social transformé, afin de mieux identifier les changements utiles pour interpréter les besoins des personnes et pour leur offrir, outre les compétences professionnelles, un bon rapport humain.
+
+La médecine est, par définition, un service à la vie humaine et, en tant que telle, elle comporte une référence essentielle et indispensable à la personne dans son intégrité spirituelle et matérielle, dans sa dimension individuelle et sociale: la médecine est au service de l’homme, de tout l’homme, de chaque homme. Et vous, médecins, êtes convaincus de cette vérité dans le sillage d’une très longue tradition qui remonte aux intuitions mêmes d’Hippocrate: et c’est précisément en raison de cette conviction que découlent vos justes préoccupations face aux dangers auxquels est exposée la médecine aujourd’hui.
+
+Il faut toujours rappeler que la maladie, objet de vos préoccupations, est plus qu’un fait clinique, circonscrit à la médecine; il s’agit toujours de la condition d’une personne, le malade, et c’est avec cette vision intégralement humaine que les médecins sont appelés à entrer en relation avec leur patient: en considérant par conséquent sa singularité en tant que personne qui a une maladie, et pas seulement le cas de la maladie qu’a ce patient. Il s’agit pour les médecins de posséder, avec la compétence technique et professionnelle requise, un code de valeurs et de significations avec lequel donner un sens à la maladie et à leur propre travail et faire de chaque cas clinique une rencontre humaine.
+
+Par conséquent, face à tout changement de la médecine et de la société que vous identifiez, il est important que le médecin ne perde pas de vue la singularité de chaque malade, avec sa dignité et sa fragilité. Un homme ou une femme à accompagner avec conscience, avec intelligence et avec cœur, surtout dans les situations les plus graves. Avec cette attitude, on peut et on doit repousser la tentation — induite aussi par les changements législatifs — d’utiliser la médecine pour seconder une possible volonté de mort du malade, en fournissant une assistance au suicide ou en causant directement sa mort au moyen de l’euthanasie.
+
+Il s’agit de voies expéditives face à des choix qui ne sont pas, comme ils pourraient le sembler, l’expression de la liberté de la personne, lorsqu’ils incluent l’élimination du malade comme une possibilité, ou de la fausse compassion face à la demande d’être aidé à anticiper sa mort. Comme l’affirme la Nouvelle charte pour le personnel de la santé: «Il n’existe pas de droit à disposer arbitrairement de sa propre vie, c’est pourquoi aucun médecin ne peut se faire le tuteur exécutif d’un droit inexistant» (n. 169).
+
+Saint Jean-Paul II fait observer que la responsabilité des professionnels de la santé «est aujourd’hui considérablement accrue; elle puise son inspiration la plus profonde et trouve son soutien le plus puissant justement dans la dimension éthique des professions de santé, dimension qui leur est intrinsèque et qu'on ne peut négliger, comme le reconnaissait déjà l'antique serment d’Hippocrate, toujours actuel, qui demande à tout médecin de s'engager à respecter absolument la vie humaine et son caractère sacré» (Enc. *[Evangelium vitae](http://w2.vatican.va/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_25031995_evangelium-vitae.html)*, n. 89).
+
+Chers amis, j’invoque sur votre engagement la bénédiction de Dieu et je vous confie à l’intercession de la Vierge Marie *Salus Infirmorum*. S’il vous plaît, n’oubliez pas de prier pour moi.

@@ -1,0 +1,31 @@
+***ADDRESS OF HIS HOLINESS JOHN PAUL II***
+
+***TO H.E. MR KIM HEUNG-SOO,***
+
+***NEW AMBASSADOR OF KOREA TO THE HOLY SEE\****
+
+*Monday, 10 July 1995*
+
+Monsieur l’Ambassadeur,
+
+1\. C’est pour moi un grand plaisir de vous accueillir au Vatican et d’accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République de Corée près le Saint-Siège. Je suis également reconnaissant pour les vœux que vous me transmettez de la part de S.E. le Président Kim Young Sam, auquel j’exprime en retour mes vœux personnels et l’assurance de mes prières.
+
+Votre présence ici aujourd’hui évoque de vifs souvenirs de mes deux visites pastorales en Corée. Je garde encore précieusement dans mon cœur la chaleur et l’hospitalité avec lesquelles j’ai été reçu par le peuple du «Pays du matin calme», et je me rappelle la bonne volonté, la courtoisie et le zèle qui sont si caractéristiques de ce peuple. Je connais également les maux et les souffrances que cause la division actuelle. Partageant pleinement votre désir de voir la péninsule coréenne à nouveau réunie, j’encourage votre gouvernement à poursuivre son engagement à œuvrer pour une résolution pacifique de la situation actuelle. Seules des politiques garantissant le dialogue sincère, l’ouverture et la collaboration, offrent de réelles possibilités d’arriver à une solution juste et durable des conflits et des querelles. Ce n’est qu’ainsi que l’on peut garantir la véritable liberté et promouvoir la conscience de la dignité de la personne humaine.
+
+2\. Le monde s’approche à grands pas d’un nouveau millénaire, et le Saint-Siège souhaite ardemment que cette occasion importante puisse marquer le début d’une nouvelle ère de paix et de compréhension. La coopération accrue dont font preuve les nations et les Organisations internationales pour affronter un grand nombre des problèmes mondiaux les plus urgents, montre des signes positifs que ce souhait peut devenir réalité. Les efforts en commun indiquent que les membres de la Communauté internationale prennent de plus en plus conscience de leur interdépendance. Les difficultés économiques, sociales et politiques qui se présentent à chaque nation individuellement n’affectent pas seulement ces pays, mais ont également des répercussions sur toute la famille des nations.
+
+Jamais n’a été aussi vrai le principe selon lequel si la paix de l’un est menacée, la paix de tous est en danger. Et aujourd’hui, en dépit des nombreux changements profonds et constructifs issus de l’histoire récente, il subsiste encore d’innombrables situations représentant une réelle menace pour la paix; des situations où les droits humains fondamentaux sont ignorés; où le bien-être intégral de la personne n’est pas reconnu, promu, ni préservé; où les intérêts particuliers l’emportent sur le bien commun; où les pauvres sont exploités par les riches, les faibles par les forts, les innocents par les malhonnêtes; où les personnes deviennent les victimes de la science et de la technologie plutôt que les bénéficiaires du progrès et du développement engendrés par le génie humain.
+
+Tous ces cas soulèvent des questions ayant des implications éthiques et morales bien précises, particulièrement en ce qui concerne la valeur unique de chaque vie humaine et l’inviolabilité de la dignité humaine. Comme je l’écrivais dans mon Message pour la Journée mondiale de la Paix, au début de cette année, «pour être efficace, \[la promotion de la paix\] ne peut pas en effet se limiter aux aspects extérieurs de la vie commune, mais elle doit influer sur les esprits et s’appuyer sur une conscience renouvelée de la dignité humaine» (n. 1).
+
+C’est précisément cette «conscience renouvelée de la dignité humaine» qui constitue le fondement de l’action du Saint-Siège dans les milieux de la diplomatie internationale et qui inspire ses efforts visant à promouvoir le respect de l’humanité. Lorsque les droits inaliénables des êtres humains sont respectés, l’injustice et les agressions sont reconnues pour ce qu’elles sont, c’est-à-dire une arrogance qui dégénère facilement en un chaos moral et qui, si elles ne sont pas contenues, feront tôt ou tard des victimes parmi tous.
+
+3\. L’un des droits humains fondamentaux devant être chéri et préservé est le droit à la liberté religieuse. Cette liberté a permis aux catholiques de Corée d’apporter une contribution importante à tous les secteurs de la société: au gouvernement, au service civil et militaire, aux écoles, aux hôpitaux et autres établissement de santé, au sein des foyers, au monde des affaires et à l’industrie. Leur œuvre vise à la gloire de Dieu et est inspiré par l’amour pour le prochain. Les efforts de l’Église catholique en Corée servent à renforcer le respect de la dignité humaine qui est à la base de toute paix et prospérité. Le maintien et le renforcement des bonnes relations entre l’Église et l’État ne peut que contribuer au bien commun, qui, comme l’observait le Concile Vatican II, «comprend l’ensemble des conditions de vie sociale qui permettent aux hommes, aux familles et aux groupements de s’accomplir plus complètement et plus facilement» (Gaudium et spes, n. 74).
+
+Excellence, votre service comme représentant de la République de Corée profitera à votre nation et au Saint-Siège dans leur tentative commune de construire une civilisation véritablement digne de la personne humaine. Les bureaux de la Curie romaine coopéreront avec vous dans l’exercice de vos fonctions. Je prie pour que dans sa bonté bienveillante, Dieu Tout-Puissant vous accorde d’abondantes Bénédictions, ainsi qu’à votre famille et au peuple de Corée.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.32/33 p.4.
+
+© Copyright 1995 \- Libreria Editrice Vaticana

@@ -1,0 +1,39 @@
+FÊTE DE SAINT ÉTIENNE PROTOMARTYR
+
+**PAPE FRANÇOIS**
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Samedi 26 décembre 2015*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/12/26/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs, bonjour !*
+
+Nous célébrons aujourd’hui la fête de la saint Étienne. Le souvenir du premier martyr suit immédiatement la solennité de Noël. Hier, nous avons contemplé l’amour miséricordieux de Dieu, qui s’est fait chair pour nous ; aujourd’hui nous voyons la réponse cohérente du disciple de Jésus, qui donne la vie. Hier le Sauveur est né sur la terre ; aujourd’hui son témoin fidèle naît au ciel. Hier comme aujourd’hui apparaissent les ténèbres du refus de la vie, mais les lumières de l’amour, qui vainc la haine et inaugure un monde nouveau brillent encore plus fort .
+
+Il existe un aspect particulier, dans le récit d’aujourd’hui des Actes des Apôtres, qui rapproche saint Étienne du Seigneur. C’est son *pardon avant de mourir* lapidé. Cloué sur la croix, Jésus avait dit : « Père, pardonne-leur parce qu’ils ne savent pas ce qu’ils font » ( *Lc* 23, 34) ; de la même manière, Étienne « fléchit les genoux et dit, dans un grand cri : “Seigneur, ne leur impute pas ce péché” » ( *Ac* 7, 60). *Étienne est donc un martyr, ce qui signifie témoin, parce qu’il fait comme Jésus*; c’est en effet un témoin véritable qui se comporte comme Lui : qui prie, qui aime, qui donne, mais surtout qui *pardonne*, car le pardon, comme le dit le mot lui-même, est l’expression la plus élevée du don.
+
+Mais — pourrions-nous nous demander — à quoi cela sert-il de pardonner ? Est-ce seulement une bonne action ou cela apporte-t-il des résultats ? Nous trouvons une réponse précisément dans le martyre d’Étienne. Parmi ceux pour qui il implora le pardon se trouvait un jeune du nom de Saul ; celui-ci persécutait l’Église et cherchait à la détruire (cf. *Ac* 8, 3). Peu après Saul devint Paul, le grand saint, l’apôtre des nations. Il avait reçu le pardon d’Étienne. Nous pouvons dire que Paul naît de la grâce de Dieu et du pardon d’Étienne.
+
+Nous aussi, *nous naissons du pardon de Dieu.* Pas seulement dans le baptême, mais chaque fois que nous sommes pardonnés notre cœur renaît, il est *régénéré*. Chaque pas en avant dans la vie de foi porte imprimé au début le signe de la miséricorde divine. Car ce n’est que quand nous sommes aimés que nous pouvons aimer à notre tour. Rappelons-le, cela nous fera du bien : si nous voulons avancer dans la foi, il faut avant tout recevoir le pardon de Dieu ; rencontrer le Père, qui est prêt à toujours pardonner pour tout, et qui précisément en pardonnant guérit le cœur et ravive l’amour. Nous ne devons jamais nous lasser de demander le pardon divin, car ce n’est que quand nous sommes pardonnés, quand nous nous sentons pardonnés, que nous apprenons à pardonner.
+
+Mais pardonner n’est pas une chose facile, c’est toujours très difficile. Comment pouvons-nous imiter Jésus ? Par où commencer pour excuser les petits ou les grands torts que nous subissons chaque jour ? Avant tout *par la prière, comme l’a fait Étienne*. Il faut commencer précisément par le cœur : nous pouvons affronter par la prière le ressentiment que nous éprouvons, *en confiant celui qui nous a fait du mal à la miséricorde de Dieu*: « Seigneur, je te demande pour lui, je te demande pour elle ». On découvre ensuite que cette lutte intérieure pour pardonner purifie du mal et que la prière et l’amour nous libèrent des chaînes intérieures de la rancœur. Il est tellement laid de vivre dans la rancœur ! Nous avons chaque jour l’occasion de nous entraîner à pardonner, pour vivre ce geste si élevé qui rapproche l’homme de Dieu. Comme notre Père céleste, devenons nous aussi miséricordieux, car à travers le pardon, *nous vainquons le mal par le bien*, nous transformons la haine en amour et nous rendons ainsi le monde plus propre.
+
+Que la Vierge Marie, à laquelle nous confions ceux qui — et ils sont malheureusement très nombreux — comme saint Etienne subissent des persécutions au nom de leur foi, nos nombreux martyrs d’aujourd’hui, oriente notre prière pour recevoir et donner le pardon. Recevoir et donner le pardon.
+
+* * *
+
+**A l’issue de l’Angélus**
+
+Chers frères et sœurs,
+
+Je vous salue tous, pèlerins provenant d’Italie et de divers pays. Je renouvelle à vous tous le souhait que la contemplation de l’Enfant Jésus, entouré de Marie et de Joseph, puisse susciter une attitude de miséricorde et d’amour réciproque dans les familles, dans les communautés paroissiales et religieuses, dans les mouvements et dans les associations, chez tous les fidèles et les personnes de bonne volonté.
+
+Ces dernières semaines, j’ai reçu de nombreux messages de vœux de Rome et d’autres lieux. Il ne m’est pas possible de répondre à chacun. C’est pourquoi je vous exprime aujourd’hui, et à tous, mes vifs remerciements, en particulier pour le don de la prière.
+
+Bonne fête de la saint Étienne et s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir !

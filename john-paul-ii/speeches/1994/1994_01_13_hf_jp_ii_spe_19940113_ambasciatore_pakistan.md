@@ -1,0 +1,33 @@
+***ADDRESS OF HIS HOLINESS JOHN PAUL II***
+
+***TO H. E. MR TARIQ KAMAL KHAN***
+
+***NEW AMBASSADOR OF THE ISLAMIC***
+
+***REPUBLIC OF PAKISTAN TO THE HOLY SEE\****
+
+*Thursday, 13 January 1994*
+
+Monsieur l’Ambassadeur,
+
+1\. J'ai grand plaisir à vous accueillir aujourd'hui au Vatican et à accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République islamique du Pakistan près le Saint-Siège. Je vous sais gré des bons vœux que vous m'avez présenté au nom de vos concitoyens. Je vous prie de transmettre à S.E. le Président mes remerciements pour son salut cordial, et de l'assurer de mes prières à Dieu Tout-Puissant, afin qu'il soutienne les dirigeants et le peuple du Pakistan dans leur travail dans un esprit de solidarité et de justice pour assurer la prospérité et le bien-être de la nation tout entière.
+
+Vous avez affirmé, M. l'Ambassadeur, l'engagement de votre gouvernement en faveur de relations internationales harmonieuses et vous avez parlé avec émotion du désir du peuple pakistanais de vivre en paix. Le Saint-Siège, conformément à sa nature particulière, veut servir la communauté des nations en soutenant des initiatives visant à réaliser cette aspiration fondamentale de tous les hommes de bonne volonté.
+
+2\. Un exemple significatif de coopération entre l'Église et l'ordre civil est la participation de la communauté catholique du monde entier à l'observation, cette année, de l'Année internationale de la Famille proclamée par les Nations unies. La communauté chrétienne cherche avec un engagement renouvelé à faire tout ce qu'elle peut pour affermir la famille, cellule de base de la société. Dans mon Message pour la Journée mondiale de la paix 1994, j'ai porté une attention particulière au lien nécessaire entre une saine vie familiale et le progrès de la cause de la paix dans le monde: «Les vertus familiales, fondées sur le profond respect de la vie et de la dignité de l'être humain, et se traduisant par la compréhension, la patience, les encouragements et le pardon mutuel, donnent à la communauté de la famille la possibilité de vivre l'expérience première et essentielle de la paix» (n. 2). La vérité, la justice, la générosité et le respect mutuels qui sont enseignés et approfondis au sein du foyer, sont les fondements nécessaires de la paix entre les nations, les races et les peuples.
+
+3\. Parce que la famille est si cruciale pour une société bien ordonnée, la menace que fait peser la pauvreté sur la paix est particulièrement grave quand les désirs matériels mettent en danger la stabilité familiale. C'est pourquoi les programmes de développement visant à éliminer les conditions qui constituent souvent un terrain favorable aux affrontements, doivent faire du bien de la famille leur plus haute priorité. Le développement ne peut servir la paix sans servir tout d'abord la famille. En fait, l'expérience montre que de nombreux projets internationaux bien intentionnés ont échoué précisément parce qu'ils ne prenaient pas en compte l'importance des structures et relations familiales dans tous les domaines des efforts humains, y compris dans l'économie, l'éducation et la sphère de la vie culturelle et sociale.
+
+4\. Parmi les vertus encouragées dans le foyer, il faut à bon droit mentionner spécialement la solidarité: une détermination persistante à servir le bien commun (cf. Sollicitudo rei socialis, n. 38). C'est dans la communion de vie partagée par la famille que ses membres sont éduqués à «cet amour oblatif capable d'accueillir l'autre dans sa différence, en assumant ses besoins et ses nécessités, et en le faisant participer à ce que l'on a soi-même» (Message pour la Journée mondiale de la Paix 1994, n. 2). Dans des sociétés comme celle du Pakistan, où des minorités distinctes vivent au milieu d'une majorité culturelle et religieuse puissante, le respect mutuel est essentiel à la solidarité, sans laquelle il ne saurait y avoir de progrès digne de ce nom.
+
+5\. Dans une telle société, la différence ne doit jamais être conçue comme un obstacle à l'unité. Elle doit plutôt être comprise comme une occasion donnée aux individus et aux groupes d'enrichir le patrimoine commun de tous. Et comme le bien commun, s'il est bien compris, est fondé sur la dignité inviolable de tous ceux qui appartiennent à une société ou à une nation, il est important que les majorités respectent les droits des minorités, tout en leur permettant de participer pleinement à la vie de la nation et de contribuer efficacement à son progrès. Parmi les droits universels qu'il faut soutenir, se trouve celui de la liberté religieuse, pierre angulaire de tous les droits de l'homme (cf. Gaudium et spes, n. 73). Il est particulièrement gratifiant de relever que dans des remarques récentes, à la fois le Président et le Premier ministre ont fait référence aux minorités en parlant de a devoir sacré» et ont réaffirmé l'engagement du gouvernement à observer et affermir les garanties constitutionnelles qui les protègent.
+
+6\. Les membres de la communauté catholique au Pakistan sont désireux d'apporter leur contribution spécifique au bien-être de leur nation, puisque, dès les origines de l'Église, on a appris à ses membres que Dieu veut que nous soyons de bons citoyens (cf. 1 P 2, 15). A ce propos, les récentes réaffirmations de la part de l'électorat des idéaux démocratiques du Pakistan et des libertés fondamentales, est particulièrement bienvenu. C'est précisément dans ce contexte social que l'Église peut poursuivre sa mission spirituelle et humanitaire. Par ses écoles, hôpitaux et œuvres de service social l'amour que commanda son Fondateur est rendu visible. Dans la vie honnête des chrétiens pakistanais, l'Église veut porter témoignage de cet ordre moral transcendant révélé par Dieu au cours des âges. Avec leurs concitoyens disciples de l'islam, les membres de la communauté catholique veulent, dans un esprit de dialogue sincère, faire cause commune pour «protéger et promouvoir la justice sociale, les valeurs morales, la paix et la liberté» (Nostra aetate, n. 3).
+
+Excellence, au commencement de votre fonction comme Ambassadeur de votre nation, je vous assure que vous pouvez compter sur la coopération de toutes les personnes qui œuvrent dans les bureaux et les dicastères du Saint-Siège. Je vous présente, ainsi qu'à toutes les personnes qui vous sont chères et à tous vos collègues, mes vœux les plus cordiaux, et j'invoque sur vous les abondantes Bénédictions divines.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.5 p.4.
+
+© Copyright 1994 \- Libreria Editrice Vaticana

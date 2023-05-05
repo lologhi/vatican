@@ -1,0 +1,31 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Salle Paul VI*
+
+*Mercredi 8 août 2018*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/8/8/udienzagenerale.html)\]**
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+Nous continuons aujourd’hui à méditer sur le Décalogue, en approfondissant le thème de l’ *idolâtrie*, nous en avons parlé la semaine dernière. Nous reprenons à présent ce thème, car il est très important de le connaître. Et nous nous inspirons de l’idole par excellence, le veau d’or, dont parle le Livre de l’Exode (32, 1-8) — nous venons d’en écouter un passage. Cet épisode se déroule dans un contexte précis: le désert où le peuple attend Moïse, qui est monté sur la montagne pour recevoir les instructions de Dieu.
+
+Qu’est-ce que le désert? C’est un lieu où règne la précarité et l’insécurité — dans le désert il n’y a rien — où manque l’eau, où manque la nourriture et où manque un abri. Le désert est une image de la vie humaine, dont la condition est incertaine et qui ne possède pas de garanties inviolables. Cette insécurité engendre chez l’homme des inquiétudes primaires, que Jésus mentionne dans l’Evangile: «Qu’allons-nous manger? Qu’allons-nous boire? De quoi allons-nous nous vêtir?» (Mt 6, 31). Ce sont les inquiétudes primaires. Et le désert provoque ces inquiétudes.
+
+Et dans ce désert se produit quelque chose qui déclenche l’idolâtrie. «Moïse tardait à descendre de la montagne» (Ex 32, 1). Il est resté là-bas quarante jours et les gens ont perdu patience. Il manque le point de référence qu’était Moïse: le leader, le chef, le guide rassurant et cela devient insoutenable. Alors, le peuple demande un dieu visible — c’est le piège dans lequel tombe le peuple — pour pouvoir s’identifier et s’orienter. Et ils disent à Aaron: «Fais-nous un dieu qui aille devant nous», «Fais-nous un chef, fais-nous un leader». La nature humaine, pour échapper à la précarité — la précarité est le désert — cherche une religion «à faire soi-même»: si Dieu ne se fait pas voir, nous nous faisons un dieu sur mesure. «Devant l’idole on ne court pas le risque d’un appel qui fasse sortir de ses propres sécurités, parce que les idoles “ont une bouche et ne parlent pas” (Ps 115, 5). Nous comprenons alors que l’idole est un prétexte pour se placer soi-même au centre de la réalité, dans l’adoration de l’œuvre de ses propres mains» (Enc. *[Lumen fidei](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20130629_enciclica-lumen-fidei.html)*, n. 13).
+
+Aaron ne sait pas s’opposer à la demande du peuple et il crée un *veau d’or*. Le veau avait un double sens dans le Proche-Orient antique: d’une part, il représentait la fécondité et l’abondance, et de l’autre l’énergie et la force. Mais surtout, il est d’or, il est donc un symbole de richesse, de succès, de pouvoir et d’argent. Ce sont les grandes idoles: succès, pouvoir et argent. Ce sont les tentations de toujours! Voilà ce qu’est le veau d’or: le symbole de tous les désirs qui donnent l’illusion de la liberté et, en revanche, rendent esclaves, parce que l’idole rend toujours esclave. Elle émane une fascination et tu vas vers elle. Cette fascination du serpent qui regarde le petit oiseau, le petit oiseau reste sans pouvoir bouger et le serpent l’attrape. Aaron n’a pas su s’opposer.
+
+Mais tout naît surtout de l’incapacité d’avoir confiance en Dieu, de placer en Lui nos sécurités, de Le laisser donner une véritable profondeur aux désirs de notre cœur. Cela permet de soutenir également la faiblesse, l’incertitude et la précarité. La référence à Dieu nous rend forts dans notre faiblesse, dans l’incertitude et également dans la précarité. Sans le primat de Dieu, on tombe facilement dans l’idolâtrie et on se contente de maigres assurances; Mais c’est une tentation que nous lisons toujours dans la Bible. Pensez bien à cela: libérer le peuple de l’Egypte n’a pas beaucoup coûté de travail à Dieu; il l’a fait avec des signes de puissance, d’amour. Mais le grand travail de Dieu a été d’enlever l’Egypte du cœur du peuple, c’est-à-dire éliminer l’idolâtrie du cœur du peuple. Et Dieu continue encore à travailler pour l’enlever de nos cœurs. Tel est le grand travail de Dieu: enlever «cette Egypte» que nous portons en nous, qui est la fascination de l’idolâtrie.
+
+Quand on accueille le Dieu de Jésus Christ, qui de riche s’est fait pauvre pour nous (cf. 2 Co 8, 9), on découvre alors que reconnaître sa propre faiblesse n’est pas le malheur de la vie humaine, mais la condition pour s’ouvrir à celui qui est vraiment fort. Alors, par la porte de la faiblesse entre le salut de Dieu (cf. 2 Co 12, 10); c’est en vertu de sa propre insuffisance que l’homme s’ouvre à la paternité de Dieu. La *liberté* de l’homme naît du fait de laisser le vrai Dieu être l’unique Seigneur. Et cela permet d’ *accepter sa propre fragilité* et *de refuser les idoles de notre cœur.*
+
+Nous chrétiens, tournons le regard vers le *Christ crucifié* (cf. Jn 19, 37), qui est faible, méprisé et dépouillé de toute possession. Mais en Lui se révèle le visage du vrai Dieu, la gloire de l’amour et non celle de la tromperie qui éblouit. Isaïe dit: «Dans ses blessures nous trouvons la guérison» (53, 5). Nous avons été guéris précisément par la faiblesse d’un homme qui était Dieu, par ses blessures. Et à partir de nos faiblesses nous pouvons nous ouvrir au salut de Dieu. Notre guérison vient de Celui qui s’est fait pauvre, qui a accepté l’échec, qui a entièrement assumé notre précarité pour la remplir d’amour et de force. Il vient nous révéler la paternité de Dieu; dans le Christ, notre fragilité n’est plus une malédiction, mais un lieu de rencontre avec le Père et la source d’une nouvelle force d’en-haut.
+
+* * *
+
+Je suis heureux de saluer les pèlerins venus de France, de Côte d’Ivoire et de divers pays francophones. Je souhaite que cette période estivale nous aide à tourner notre regard vers le Christ crucifié qui a pris jusqu’au bout notre précarité pour la combler d’amour et de force. Que le Seigneur nous aide ainsi à refuser les idoles de notre cœur. Que Dieu vous bénisse !

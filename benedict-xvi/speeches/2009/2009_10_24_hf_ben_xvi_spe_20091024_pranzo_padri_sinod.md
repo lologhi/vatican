@@ -1,0 +1,23 @@
+REPAS DE CLÔTURE DU SYNODE
+
+***PAROLES DU PAPE BENOÎT XVI***
+
+*Atrium de la Salle Paul VI*
+
+*Samedi 24 octobre 2009*
+
+*Chers frères et sœurs,*
+
+L'heure est à présent venue de dire merci. Merci avant tout au Seigneur qui nous a convoqués, nous a réunis, nous a aidés à écouter sa Parole, la voix de l'Esprit Saint, et nous a donc aussi donné la possibilité de trouver le chemin de l'unité dans la multitude des expériences, l'unité de la foi et la communion dans le Seigneur. A présent, l'expression « Eglise-Famille de Dieu » n'est plus simplement un concept, une idée, mais une expérience vivante de ces semaines:  nous avons été réellement unis, ici, en tant que Famille de Dieu. Nous avons aussi fait un bon travail, avec l'aide du Seigneur.
+
+Le thème, en soi, représentait un défi difficile, avec deux dangers, je dirais. Le thème « Réconciliation, justice et paix » implique certainement une forte dimension politique, même s'il est évident que la réconciliation, la justice et la paix ne sont possibles sans une profonde purification du cœur, sans un renouvellement de la pensée, une « metanoia », sans une nouveauté qui doit résulter justement de la rencontre avec Dieu. Même si cette dimension spirituelle est profonde et fondamentale, la dimension politique est aussi très réelle, parce que, sans réalisations politiques, ces nouveautés de l'Esprit ne se réalisent généralement pas. C'est pourquoi, la tentation pouvait être celle de donner une dimension politique au thème, de moins parler en qualité de pasteurs que d'hommes politiques, avec une compétence qui n'est pas la nôtre.
+
+L'autre danger a été ― justement pour fuir à cette tentation ― de se retirer dans un monde purement spirituel, dans un monde abstrait et beau, mais qui n'est pas réaliste. Le discours d'un pasteur doit au contraire être réaliste, doit toucher la réalité, mais dans la perspective de Dieu et de sa Parole. Cette médiation comporte donc d'une part, le fait d'être réellement en relation avec la réalité, attentifs à parler de ce qui existe, et d'autre part à ne pas tomber dans des solutions techniquement politiques; ceci veut dire indiquer une parole concrète, mais spirituelle. C'était le grand problème du [Synode](http://www.vatican.va/roman_curia/synod/index_fr.htm#II_Assembl%C3%A9e_sp%C3%A9ciale_pour_lAfrique), et il me semble que, grâce à Dieu, nous avons réussi à le résoudre, ce qui représente pour moi une source de gratitude, car l'élaboration du document post-synodal est ainsi beaucoup facilitée.
+
+Je voudrais à présent revenir aux remerciements. Je remercie surtout les présidents délégués qui ont modéré, avec une grande « souveraineté » et avec joie, les séances du [Synode](http://www.vatican.va/roman_curia/synod/index_fr.htm#II_Assembl%C3%A9e_sp%C3%A9ciale_pour_lAfrique). Je remercie les rapporteurs: nous avons aussi vu maintenant et touché ― si l'on peut ainsi dire ― de la main, qu'ils ont porté le plus grand poids du travail, ils ont travaillé la nuit et le dimanche, ils ont travaillé pendant le déjeuner et méritent donc réellement de notre part tous nos meilleurs applaudissements.
+
+Je peux maintenant vous communiquer que j'ai décidé de nommer le Cardinal Turkson nouveau président du [Conseil pontifical Justice et Paix](http://www.vatican.va/roman_curia/pontifical_councils/justpeace/index_fr.htm), succédant ainsi au Cardinal Martino. Merci, Eminence, pour avoir accepté; nous sommes heureux de vous avoir bientôt parmi nous. Merci aussi à tous les Pères, aux délégués fraternels, aux auditeurs, aux experts, et merci surtout aux traducteurs parce qu'ils ont eu un rôle dans le parcours de « créer une Pentecôte ». La Pentecôte signifie se comprendre réciproquement; sans eux, ce pont de compréhension aurait manqué. Merci! Et merci surtout au Secrétaire général, à son « *team*» *,* qui nous a conduits et a silencieusement tout très bien organisé.
+
+Le [Synode](http://www.vatican.va/roman_curia/synod/index_fr.htm#II_Assembl%C3%A9e_sp%C3%A9ciale_pour_lAfrique) se termine, mais ne finit pas, non seulement parce que les travaux continuent avec l'Exhortation post-synodale:  « *Synodos*» signifie chemin commun. Restons dans le chemin commun avec le Seigneur, allons au-devant du Seigneur pour lui préparer les routes, pour l'aider, pour lui ouvrir les portes du monde afin qu'Il puisse créer son Royaume parmi nous. C'est en ce sens que va ma Bénédiction pour vous tous. Récitons à présent la prière de remerciement pour le repas.
+
+© Copyright 2009 - Libreria Editrice Vaticana

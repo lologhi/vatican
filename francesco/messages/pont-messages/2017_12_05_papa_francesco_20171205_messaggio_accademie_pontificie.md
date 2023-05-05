@@ -1,0 +1,45 @@
+***MESSAGE DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS À LA XXIIe SÈANCE PUBLIQUE DES ACADÉMIES PONTIFICALES***
+
+*A mon vénéré frère*
+
+*le cardinal Gianfranco Ravasi,*
+
+*président du Conseil pontifical de la culture*
+
+*et du Conseil de coordination des académies pontificales*
+
+Je m’adresse à vous avec joie et gratitude, à l’occasion de la xxiie séance publique solennelle des Académies pontificales, cette manifestation qui se renouvelle chaque année depuis 1995 et qui constitue un point de référence du chemin des sept Académies pontificales réunies dans le Conseil de coordination que vous présidez. A cette manifestation est associée la remise du Prix des Académies pontificales, organisée à tour de rôle par l’une d’elles, selon le secteur de compétence, pour promouvoir et soutenir l’engagement de ceux qui, en particulier les jeunes ou les institutions qui travaillent avec les jeunes, se distinguent dans leur secteur respectif pour offrir des contributions importantes au projet que nous pourrions définir d’«humanisme chrétien».
+
+Je voudrais donc adresser mes salutations cordiales à vous tous, cardinaux, évêques, ambassadeurs, académiciens et amis qui participez à cette séance publique solennelle, en souhaitant vivement qu’une telle occasion représente pour tous, mais particulièrement pour les lauréats du Prix, un encouragement pour la recherche et l’approfondissement des thèmes fondamentaux pour la vision humaniste chrétienne.
+
+Cette édition voit pour la première fois comme protagoniste l’ *Académie pontificale Latinitatis*, qui s’est insérée dans le Conseil de coordination des Académies pontificales à la suite de son institution voulue par mon vénéré prédécesseur Benoît xvi, par le Motu proprio *Latina Lingua* du 10 novembre 2012, afin de «soutenir l’effort pour une plus grande connaissance et un usage plus compétent de la langue latine, dans le domaine ecclésial comme dans le monde plus large de la culture» (n. 4).
+
+J’adresse donc des salutations particulières au président de l’Académie, le professeur Ivano Dionigi, ainsi qu’à tous les académiciens, en les remerciant pour leur engagement actif, dont témoigne surtout la revue *Latinitas*, qui se présente comme un point de référence qualifié et compétent pour les chercheurs et les connaisseurs de la langue et de la culture latine.
+
+En outre, je me félicite avec vous du choix du thème de cette séance publique: « *In interiore homine*. Itinéraires de recherche dans la tradition latine». En effet, il entend conjuguer les itinéraires de recherche exprimés par les auteurs latins, classiques et chrétiens, avec une thématique d’une centralité absolue, non seulement dans l’expérience chrétienne mais aussi dans l’expérience simplement humaine. Le thème de l’intériorité, du cœur, de la conscience et de la connaissance de soi, en effet, se retrouve dans toutes les cultures, ainsi d’ailleurs que dans les différentes traditions religieuses et, de manière significative, il se repropose avec beaucoup d’urgence et de force à notre époque, souvent caractérisée par l’apparence, la superficialité, la scission entre le cœur et l’esprit, l’intériorité et l’extériorité, la conscience et les comportements. Les moments de crise, de changement, de transformation non seulement des relations sociales, mais avant tout de la personne et de son identité la plus profonde, invitent inévitablement à une réflexion sur l’intériorité et sur l’essence intime de l’être humain.
+
+Une page de l’Evangile nous aide à réfléchir sur la question: il s’agit de la parabole du Père miséricordieux. Au centre de celle-ci, nous lisons l’affirmation qui se réfère au «fils prodigue»: « *In se autem reversus dixit : \[…\] “Surgam et ibo ad patrem meum”*»; «Alors il rentra en lui-même et se dit: \[…\] “Je me lèverai, j’irai vers mon père”» (Lc 15, 17-18). L’itinéraire de la vie chrétienne et de la vie humaine elle-même peut bien être résumé par ce dynamisme, d’abord intérieur et ensuite extérieur, qui lance le chemin de la conversion, du changement profond, cohérent et non hypocrite et, par conséquent, du développement intégral authentique de la personne.
+
+De nombreuses figures, appartenant tant au monde classique gréco-romain qu’au monde chrétien — je pense surtout au Pères de l’Eglise et aux écrivains latins du premier millénaire chrétien —, ont réfléchi sur ce dynamisme, sur l’intériorité de l’homme, nous proposant de nombreux textes qui, aujourd’hui encore, sont d’une très grande profondeur et actualité et qui méritent de ne pas tomber dans l’oubli.
+
+Parmi tous ceux-ci, un rôle d’une prééminence absolue revient certainement à saint Augustin qui, partant de son expérience personnelle, témoignée dans les *Confessions*, nous offre des pages inoubliables et suggestives. Dans le *De vera religione*, par exemple, il se demande en quoi consiste la vraie harmonie et, résumant à la fois la sagesse antique — de la maxime «Connais-toi toi-même», gravée sur le temple d’Apollon à Delphes, aux affirmations analogues de Sénèque — et les paroles évangéliques, il affirme ceci: « *Noli foras ire, in teipsum redi; in interiore homine habitat veritas; et si tuam naturam mutabilem inveneris, trascende et teipsum*». «Ne sors pas de toi, rentre en toi-même; la vérité habite l’homme intérieur et, si tu trouves que ta nature est changeante, dépasse-toi toi-même» (39, 72).
+
+Sa réflexion devient ensuite un appel pressant dans le *Commentaire de l’Evangile de Jean*(18, 10): « *Redite ad cor: quid itis a vobis, et peritis ex vobis? Quid itis solitudinis vias?*». «Entrez dans votre cœur! Où voulez-vous aller loin de vous? En allant loin, vous vous perdrez. Pourquoi vous mettez-vous sur des routes désertes?». Puis, renouvelant son invitation, il indique le but, la patrie de l’itinéraire humain: « *Redi ad cor; vide ibi quid sentias forte de Deo, quia ibi est imago Dei. In interiore homine habitat Christus, in interiore homine renovaris ad imaginem Dei, in imagine sua cognosce auctorem eius*». «Rentre dans ton cœur; là, examine ce que tu perçois peut-être de Dieu, parce que là se trouve l’image de Dieu; le Christ habite dans l’intériorité de l’homme, dans ton intériorité tu es renouvelé à l’image de Dieu; dans son image, tu reconnais ton Créateur» (ibid.).
+
+Ces affirmations suggestives sont d’un intérêt extraordinaire également de nos jours et nous devrions nous les répéter, ainsi qu’à ceux avec qui nous partageons notre parcours humain, surtout aux plus jeunes qui commencent la grande aventure de la vie et qui, souvent, sont pris dans les labyrinthes de la superficialité et de la banalité, du succès extérieur qui cache un vide intérieur, de l’hypocrisie qui masque la scission entre les apparences et le cœur, entre un corps beau et soigné et une âme vide et sèche.
+
+Chers amis, comme saint Augustin, je voudrais moi aussi vous adresser un appel, à vous, les académiciens, aux participants à cette séance publique et surtout à ceux qui ont la tâche de l’enseignement, de la transmission de la sagesse des pères, contenue dans les textes de la culture latine; sachez parler au cœur des jeunes, sachez mettre à profit le très riche patrimoine de la tradition latine pour les éduquer au chemin de la vie et les accompagner le long de sentiers riches d’espérance et de confiance, en puisant dans l’expérience et la sagesse de ceux qui ont eu la joie et le courage de «rentrer en eux-mêmes» pour suivre leur propre identité et leur vocation humaine.
+
+Voulant à présent encourager et soutenir ceux qui, dans le cadre de leurs études sur la langue et la culture latine, se prodiguent pour offrir une contribution sérieuse et valable à l’humanisme chrétien, je suis heureux d’attribuer le Prix des Académies pontificales, *ex æquo*, à M. Pierre Chambert-Protat pour sa thèse de doctorat sur Florus de Lyon et à M. Francesco Lubian pour sa publication critique des *Disticha*, attribués à saint Ambroise.
+
+En outre, pour encourager l’étude du patrimoine de la culture latine, je suis heureux d’attribuer la médaille du Pontificat à Mme Shari Boodts pour l’édition critique des *Sermones* de saint Augustin, et au groupe de professeurs de latin de l’université de Toulouse 2, pour la publication d’un précieux manuel de latin pour universitaires.
+
+Enfin, je souhaite aux académiciens et à tous les participants à cette rencontre un engagement toujours plus fécond dans les domaines de recherche respectifs et je confie tous et chacun de vous à la Vierge Marie, modèle d’intériorité, qui nous est proposée à deux reprises dans l’Evangile de Luc comme celle qui « *conservabat omnia verba haec conferens in corde suo*» (Lc 2, 19). Qu’elle vous aide à garder toujours la Parole de Dieu dans votre cœur pour en faire la source lumineuse et inépuisable de tous vos engagements.
+
+De tout cœur, je vous donne à tous, ainsi qu’à vos familles, une Bénédiction apostolique particulière.
+
+*Du Vatican, le 5 décembre 2017*
+
+**François**

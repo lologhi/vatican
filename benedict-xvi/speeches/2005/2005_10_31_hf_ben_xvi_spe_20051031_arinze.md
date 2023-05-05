@@ -1,0 +1,11 @@
+***DISCOURS*** ***DU PAPE BENOÎT XVI*** ***AU CARDINAL FRANCIS ARINZE POUR LE***
+
+***40 ANNIVERSAIRE DE SON ORDINATION ÉPISCOPALE** Lundi 31 octobre 2005*
+
+*Votre Eminence,*
+
+Je suis heureux de vous recevoir avec vos amis de la communauté nigériane de Rome, ainsi que d'autres visiteurs provenant de votre pays qui ont voulu s'unir à vous à l'occasion de la célébration du quarantième anniversaire de votre Ordination épiscopale. Je vous exprime volontiers mes sincères félicitations et mes meilleurs voeux à cette occasion.
+
+Hier, dans l'Eglise "Santa Maria in Traspontina", vous avez célébré une Messe solennelle d'action de grâce à Dieu Tout-Puissant pour le don de quarante années de ministère épiscopal. Aujourd'hui, je suis heureux d'unir mes prières à vos intentions et je demande au Seigneur d'être votre guide et votre force alors que vous continuez à servir l'Eglise avec amour et avec zèle. En invoquant sur Votre Eminence, à travers l'intercession de Marie, la Mère de Dieu, les dons divins de joie et de paix, je vous donne de tout coeur, ainsi qu'à tous ceux qui participent à cette belle célébration, ma Bénédiction apostolique.
+
+© Copyright 2005 - Libreria Editrice Vaticana

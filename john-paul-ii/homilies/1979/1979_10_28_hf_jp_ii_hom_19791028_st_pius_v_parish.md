@@ -1,0 +1,45 @@
+VISITE À LA PAROISSE ROMAINE SAINT-PIE V
+
+***HOMÉLIE DU PAPE JEAN-PAUL II***
+
+*28 octobre 1979*
+
+*Très chers frères et sœurs !*
+
+"À vous grâce et paix de par Dieu et le Seigneur Jésus Christ" (1 *Th* 1, 2).
+
+1\. Je suis vraiment heureux de me trouver aujourd'hui parmi vous, fidèles de la paroisse dédiée à mon saint prédécesseur Pie V, Antoine Ghislieri, qui occupa le trône de Saint Pierre de 1566 à 1572 et est connu spécialement comme "le Pape du Rosaire" pour l'impulsion qu'il donna, par son exemple et son enseignement. à la diffusion de cette dévotion si chère au cœur du peuple chrétien. Ma visite, accomplie presqu'à la fin du mois d'octobre particulièrement consacré à la Vierge du Rosaire, a pour intention d'être comme un acte de réelle admiration pour saint Pie V, et tout autant de fervente vénération envers la Très Sainte Vierge Marie qui, depuis des siècles est saluée, dans cette zone, par le titre significatif de Madonna del Riposo — Notre Dame du Repos.
+
+Mais il y a encore d'autres motifs qui m'ont incité à venir parmi vous: la proximité topographique de votre paroisse avec la Basilique St-Pierre et avec le Siège apostolique où réside le Pape ; le "jeune âge" — à peine 27 ans — de votre paroisse qui doit sa constitution juridique en 1952 au Pape [Pie XII](http://www.vatican.va/holy_father/pius_xii/index_fr.htm) de vénérée mémoire et fut édifiée grâce au financement de la Congrégation dite à l'époque "du Saint-Office"; en outre les liens spirituels qui m'unissent depuis quelques années aux prêtres de cette paroisse où j'ai célébré la sainte messe à diverses reprises et où j'ai conféré le sacrement de la Confirmation en octobre 1977. Depuis quelques années ce lien s'est renforcé également par la présence dans votre clergé d'un prêtre polonais de l'Archidiocèse de Cracovie qui m'était confié avant mon élection au souverain pontificat.
+
+Nombreux sont ceux parmi vous qui, connaissant mon "amitié" pour votre paroisse, m'ont invité lors des audiences générales du mercredi, insistant vivement pour que je vienne chez vous.
+
+2\. Me voilà donc ici ! Aujourd'hui je suis avec vous et pour vous ! Pour ceux qui sont présents et pour ceux qui n'ont pu venir. Je désire me tenir parmi vous pour sentir battre le cœur et la vie de votre communauté qui comprend quelque 4.500 familles, au total environ 20 mille personnes. Un tel accroissement de la population, réalisé au cours de ces récentes années, a posé et pose de nombreux problèmes, même et spécialement de caractère religieux et pastoral. Grâce au zèle du curé et des prêtres qui collaborent avec lui, votre paroisse exerce une activité variée qui se développe dans divers groupes aux fins catéchistique, caritative, liturgique où chacun de vous — à tout âge et à tout niveau — peut trouver un espace pour son propre engagement chrétien. Je m'adresse spécialement aux jeunes car c'est eux qui peuvent et doivent apporter la contribution la plus vive, la plus dynamique aux diverses initiatives pastorales et apostoliques de votre communauté.
+
+3\. En la présente circonstance, célébrant pour vous le Très Saint Sacrifice, je désire méditer avec vous et demander, à vous comme à moi: Que nous disent, à nous qui nous trouvons réunis dans ce temple, les lectures liturgiques de ce jour ? Que disent-elles précisément à la paroisse Saint-Pie V ? Avant tout, elles nous parlent du Christ qui est "prêtre pour l'éternité, à la manière de Melchisédech" ( *He* 5, 6). L'épître aux Hébreux nous enseigne que le Christ est devenu prêtre en tant que Fils de Dieu qui a assumé la nature humaine. Fils, il l'est éternellement par Dieu son Père. Devenant homme, précisément comme Fils, entièrement consacré au Père il devint, du fait même. Prêtre. En effet, sacerdoce veut dire consécration: consécration, de soi-même à Dieu, et consécration, en soi, de toute créature à Dieu. Jésus-Christ est la plénitude de cette consécration. En lui et par lui tout le monde, l'humanité tout entière, tout homme et tout ce qui est créé sont de manière plus parfaite consacrés, restitués à Dieu.
+
+Une paroisse — votre paroisse — signifie une communauté d'hommes qui, à partir du Baptême, sont personnellement et socialement liés au sacerdoce du Christ : à cette consécration du Christ à Dieu, Créateur et Père. Vous êtes une paroisse avant tout grâce au fait qu'il est ici, parmi vous, avec vous, en vous.
+
+Son éternel sacerdoce qui a atteint sa plénitude historique dans le sacrifice de la Croix, est revêtu d'un signe visible. Le Christ est prêtre "à la manière de Melchisédech".
+
+À la manière de ce mystérieux prêtre-roi des temps d'Abraham, il célèbre, lui aussi, la mémoire de son sacrifice unique offert dans son propre corps et sang sur la croix, le rend présent et le renouvelle dans l'Église comme le sacrifice sacramentel du pain et du vin. Ce sacrifice trace le rythme de la vie de l'Église ; de votre paroisse également.
+
+Dans ce sacrifice, le Christ crée cette paroisse, parce qu'il est avec vous. II est avec tous et chacun, tel Celui qui "compatit" ; il est donc également avec "les ignorants et les égarés" ( *He* 5, 2), tel Celui qui, s'offrant lui même en sacrifice pour les péchés, peut et désire rapprocher tout le monde des sources de la vérité et de la sainteté.
+
+Pour conclure cette partie de notre réflexion sur la lecture liturgique d'aujourd'hui nous nous dirons ceci : "Nous, communauté de Saint-Pie V, nous sommes une paroisse parce que nous restons dans la vivante union avec le sacerdoce du Christ ; parce que nous y participons".
+
+4\. Continuons notre méditation sur la Parole de Dieu dans la liturgie d'aujourd'hui. Ce mendiant aveugle, Bartimée, que le Christ avait fait venir devant lui, lui adressa la principale demande de toute sa vie : Rabbouni, que je voie !" ; il reçut la vue et la réponse : "Va, ta foi t'a sauvé" ( *Mc* 10, 51-52).
+
+Je pense, chers paroissiens de St-Pie V, que votre paroisse est un lieu où nombreux sont ceux qui doivent au Christ le don de la vue spirituelle : le don de la foi grâce à laquelle nous connaissons Dieu et "les merveilles de Dieu" ( *Ac* 2, 11) dans l'histoire de l'homme. Oui, la paroisse existe, parce que, dans ce fait de "voir" au moyen de la foi, né du Saint-Esprit, nous nous complétons réciproquement, nous nous aidons l'un l'autre à nous éduquer. Bien que "voir au moyen de la foi" soit le fruit de la grâce de Dieu lui-même en faveur de l'âme humaine, en faveur de notre intelligence, ceci est en même temps, toutefois, confié à notre sollicitude humaine et à notre zèle.
+
+Ceci est également confié à l'action de l'Église, à son enseignement, à sa catéchèse. C'est la fonction principale de la paroisse. Et dans la paroisse cette tâche ne revient pas seulement aux prêtres en tant que maîtres de la foi, mais également aux autres personnes : aux religieuses et aux laïcs. Et en ce domaine, le devoir de la famille a une importance fondamentale toute particulière. C'est précisément à l'adresse des parents que j'ai dit, dans l'Exhortation apostolique *[Catechesi Tradendae](http://www.vatican.va/holy_father/john_paul_ii/apost_exhortations/documents/hf_jp-ii_exh_16101979_catechesi-tradendae_fr.html)*: "L'action catéchétique de la famille a un caractère particulier, et, dans un certain sens, irremplaçable (...) Cette éducation de la foi par les parents — qui doit commencer dès le plus jeune âge des enfants — s'accomplit déjà lorsque les membres d'une famille s'aident les uns les autres à croître dans la foi grâce à leur témoignage de vie chrétienne souvent silencieux, mais persévérant au fil d'une vie quotidienne vécue selon l'Evangile" (n. 68).
+
+Toutefois, il ne faut pas oublier qu'il y a certainement parmi nous, dans cette paroisse, un grand nombre de personnes qui "ne voient pas", qui "sont aveugles" devant Dieu et devant ses merveilles. Elles persistent et insistent dans cette attitude. Et il se peut même qu'elles fassent de ce "sans foi" un programme qu'elles voudraient inoculer ou imposer aux autres... Est vraiment énorme l'importance de la paroisse comme communauté de foi, comme communauté de croyants. Enorme est également sa mission, sa vocation apostolique. Jésus-Christ, notre Sauveur, "a détruit la mort et a fait resplendir la vie et l'immortalité par le moyen de l'Evangile" (2 *Tm* 1, 10).
+
+5\. La paroisse est un lieu d'évangélisation. Elle est donc un lieu de grand et multiple travail, semblable à celui de l'agriculteur dont parle la liturgie de ce jour: "Il marche tout en pleurant, celui qui porte la semence des semailles... Ceux qui sèment dans les larmes, moissonnent avec des cris de joie" ( *Psaume*, 126-125, 6. 5).
+
+En une circonstance qui m'est si chère, la visite à votre paroisse, je veux vous souhaiter ce multiple travail, cette fatigue et peut-être même ces larmes dont parle le psalmiste, qui vous apporteront ensuite les fruits de ce travail: cette moisson, ces gerbes qui se récoltent avec une joie tout ensemble humaine et divine.
+
+Amen !
+
+© Copyright 1979 - Libreria Editrice Vaticana

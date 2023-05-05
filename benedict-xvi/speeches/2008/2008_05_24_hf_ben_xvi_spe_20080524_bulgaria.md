@@ -1,0 +1,33 @@
+***DISCOURS*** ***DU PAPE BENOÎT XVI***
+
+***À LA**DÉLÉGATION DE LA RÉPUBLIQUE DE BULGARIE***
+
+***À L'OCCASION DES CÉLÉBRATIONS EN L'HONNEUR***
+
+***DES SAINTS CYRILLE ET MÉTHOD*** ***E\****
+
+*Samedi 24 mai 2008*
+
+*Messieurs les membres*
+
+*du gouvernement,*
+
+*et éminentes autorités,*
+
+*Vénérés frères représentants*
+
+*de l'Eglise orthodoxe*
+
+*et de l'Eglise catholique!*
+
+Comme chaque année, j'ai le plaisir de vous souhaiter une cordiale bienvenue à tous, membres de la délégation officielle bulgare, venus à Rome à l'occasion de la fête des saints Cyrille et Méthode, vénérés tant en Orient qu'en Occident. La mémoire liturgique de ces deux saints frères revêt pour la Bulgarie une haute valeur symbolique et constitue, dans le même temps, un important événement culturel. Leur souvenir stimule en effet chez les croyants, tant orthodoxes que catholiques, le vif désir d'offrir au pays un encouragement significatif à approfondir le riche patrimoine chrétien, dont les origines remontent précisément à l'initiative inlassable des deux grands évangélisateurs originaires de Thessalonique. Le signe de cet engagement commun est la composition de votre délégation, conduite par le vice premier ministre et constituée par des représentants des diverses Eglises et institutions culturelles présentes en terre bulgare.
+
+L'oeuvre d'évangélisation réalisée avec une grande ardeur apostolique par les saints Cyrille et Méthode sur le territoire habité par les peuples slaves, doit encore aujourd'hui faire l'objet de notre attention, parce qu'elle constitue un modèle d'inculturation de la foi, dans ses éléments essentiels, même à l'époque post-moderne. L'Evangile, en effet, n'affaiblit pas ce qu'il y a d'authentique dans les différentes traditions culturelles, mais aide l'homme de tous les temps à reconnaître et à réaliser le bien authentique, éclairé par la splendeur de la vérité. La tâche des chrétiens est donc de conserver et de renforcer le lien intrinsèque existant entre l'Evangile, la mission des disciples du Christ et leur  identité culturelle respective. Redécouvrir les racines chrétiennes est important pour contribuer à construire une société où soient présentes les valeurs spirituelles et culturelles qui naissent de l'Evangile. Des valeurs et des idéaux qui alimentent une incessante union avec Dieu, comme le démontre l'existence des saints Cyrille et Méthode, qui ont constamment tissé des liens de connaissance et de cordialité mutuelles entre des peuples différents et des cultures et des traditions diverses. J'ai voulu le rappeler dans mon Encyclique *[Spe salvi](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20071130_spe-salvi.html)*:  si nous sommes en relation avec Celui qui ne meurt pas, qui est Lui-même la Vie et l'Amour, alors nous sommes dans la vie, nous pouvons nouer des relations de solidarité authentique avec notre prochain (cf. n. 27).
+
+Je souhaite de tout cœur que notre rencontre puisse être pour vous tous ici présents et pour les réalités ecclésiales et civiles que vous représentez, un motif de relations fraternelles et solidaires toujours plus intenses. Que le Seigneur bénisse votre bien-aimé pays et tous ses citoyens.
+
+* * *
+
+\* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.22 p.2.
+
+© Copyright 2008 - Libreria Editrice Vaticana

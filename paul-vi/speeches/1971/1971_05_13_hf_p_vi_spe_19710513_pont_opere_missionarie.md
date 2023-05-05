@@ -1,0 +1,51 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***À LA RÉUNION ANNUELLE***
+
+***DES CONSEILS SUPÉRIEURS ET DES DIRECTEURS NATIONAUX***
+
+***DES Œ UVRES PONTIFICALES MISSIONNAIRES***
+
+*Jeudi 13 mai 1971*
+
+*Cher Monsieur le Cardinal,*
+
+*Frères et Fils bien aimés,*
+
+Nous sommes heureux de profiter de votre réunion annuelle des Conseils supérieurs et des Directeurs nationaux des Œ uvres pontificales missionnaires pour vous exprimer Notre vive satisfaction et Nos chaleureux encouragements.
+
+Vous composez en effet un réseaux de mieux en mieux organisé, qui étend ses ramifications jusqu’aux extrémités de la terre. Si l’on peut comparer la grande entreprise missionnaire, qui recouvre toute l’Eglise, à un arbre plein de vigueur (Cfr. *Matth*. 10, 32), vous en êtes en quelque sorte les racines cachées, chargées de nourrir et de soutenir l’élan apostolique qui fait sourdre l’Esprit Saint.
+
+Tout d’abord, vous contribuez à rendre plus organique l’activité de l’Eglise pour les missions. Car il ne suffit point de disposer de bonnes volontés, d’ouvriers prêts à travailler dans la vigne du Seigneur ( *Ibid*. 20, 1): encore faut-il que ceux-ci soient réellement embauchés, encouragés, orientés vers les secteurs de la vie missionnaire où le travail se fait plus urgent. Pour ce faire, votre collaboration étroite avec le Dicastère chargé de l’évangélisation des peuples s’avère précieuse et nécessaire.
+
+COLLABORATION ET PRIÈRE
+
+Mais votre rôle n’est pas moins important au sein du Peuple de Dieu. L’œuvre missionnaire ne connaîtra de vigueur, d’ampleur et d’efficacité durable que si tous les fidèles sont pénétrés du grand dessein apostolique que le Seigneur a fixé à son Eglise (Cfr. *Marc*. 16, 15), et qui demeure lit j leur propre foi, à leur baptême, à leur confirmation, comme l’a opportunément rappelé le décret conciliaire *[Ad Gentes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651207_ad-gentes_fr.html)* (Cfr. 11). Or cette flamme doit être sans cesse ravivée. Ceux qui se consacrent plus spécialement à l’activité missionnaire ont eux-mêmes besoin d’éprouver, derrière eux ou plutôt avec eux, l’intérêt, la prière, le soutien, la collaboration de leurs compatriotes. N’est-ce pas dans ce contexte que vous pouvez d’ailleurs le mieux favoriser l’éveil et la croissance de vocations de prêtres, de religieux de religieuses et de laïcs «missionnaires»? Ce faisant, vous édifiez spirituellement l’Eglise, où chaque pierre vivante doit trouver sa place au bénéfice de l’ensemble (Cfr. *1 Petr*. 4, 5). De grand cœur Nous rendons hommage à tous les efforts qui ont été déployés depuis quelques années, aux niveaux diocésain, national et international, pour approfondir cette prise de conscience au cœur du Peuple de Dieu.
+
+Enfin, bien sûr, avec le réalisme qui guidait déjà saint Paul, vous prenez soin de susciter et de recueillir les offrandes des fidèles, et d’en organiser l’affectation selon les besoins les plus urgents. Sans ces collectes qui permettent aux chrétiens de donner le témoignage concret de leur participation active, - nos Frères des diocèses dits missionnaires ne le savent que trop, - la prédication de la Parole de Dieu et la croissance des jeunes Eglises seraient elles-mêmes gravement entravées.
+
+C’est dire, chers amis, l’encouragement profond que Nous tenons à vous renouveler aujourd’hui et dont Nous souhaitons qu’il soit largement entendu! Votre activité au service de l’Eglise est plus que jamais nécessaire: il vous faut inlassablement l’adapter aux nécessités actuelles pour la rendre encore plus efficace. Nous craignons en effet qu’en certains pays une moindre estime du travail spécifiquement missionnaire ne vienne refroidir le zèle des fidèles et des pasteurs.
+
+APPEL AU PEUPLE DE DIEU
+
+Prions l’Esprit Saint de susciter au cœur de tous les pasteurs et de tous les fidèles le cri de l’Apôtre des gentils: «Malheur à moi si je n’annonçais pas l’Evangile» ( *1 Cor*. 9, 16). N’est-ce pas là, aujourd’hui comme hier, la pierre de touche d’une véritable foi? Par votre entremise, Nous lançon cet appel, comme Nous l’avons fait na,- guère de Pago-Pago, à tous nos Frères, à tous nos Fils catholiques.
+
+L’accueil des missionnaires, le don pour les missions méritent, vous le savez, la récompense promise par le Seigneur en conclusion de son discours apostolique, lorsqu’il envoya lui-même les Douze en mission: «Qui accueille un prophète en qualité de prophète recevra une récompense de prophète . . . Et quiconque donnera à boire, ne fût-ce qu’un verre d’eau fraîche, à l’un de ces petits parce qu’il est un disciple, en vérité je vous le dis il ne perdra pas sa récompense» ( *Matth*. 10, 41-42).
+
+A vous qui êtes chargés de promouvoir une large collaboration missionnaire dans toute l’Eglise, Nous redisons, avec notre gratitude, toute Notre bienveillance, et Notre totale confiance. Et au nom du Seigneur, Nous vous bénissons.
+
+*Nella stessa udienza il Santo Padre dà uno speciale saluto ai due Segretari Aggiunti testé nominati dalla Sacra Congregazione per l’Evangelizzazione dei Popoli, i Monsignori Bernardin Gantin e Simon Duraisamy Lourdusamy.*
+
+*Saluto ai nuovi Segretari Aggiunti della Congregazione per l’Evangelizzazione dei popoli*
+
+*Vénérables Frères et chers Fils,*
+
+Cette audience Nous offre l’heureuse occasion de saluer publiquement, pour la première fois, les deux nouveaux Secrétaires Adjoints de la Sacrée Congrégation pour l’Evangélisation des Peuples, Nous voulons dire nos Frères vénérés dans l’Episcopat, Monseigneur Bernardin Gantin, jusqu’ici Archevêque de Cotonou, au Dahomey, en Afrique Occidentale, et Monseigneur Simon Duraisamy Lourdusamy, jusqu’ici Archevêque de Bangalore, en Inde, en Asie méridionale.
+
+Nous devrions faire l’éloge de ces deux excellents et zélés pasteurs pour mettre en lumière le motif de leur choix, car c’est en raison de leurs vertus épiscopales qu’ils ont été appelés à exercer leur activité dans ce grand et très important dicastère de la Curie Romaine, qui a pour but de promouvoir, d’assister et de diriger la diffusion de l’Evangile du Christ et de l’Eglise catholique dans les régions immenses confiées à l’apostolat missionnaire. Leur expérience, leur zèle, leur spiritualité sacerdotale ont montré qu’ils étaient dignes et capables de la charge que Nous venons de leur confier: leurs mérites, en effet, Nous ont suggéré de les nommer membres responsables et dirigeants de la célèbre, précieuse et historique Congrégation de «Propaganda Fide», appelée depuis le Concile Congrégation pour l’Evangélisation des Peuples. C’est donc avec une particulière estime et une fraternelle affection que Nous les saluons et les accueillons, comme membres du Siège Apostolique et collaborateurs, avec le titre de Secrétaires Adjoints, de Monseigneur Sergio Pignedoli, l’excellent et très actif Secrétaire de cette Congrégation, tous les trois aux côtés de notre cher et vénéré Cardinal Préfet Agnelo Rossi, lui aussi enlevé au fécond ministère pastoral qu’il accomplissait exemplairement à San Paolo, au Brésil, pour succéder au très méritant Cardinal Agagianian, contraint par l’âge et la mauvaise santé à laisser la Préfecture de «Propaganda», sagement tenue par lui pendant de longues années.
+
+Nous avons donc renouvelé et élargi la direction de cette Congrégation. C’était nécessaire, non parce qu’elle ne répondait pas à sa fin, mais pour deux autres raisons. La première, c’est l’ampleur accrue de la tâche à accomplir: elle s’étent à presque neuf cents circonscriptions ecclésiastiques et s’exerce, dans une mesure variée, dans presque tous les continents du monde, prenant par là des dimensions telles qu’elles exigent quelque développement et quelque articulation nouvelle dans l’organisme central, placé au service de la cause missionnaire qui est sans limites. La seconde raison est indiquée par l’origine ethnique des personnes nouvelles aux mains desquelles est confié le gouvernail de direction lui-même. A personne n’échappera la signification historique du choix que Nous avons fait d’un Cardinal brésilien pour la Préfecture de ce dicastère ecclésiastique, comme aussi d’un Africain et d’un Asiatique, auprès d’un Européen Italien, au Secrétariat de cette Congrégation. Nous entendons par là reconnaître, récompenser, encourager l’Eglise missionnaire, en choisissant dans ses plus vastes - et Nous voudrions dire ses plus symboliques - expressions géographiques et ethniques, nos collaborateurs le plus proches dans la direction pastorale de cette même Eglise missionnaire, la déclarant ainsi préparée pour accéder aux responsabilités supérieures du gouvernement central du Peuple de Dieu. Nous avons l’assurance que vos chers diocésains, partageant avec vous le sacrifice d’une séparation nécessitée par votre venue à Rome, y discernent en même temps le signe d’une participation plus profonde à l’Eglise universelle et l’occasion d’un amour plus intense pour elle.
+
+Frères vénérés, Monseigneur Gantin et Monseigneur Lourdusamy, soyez les bienvenus! Vous introduisez, dans cette famille romaine qu’est le Siège Apostolique, la fraternité que Nous avons toujours reconnue au clergé et au laïcat autochtones des territoires de mission, mais que, maintenant, Nous estimons digne et capable d’apporter votre contribution active et originale, dans un service direct et une commune responsabilité. Soyez les bienvenus! Et donnez à cette Eglise romaine et à sa charge apostolique les énergies nouvelles, les charismes particuliers, dont votre vocation catholique vous a enrichis, grâce au mérite, qu’on n’appréciera jamais assez, de tant en tant de missionnaires, et grâce à l’effusion mystérieuse de l’Esprit Saint! Soyez les bienvenus ! Et, de ce coeur situé au centre du Corps mystique visible du Christ qu’est la sainte Eglise, une, catholique et apostolique, faites sentir à vos lointaines Eglises locales, bien plus à toute l’Eglise dans le monde, la vocation commune et ineffable au salut que l’humanité ne peut trouver que dans le nom de Jésus-Christ. Plus qu’un honneur, c’est un devoir, jusqu’à la Croix, qui vous attend.
+
+Frères vénérés, devenus Nos collaborateurs dans le ministère apostolique, à vous Notre confiance, Notre bienveillance, Notre Bénédiction.

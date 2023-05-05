@@ -1,0 +1,25 @@
+***LETTRE DU PAPE BENOÎT XVI*** ***À SA SAINTETÉ ALEXIS II***
+
+***PATRIARCHE DE MOSCOU ET DE TOUTES LES RUSSIES***
+
+A Sa Sainteté
+
+Alexis II
+
+Patriarche de Moscou
+
+et de toutes les Russies
+
+La visite en Russie de Son Eminence le cardinal Walter Kasper m'offre une heureuse opportunité de vous saluer cordialement, de vous exprimer mon estime pour votre ministère dans l'Eglise orthodoxe russe et de réaffirmer mon appréciation pour votre engagement dans la promotion des relations entre catholiques et orthodoxes. C'est avec joie que je pense à l'expérience de notre rapprochement grandissant, accompagné du souhait partagé de promouvoir d'authentiques valeurs chrétiennes et de témoigner de Notre Seigneur dans une communion encore plus profonde. Je pense avec gratitude à la visite récente de Votre Sainteté à Strasbourg et Paris, et de l'accueil chaleureux réservé à l'archevêque catholique de l'archidiocèse de la Mère de Dieu, à Moscou, au cours des célébrations de Noël de l'année dernière.
+
+Je vois un autre signe de fraternité et d'amitié envers l'Eglise catholique dans l'invitation adressée au cardinal Kasper par Son Eminence Cyril, métropolite de Smolensk et Kaliningrad, président du Département pour les Affaires ecclésiastiques étrangères du Patriarcat de Moscou, à rendre visite à cette éparchie à l'occasion de sa fête. La présence du cardinal Kasper n'est pas seulement un signe de bonne volonté, mais aussi un geste envers l'Eglise catholique que le cardinal Kasper représente.
+
+Au cours de sa visite en Russie, le cardinal Kasper se rendra à Kazan pour vénérer l'icône de la Mère de Dieu, don à Votre Sainteté de mon bien-aimé prédécesseur, le Pape Jean-Paul II, par l'intermédiaire du cardinal Kasper, qui raccompagna en personne l'image sacrée dans son pays d'origine. Cette icône ressemble à toutes les autres icônes vénérables de la Mère de Dieu et, comme telle, est un signe puissant de la proximité qui existe entre nous. Elle nous offre également une occasion de rencontrer les musulmans, qui montrent un grand respect pour Marie, la Mère de Dieu. Votre Sainteté s'est toujours plus engagée dans le dialogue avec les autres chrétiens et les membres des autres religions, et c'est avec une profonde gratitude que j'ai suivi dans la prière et avec intérêt les signes d'amitié et de confiance que votre Eglise et ses représentants ont manifesté de différentes manières.
+
+Reconnaissant pour votre engagement dans le dialogue avec différents organismes ecclésiaux, religieux et sociaux, je vous adresse, en ce temps pascal, mes vœux les meilleurs et les plus chaleureux pour votre ministère, en confiant au Seigneur ma prière afin que le grand mystère de notre salut, la mort et la résurrection de Notre Seigneur, puisse guider plus profondément votre vie et votre service à l'Eglise. Que le Seigneur ressuscité vous donne la santé, la paix et la joie intérieure et nous rapproche davantage les uns des autres, afin que nous puissions parcourir ensemble le chemin vers la pleine communion en Lui!
+
+*Cité du Vatican, le 19 mai 2008*
+
+**BENEDICTUS PP. XVI**
+
+© Copyright 2008 - Libreria Editrice Vaticana

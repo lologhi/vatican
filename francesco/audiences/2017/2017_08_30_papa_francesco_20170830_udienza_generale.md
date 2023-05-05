@@ -1,0 +1,33 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Mercredi 30 août 2017*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/8/30/udienzagenerale.html)\]**
+
+* * *
+
+*Chers frères et sœurs, bonjour!*
+
+Aujourd’hui, je voudrais revenir sur un thème important: le rapport entre l’espérance et la mémoire, avec une référence particulière à la mémoire de la vocation. Et je prends comme icône l’appel des premiers disciples de Jésus. Dans leur mémoire, cette expérience demeura tellement gravée qu’un d’entre eux en indiqua même l’heure: «C’était environ la dixième heure» (Jn 1, 39). L’évangéliste Jean raconte l’épisode comme un souvenir précis de jeunesse, demeuré intact dans sa mémoire de personne âgée: parce que Jean écrivit ces choses quand il était désormais âgé.
+
+La rencontre a eu lieu près du fleuve Jourdain, où Jean-Baptiste baptisait; et ces jeunes de Galilée avaient choisi Jean-Baptiste comme guide spirituel. Un jour, Jésus vint et se fit baptiser dans le fleuve. Le lendemain, il passa de nouveau et alors le Baptiseur — c’est-à-dire Jean-Baptiste —, dit à deux de ses disciples: «Voici l’agneau de Dieu!» (v. 36).
+
+Et pour ces deux personnes, c’est l’«étincelle». Elles quittent leur premier maître et se placent à la suite de Jésus. Sur le chemin, Il se tourne vers elles et pose la question décisive: «Que cherchez-vous?» (v. 38). Jésus apparaît dans les Evangiles comme un expert du cœur humain. A ce moment-là, il avait rencontré deux jeunes en recherche, sainement inquiets. En effet, quelle jeunesse serait une jeunesse satisfaite, sans se poser de question sur le sens? Les jeunes qui ne cherchent rien ne sont pas jeunes, ils sont à la retraite, ils sont vieux avant l’heure. Il est triste de voir des jeunes à la retraite... Et Jésus, à travers tout l’Evangile, dans toutes les rencontres qu’il fait le long du chemin, apparaît comme un «incendiaire» des cœurs. D’où sa question qui cherche à faire émerger le désir de vie et de bonheur que chaque jeune porte en lui: «Que cherches-tu?». Moi aussi, je voudrais demander aux jeunes qui sont ici sur la place et à ceux qui écoutent à travers les médias: «Toi qui es jeune, que cherches-tu? Que cherches-tu dans ton cœur?».
+
+La vocation de Jean et d’André commence ainsi: c’est le début d’une amitié avec Jésus si forte qu’elle impose une communion de vie et de passion avec Lui. Les deux disciples commencent à demeurer avec Jésus et immédiatement, ils se transforment en missionnaires, parce que quand la rencontre prend fin, ils ne rentrent pas chez eux tranquilles: au point que leurs frères respectifs — Simon et Jacques — sont bientôt entraînés à leur suite. Ils sont allés les voir et ont dit: «Nous avons trouvé le Messie, nous avons trouvé un grand prophète»: ils donnent la nouvelle. Ils sont missionnaires de cette rencontre. Ce fut une rencontre si touchante, si heureuse que les disciples se rappelleront à jamais de ce jour qui illumina et orienta leur jeunesse.
+
+Comment découvre-t-on sa vocation dans ce monde? On peut la découvrir de nombreuses façons, mais cette page de l’Evangile dit que le premier indice est la joie de la rencontre avec Jésus. Mariage, vie consacrée, sacerdoce: toute vocation véritable commence par une rencontre avec Jésus qui nous donne une joie et une espérance nouvelle; et elle nous conduit, également à travers les épreuves et les difficultés, à une rencontre toujours plus pleine, cette rencontre croît, toujours plus grande, la rencontre avec Lui et avec la plénitude de la joie.
+
+Le Seigneur ne veut pas d’hommes et de femmes qui marchent derrière lui à contre-cœur, sans avoir dans le cœur le vent de la joie. Vous, qui êtes sur la place, je vous demande — que chacun réponde en lui — avez-vous dans le cœur le vent de la joie?». Que chacun se demande: «Ai-je en moi, dans mon cœur, le vent de la joie?». Jésus veut des personnes qui ont fait l’expérience qu’être à ses côtés procure une joie immense, qui peut être renouvelée chaque jour de notre vie. Un disciple du Royaume de Dieu qui n’est pas joyeux n’évangélise pas ce monde, c’est quelqu’un de triste. On ne devient pas prédicateurs de Jésus en affinant les armes de la rhétorique: tu peux parler, parler, parler, mais s’il n’y a pas autre chose... Comment devient-on prédicateurs de Jésus? En conservant dans les yeux l’étincelle du véritable bonheur. Nous voyons tant de chrétiens, même parmi nous, qui avec les yeux, te transmettent la joie de la foi: avec les yeux!
+
+Pour cette raison le chrétien — comme la Vierge Marie — conserve la flamme de son amour: amoureux de Jésus. Certes, il y a des épreuves dans la vie, il y a des moments où il faut aller de l’avant malgré le froid et les vents contraires, malgré tant d’amertumes. Mais les chrétiens connaissent la route qui conduit à ce feu sacré qui les a enflammés une fois pour toutes.
+
+Mais, s’il vous plaît, je compte sur vous: n’écoutons pas les personnes déçues et malheureuses; n’écoutons pas ceux qui recommandent de façon cynique de ne pas cultiver d’espérances dans la vie; ne nous fions pas de ceux qui étouffent dès le départ tout enthousiasme en disant qu’aucune entreprise ne mérite le sacrifice de toute une vie; n’écoutons pas les «vieux» de cœur qui étouffent l’euphorie des jeunes. Allons voir les personnes âgées dont le regard brille d’espérance! Cultivons au contraire de saines utopies: Dieu veut que nous soyons capables de rêver comme Lui et avec Lui tandis que nous marchons en étant bien attentifs à la réalité. Rêver d’un monde différent. Et si le rêve s’éteint, en rêver à nouveau, en puisant avec espérance à la mémoire des origines, à ces braises qui, sans doute après une vie pas si bonne, sont cachées sous les cendres de la première rencontre avec Jésus.
+
+Voilà donc une dynamique fondamentale de la vie chrétienne: se souvenir de Jésus. Paul disait à son disciple: «Souviens-toi de Jésus Christ» (2 Tm 2, 8); tel est le conseil du grand saint Paul: «Souviens-toi de Jésus Christ». Se rappeler de Jésus, du feu d’amour avec lequel nous avons conçu un jour notre vie comme un projet de bien, et raviver avec cette flamme notre espérance.
+
+* * *
+
+Je souhaite la bienvenue aux pèlerins de langue française, en particulier aux séminaristes et aux jeunes de Meaux, ainsi qu’aux pèlerins de Guinée avec leurs évêques respectifs. Que votre pèlerinage à Rome vous aide à puiser avec espérance à la mémoire de l’Eglise et à la mémoire de votre rencontre avec Jésus! Que Dieu vous bénisse.

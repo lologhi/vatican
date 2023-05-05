@@ -1,0 +1,19 @@
+***MESSAGE VIDÉO DU PAPE BENOÎT XVI***
+
+***À L'OCCASION DU 400e ANNIVERSAIRE DE LA FONDATION DE***
+
+***L'UNIVERSITÉ PONTIFICALE SAINT-THOMAS D'AQUIN, MANILLE***
+
+***\[PHILIPPINES\]***
+
+*Eminences, Excellences, chers amis,*
+
+Je suis heureux d’envoyer mes saluts cordiaux aux étudiants, au personnel et aux anciens élèves de l’Université pontificale Saint-Thomas, alors que l’on célèbre le quatre centième anniversaire de sa fondation. Il s’agit d’un événement important dans la vie de l’Eglise et, bien que ne pouvant pas être physiquement présent avec vous, je suis heureux de m’adresser à vous en personne de cette manière, de m’unir à vous en esprit et de présenter à tous mes voeux affectueux en cette heureuse occasion.
+
+C’est avec gratitude que je rappelle les nombreux prêtres, religieux et laïcs qui, à Saint-Thomas, ont transmis à des générations de Philippins la foi, la connaissance et la sagesse qui se trouvent dans les sciences religieuses et séculaires. Je rends en particulier hommage à la mémoire de votre fondateur, l’évêque Miguel de Benavides, et au grand engagement des Dominicains, qui ont guidé l’institution à travers les nombreux défis des quatre derniers siècles.
+
+Comme vous le savez, l’Université Saint-Thomas est l’institution pour l’éducation catholique supérieure la plus ancienne d’Extrême-Orient et elle continue à jouer un rôle très important dans l’Eglise de toute la région. Je suis certain que, en gardant présentes la foi et la raison, qui font toujours partie d’une approche vraiment complète de l’éducation, votre Université continuera à contribuer à l’enrichissement intellectuel, spirituel et culturel des Philippines et également d’autres pays. Je prie également afin que vous recherchiez toujours une connaissance des questions humaines et divines à la lumière de la clarté ultime qui se trouve en la personne de Jésus Christ (cf. *Jn* 8, 12).
+
+En invoquant la sage intercession de votre patron céleste, saint Thomas d’Aquin, je vous donne volontiers ma Bénédiction apostolique en gage de grâce et de paix.
+
+**BENEDICTUS PP. XVI**

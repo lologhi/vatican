@@ -1,0 +1,31 @@
+[CÉLÉBRATION DES PREMIÈRES VÊPRES\
+\
+DE LA SOLENNITÉ DE MARIE SAINTE MÈRE DE DIEU\
+\
+*TE DEUM* DE REMERCIEMENT](http://www.vatican.va/news_services/liturgy/libretti/2013/20131231-libretto-maria-madre-di-dio-vespri.pdf)
+
+***HOMÉLIE DU PAPE FRANÇOIS***
+
+*Basilique vaticane*
+
+*Mardi 31 décembre 2013*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_G638CUU9)**
+
+***[Galerie photographique](http://www.photogallery.va/content/photogallery/fr/celebrazioni-liturgiche/vespri31dic2013.html)***
+
+L’apôtre Jean définit le temps présent avec précision : « La dernière heure est arrivée » (1 *Jn* 2, 18). Cette affirmation — qui revient dans la messe du 31 décembre — veut signifier qu’avec la venue de Dieu dans l’histoire, nous sommes déjà dans les « derniers » temps, après quoi, le passage final sera la seconde venue définitive du Christ. Naturellement, on parle ici de la *qualité* du temps, pas de sa *quantité*. Avec Jésus la « plénitude » du temps est arrivée, plénitude de sens et plénitude de salut. Il n’y aura plus de nouvelle révélation, mais la manifestation plénière de ce que Jésus a déjà révélé. C’est dans ce sens que nous sommes dans la « dernière heure » ; chaque moment de notre vie n’est pas provisoire, mais définitif et chacune de nos actions est chargée d’éternité ; de fait, la réponse que nous donnons aujourd’hui à Dieu qui nous aime en Jésus Christ, a une incidence sur notre avenir.
+
+La vision biblique et chrétienne du temps et de l’histoire n’est pas cyclique, mais linéaire : c’est un chemin qui va vers un accomplissement. Une année qui est passée ne nous conduit donc pas à une réalité qui finit, mais à une réalité qui s’accomplit, c’est un pas supplémentaire vers le but qui est devant nous : un but d’espérance et un but de bonheur, parce que nous rencontrerons Dieu, la raison de notre espérance et la source de notre joie.
+
+Tandis que l’année 2013 arrive à son terme, recueillons comme dans une corbeille les jours, les semaines, les mois que nous avons vécus pour tout offrir au Seigneur. Et demandons-nous, courageusement : comment avons-nous vécu le temps qu’Il nous a donné ? L’avons-nous utilisé surtout pour nous-mêmes, pour nos intérêts, ou avons-nous su le dépenser aussi pour les autres ? Combien de temps avons-nous réservé pour être avec Dieu, dans la prière, dans le silence, dans l’adoration ?
+
+Et pensons ensuite, nous citoyens romains, à cette ville de Rome. Que s’est-il passé cette année ? Que se passe-t-il et que se passera-t-il ? Quelle est la qualité de la vie dans cette ville ? Cela dépend de nous tous ! Quelle est la qualité de notre « citoyenneté » ? Cette année, avons-nous contribué, à notre mesure, à la rendre plus vivable, ordonnée, accueillante ? De fait, le visage d’une ville est comme une mosaïque dont les tesselles sont tous ceux qui y habitent. Assurément, qui est investi d’une autorité a une responsabilité majeure, mais chacun est coresponsable, dans le bien et dans le mal.
+
+Rome est une ville d’une beauté unique. Son patrimoine spirituel et culturel est extraordinaire. Et pourtant, à Rome aussi de nombreuses personnes sont marquées par des misères matérielles et morales, des personnes pauvres, malheureuses, qui souffrent, qui interpellent la conscience de chaque citoyen. À Rome, on ressent peut-être de façon plus forte ce contraste entre l’environnement majestueux et riche de beauté artistique, et le malaise social de ceux qui ont des difficultés.
+
+Rome est une ville pleine de touristes, mais aussi pleine de réfugiés. Rome est pleine de gens qui travaillent, mais aussi, de personnes qui ne trouvent pas de travail ou effectuent des travaux sous-payés et parfois indignes, et tous ont le droit d’être traités avec la même attitude d’accueil et d’équité, parce que chacun est porteur de la dignité humaine.
+
+C’est le dernier jour de l’année. Que ferons-nous, comment agirons-nous l’an prochain, pour rendre notre ville un peu meilleure ? La Rome de l’année nouvelle aura un visage encore plus beau si elle est encore plus riche en humanité, en hospitalité, en accueil, si nous sommes tous attentifs et généreux envers ceux qui se trouvent en difficulté, si nous savons collaborer avec un esprit constructif et solidaire pour le bien de tous. La Rome de l’année nouvelle sera meilleure si personne ne la regarde « de loin », comme une carte postale, ne regarde sa vie uniquement « du balcon », sans s’impliquer dans les nombreux problèmes humains, des problèmes d’hommes et de femmes qui, à la fin… et depuis le début, que nous le voulions ou non, sont nos frères. Dans cette perspective, l’Église de Rome se sent le devoir d’apporter sa contribution à la vie et à l’avenir de la ville — mais c’est son devoir ! —, elle se sent engagée à l’animer grâce au ferment de l’Évangile, à être un signe et un instrument de la miséricorde de Dieu.
+
+Ce soir, nous concluons l’Année du Seigneur 2013 en lui rendant grâce et en demandant pardon, les deux choses ensemble, remercier et demander pardon. Rendons grâce pour tous les bienfaits que Dieu a accordés, et surtout pour sa patience et pour sa fidélité, qui se manifestent au cours des temps, mais de façon singulière lors de la plénitude des temps, quand « Dieu a envoyé son Fils, né d’une femme » ( *Ga* 4, 4). Que la Mère de Dieu, au nom de laquelle nous commencerons demain une nouvelle étape de notre pèlerinage terrestre, nous enseigne à accueillir le Dieu fait homme, afin que chaque année chaque mois, chaque jour soit plein de son Amour éternel. Ainsi soit-il !

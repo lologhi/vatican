@@ -1,0 +1,67 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS \
+\
+EN THAÏLANDE ET AU JAPON](http://w2.vatican.va/content/francesco/fr/travels/2019/outside/documents/papa-francesco-thailandia-giappone-2019.html)
+
+(19 - 26 NOVEMBRE 2019)
+
+**[HOMMAGE AUX SAINTS MARTYRS](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/11/24/omaggio-santimartiri-nagasaki.html)**
+
+***ANGÉLUS***
+
+*Monument des martyrs - Nishizaka Hill (Nagasaki)*
+
+*Dimanche 24 novembre 2019*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/11/24/angelus.html)**\]
+
+* * *
+
+***Angelus Dómini nuntiávit Mariæ.***
+
+Et concépit de Spíritu Sancto.
+
+***Ave Maria…***
+
+***Ecce ancílla Dómini.***
+
+Fiat mihi secúndum verbum tuum.
+
+***Ave Maria...***
+
+***Et Verbum caro factum est.***
+
+Et habitávit in nobis.
+
+***Ave Maria...***
+
+***Ora pro nobis, sancta Dei génetrix.***
+
+Ut digni efficiámur promissiónibus Christi.
+
+***Orémus.***
+
+*Grátiam tuam, quǽsumus, Dómine, méntibus nostris infunde; ut qui, Ángelo nuntiánte, Christi Fílii tui incarnatiónem cognóvimus, per passiónem eius et crucem, ad resurrectiónis glóriam perducámur. Per eúndem Christum Dóminum nostrum.*
+
+Amen.
+
+**Gloria Patri... (ter)**
+
+***Réquiem aetérnam dona eis, Dómine,***
+
+et lux perpétua lúceat eis.
+
+***Requiéscant in pace.***
+
+Amen.
+
+***Dominus vobiscum.***
+
+Et cum spiritu tuo.
+
+***Sit nomen Domini benedictum.***
+
+Ex hoc nunc et usque in sæculum.
+
+***Adiutorium nostrum in nomine Domini.***
+
+Qui fecit caelum et terram.

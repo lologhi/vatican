@@ -1,0 +1,23 @@
+***DISCOURS*** ***DU PAPE FRANÇOIS*** ***AUX PARTICIPANTS******AU COURS ORGANISÉ PAR LE***
+
+***TRIBUNAL DE LA ROTE ROMAINE***
+
+*Salle Paul VI* *Samedi 12 mars 2016*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/3/12/corsorotaromana.html)\]**
+
+* * *
+
+*Chers frères et sœurs, bonjour.*
+
+Je vous salue tous, vous qui avez participé au cours de formation organisé par la Rote romaine, sur le nouveau procès matrimonial et sur la procédure *super rato*. Je suis reconnaissant envers Mgr Pinto pour son engagement en faveur de ces cours de formation et je le remercie de ses paroles.
+
+Au cours du récent parcours synodal sur la famille, de grande attentes étaient apparues pour rendre plus souples et efficaces les procédures pour la déclaration de nullité matrimoniale. De nombreux fidèles, en effet, souffrent de la fin de leur mariage et sont souvent oppressés par le doute de savoir s’il était valable ou non. C’est-à-dire qu’ils se demandent s’il existait déjà quelque chose dans les intentions ou dans les faits qui empêchait la réalisation effective du sacrement. Mais dans de nombreux cas, ces fidèles trouvaient des difficultés à accéder aux structures juridiques ecclésiales et ils ressentaient l’exigence que ces procédures soient simplifiées.
+
+La charité et la miséricorde, outre la réflexion sur l’expérience, ont poussé l’Église à se faire encore plus proche de ses enfants, en venant à la rencontre de leur désir légitime de justice. Le 15 août dernier ont été promulgués les documents *Mitis Iudex Dominus* et *Mitis et Misericors Iesus*, qui ont recueilli les fruits du travail de la commission spéciale instituée le 27 août 2014 : presque une année de travail. Ces mesures ont un objectif éminemment pastoral : montrer la sollicitude de l’Église envers les fidèles qui attendent une vérification rapide de leur situation matrimoniale. On a aboli, en particulier, la double sentence conforme et on a donné vie à ce que l’on appelle le procès bref, en replaçant au centre la figure et le rôle de l’évêque diocésain, ou de l’éparque dans le cas des Églises orientales, comme juge des causes. On a ainsi davantage valorisé le rôle de l’évêque ou de l’éparque en matière matrimoniale : en effet, outre la vérification par voie administrative — du mariage célébré et non consommé — c’est à présent à lui qu’est remise la responsabilité de la voie juridique en vue de vérifier la validité du lien.
+
+Il est important que la nouvelle réglementation soit reçue et approfondie, sur le fond et dans l’esprit, en particulier par les agents des tribunaux ecclésiastiques, pour rendre un service de justice et de charité aux familles. Pour de nombreuses personnes qui ont vécu une expérience matrimoniale malheureuse, la vérification de la validité ou non de leur mariage représente une possibilité importante ; et ces personnes doivent être aidées à parcourir cette route le plus aisément possible. D’où la valeur du cours que vous avez suivi. Je vous encourage à tirer profit de ce que vous avez appris au cours de ces journées et à œuvrer en gardant toujours le regard fixé sur la *salus animarum*, qui est la loi suprême de l’Église.
+
+L’Église est mère et veut montrer à tous le visage de Dieu fidèle à son amour, miséricordieux et toujours capable de redonner force et espérance. Ce qui nous tient le plus à cœur en ce qui concerne les personnes séparées qui vivent une nouvelle union est leur participation à la communion ecclésiale. Mais, alors que nous prenons soin des blessures de ceux qui demandent la vérification de la vérité sur l’échec de leur mariage, nous regardons avec admiration ceux qui, également dans des conditions difficiles, restent fidèles au lien sacramentel. Ces témoins de la fidélité matrimoniale doivent être encouragés et indiqués comme des exemples à imiter. Un grand nombre d’hommes et de femmes supportent des choses difficiles, lourdes pour ne pas détruire la famille, pour être fidèles dans la santé et dans la maladie, dans les difficultés et dans une vie tranquille: c’est la fidélité. Et ils ont du mérite !
+
+Je vous remercie de votre engagement en faveur de la justice et je vous exhorte à le vivre non comme un métier, ou pire comme un pouvoir, mais comme un service aux âmes, en particulier les plus blessées. Que le Seigneur vous bénisse et que la Vierge vous protège. S’il vous plaît, rappelez-vous de prier pour moi.

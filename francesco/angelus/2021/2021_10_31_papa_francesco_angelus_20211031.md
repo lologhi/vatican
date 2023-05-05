@@ -1,0 +1,33 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 31 octobre 2021*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/10/31/angelus.html)**\]
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Dans la liturgie d’aujourd’hui, l’Evangile parle d’un scribe qui s’approche de Jésus et lui demande: «Quel est le premier de tous les commandements?» (Mc 12, 28). Jésus répond en citant l’Ecriture et affirme que le premier commandement est d’aimer Dieu; de celui-ci découle donc par conséquence naturelle, le deuxième: aimer son prochain comme soi-même (cf. vv. 29-31). En entendant cette réponse, le scribe non seulement la reconnaît comme juste, mais ce faisant, en la reconnaissant comme juste, il répète presque les mêmes paroles dites par Jésus: «Fort bien, Maître, tu as eu raison de dire que l'aimer de tout son cœur, de toute son intelligence et de toute sa force, et aimer le prochain comme soi-même, vaut mieux que tous les holocaustes et tous les sacrifices» (vv. 32-33).
+
+Nous pouvons nous demander: pourquoi, en donnant son assentiment, ce scribe ressent-il le besoin de répéter les mêmes paroles de Jésus? Cette répétition semble d’autant plus surprenante si l’on pense que l’on est dans l’Evangile de Marc, qui a un style très concis. Quel est alors le sens de cette répétition? Cette répétition est un enseignement pour nous tous qui écoutons. Car la Parole du Seigneur ne peut pas être reçue comme n’importe quel fait divers. La Parole du Seigneur doit être répétée, appropriée, conservée. La tradition monastique, des moines, utilise un terme audacieux mais très concret. Elle dit: la Parole de Dieu doit être «ruminée». «Ruminer la Parole de Dieu». Nous pouvons dire qu’elle est si nourrissante qu’elle doit toucher tous les domaines de la vie: impliquer, comme le dit Jésus aujourd’hui, tout le cœur, toute l’âme, tout l’esprit, toute la force (cf. v. 30). La Parole de Dieu doit retentir, résonner et résonner encore en nous. Quand il y a cet écho intérieur qui se répète, cela signifie que le Seigneur habite notre cœur. Et il nous dit, comme à ce bon scribe de l’Evangile: «Tu n’es pas loin du royaume de Dieu» (v. 34).
+
+Chers frères et sœurs, le Seigneur ne cherche pas tant des commentateurs habiles des Ecritures, mais il cherche des cœurs dociles qui, en accueillant sa Parole, se laissent transformer de l’intérieur. Voilà pourquoi il est si important de se familiariser avec l’Evangile, de l’avoir toujours à portée de main — même un petit Evangile dans la poche, dans son sac —, de le lire et de le relire, de s’en passionner. Quand nous faisons cela, Jésus, la Parole du Père, entre dans nos cœurs, devient intime avec nous et nous portons du fruit en Lui. Prenons l’exemple de l’Evangile d’aujourd’hui: il ne suffit pas de le lire et de comprendre qu’il faut aimer Dieu et son prochain. Il faut que ce commandement, qui est le «grand commandement», résonne en nous, soit assimilé, devienne la voix de notre conscience. Alors il ne reste pas lettre morte, dans le tiroir du cœur, parce que l’Esprit Saint fait germer en nous la semence de cette Parole. Et la Parole de Dieu agit, elle est toujours en mouvement, elle est vivante et efficace (cf. He 4, 12). Ainsi, chacun de nous peut devenir une «traduction» vivante, différente et originale. Pas une répétition, mais une «traduction» vivante, différente et originale de l’unique Parole d’amour que Dieu nous donne. Nous voyons cela par exemple dans la vie des saints: aucun n’est semblable à l’autre, tous sont différents, mais tous avec la même Parole de Dieu.
+
+Aujourd’hui, prenons donc l’exemple de ce scribe. Répétons les paroles de Jésus, faisons-les résonner en nous: «Aimer Dieu de tout mon cœur, de toute mon âme, de tout mon esprit et de  toutes mes forces et mon prochain comme moi-même». Et demandons-nous: ce commandement oriente-t-il vraiment ma vie? Ce commandement se reflète-t-il dans mes journées? Il nous fera du bien ce soir, avant de nous endormir, de faire un examen de conscience sur cette Parole, pour voir si aujourd’hui, nous avons aimé le Seigneur et donné un peu de bien à ceux que nous avons rencontrés. Que chaque rencontre signifie donner un peu de bien, un peu d’amour, qui vient de cette Parole. Que la Vierge Marie, dans laquelle le Verbe de Dieu s’est fait chair, nous enseigne à accueillir dans notre cœur les paroles vivantes de l’Evangile.
+
+\\_\\_\\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***A l'issue de l’Angélus***
+
+Chers frères et sœurs, dans diverses parties du Vietnam, les fortes pluies de ces dernières semaines ont provoqué de vastes inondations et des milliers de personnes évacuées. Ma prière et ma pensée vont aux nombreuses familles qui soufrent, avec mon encouragement pour tous ceux, autorités du pays et Eglise locale, qui se prodiguent pour répondre à la situation d’urgence. Et je suis proche des populations de Sicile frappées par le mauvais temps.
+
+Je pense également à la population de Haïti, qui vit dans des conditions extrêmes. Je demande aux responsables des nations de soutenir ce pays, de ne pas le laisser seul. Et vous, en rentrant chez vous, cherchez des informations sur Haïti et priez, priez beaucoup. Je regardais dans le programme «A Sua Immagine» le témoignage de ce missionnaire camillien à Haïti, le père Massimo Miraglio, ce qu’il disait... combien de souffrance, combien de douleur il y a sur cette terre, et combien d’abandon. Ne les abandonnons pas!
+
+Hier, à Tortosa, en Espagne, ont été béatifiés Francesco Sojo López, Millán Garde Serrano, Manuel Galcerá Videllet et Aquilino Pastor Cambero, prêtres de la Fraternité des prêtres ouvriers diocésains du Cœur de Jésus, tous tués en haine de la foi. Pasteurs zélés et généreux, au cours de la persécution religieuse des années trente, ils demeurèrent fidèles à leur ministère, même au risque de leur vie. Que leur témoignage soit un modèle en particulier pour les prêtres. Un applaudissement à ces nouveaux bienheureux!
+
+Aujourd’hui à Glasgow, en Ecosse, commence le sommet des Nations unies sur les changements climatiques, cop26. Prions afin que le cri de la Terre et le cri des pauvres soit écouté; que cette rencontre puisse apporter des réponses efficaces en offrant une espérance concrète aux générations futures. Dans ce contexte est inaugurée aujourd’hui place Saint-Pierre l’exposition de photos Laudato si’, d’un jeune photographe originaire du Bangladesh. Allez la voir!
+
+Je vous salue tous, fidèles de Rome et de divers pays. Je souhaite à tous un bon dimanche. Et s’il vous plaît, n’oubliez pas de prier pour moi. Bon déjeuner et au revoir!

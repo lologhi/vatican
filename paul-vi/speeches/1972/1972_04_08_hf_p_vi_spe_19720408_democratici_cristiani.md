@@ -1,0 +1,23 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX MEMBRES DU BUREAU DE***
+
+***L’«UNION EUROPÉENNE DÉMOCRATE CHRÉTIENNE»***
+
+*Samedi 8 avril 1972*
+
+*Monsieur le Président, Mesdames, Messieurs,*
+
+Au moment où se réunit à Rome le Bureau politique de votre «Union européenne démocrate chrétienne», vous avez manifesté le désir de Nous rencontrer. Sensible à ce geste, Nous vous souhaitons volontiers la bienvenue en cette Maison Apostolique.
+
+Certes, il n’est plus besoin de le souligner, l’Eglise catholique, comme celui qui en a été constitué pasteur universel à la suite de l’apôtre Pierre, ne sont liés à aucun système politique, ni à aucun parti politique. «Sur le terrain qui leur est propre, la communauté politique et l’Eglise sont indépendantes l’une de l’autre et autonomes» ( *[Gaudium et Spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, 76, p. 3; Cfr. 76, p. 2), sans interférence indue d’un domaine dans l’autre. Mais les deux communautés sont, à des titres divers, au service des mêmes hommes. Et «L’Eglise tient en grande considération et estime, l’activité de ceux qui se consacrent au bien de la chose publique et en assurent les charges pour le service de tous» ( *Ibid*. 75, p. 1). Elle exhorte même les catholiques compétents à prendre consciencieusement leur part dans cette gestion ( *[Apostolicam Actuositatem](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651118_apostolicam-actuositatem_fr.html)*, 14); elle reconnaît le concours positif que peuvent apporter les partis et aussi le rôle que tous les chrétiens sont appelés à jouer dans le domaine politique.
+
+L’activité que vous déployez, à l’intérieur de formations politiques se situant dans une perspective «humaniste et chrétienne», comme l’affirment vos Statuts (Art. 2, 1c.), doit trouver sa source d’inspiration et son guide dans votre compétence en matière politique, économique, administrative, sociale, et, inséparablement, dans le jugement moral de votre conscience. L’Eglise, pour sa part, si elle n’a pas a cautionner tel programme ou l’adoption de tel moyen technique, met au service des citoyens et des hommes politiques, devant leur conscience, un certain nombre de critères qu’elle juge indispensables pour la réalisation d’une politique juste, féconde et durable, favorisant le plein épanouissement des personnes et des communautés.
+
+Ces principes, correspondant à la conception chrétienne de la vie morale et à l’éthique de l’activité politique, vous les connaissez. Le concile de Vatican II ( *Apostolicam Actuositatem*, 73-75) en a fait une synthèse et Nous-même Nous avons souvent eu l’occasion de les rappeler.
+
+Il s’agit notamment de faire leur juste place à la liberté, à I’initiative personnelle, aux droits des personnes, des familles, des corps intermédiaires, sans jamais cesser de les harmoniser avec leurs devoirs, avec les exigences du bien commun, de l’ordre et de la solidarité nécessaires, bref de former au sens de la responsabilité à tous les échelons: difficile démocratie! Les partis eux-mêmes n’oublieront jamais qu’ils doivent chercher continuellement à établir une justice sociale effective pour toutes les catégories. Que le pouvoir public soit doté d’une autorité suffisamment efficace et digne de mériter le respect de tous, et que ses détenteurs se considèrent comme les serviteurs de leurs compatriotes, avec le désintéressement et l’intégrité qui conviennent à leur haute fonction. L’amour de la patrie doit pouvoir aussi se concilier avec une recherche de rapports communautaires plus étroits entre les peuples qui sont appelés à intensifier leurs liens économiques et culturels, et ceci vaut particulièrement pour ceux de l’Europe, en raison de leur voisinage, et du patrimoine spirituel et moral commun. La solidarité européenne doit elle-même demeurer ouverte à la grande solidarité de tous les peuples de la terre, dans la poursuite du développement.
+
+Bref la valeur d’une politique se mesure à son projet social et aux services qu’elle peut mettre en œuvre; mais il s’agit toujours de savoir quel sens de l’homme on a en vue, quelle place on donne au respect de ses droits, de sa dignité, de sa vie, à sa responsabilité, à ses exigences morales et spirituelles, à la fraternité, en définitive à l’amour mutuel.
+
+En vous encourageant à travailler sans relâche suivant cet idéal, Nous implorons sur vous, sur vos familles et tous ceux qui vous sont chers, les grâces abondantes du Seigneur dont la résurrection nous invite à instaurer en lui toutes choses nouvelles.

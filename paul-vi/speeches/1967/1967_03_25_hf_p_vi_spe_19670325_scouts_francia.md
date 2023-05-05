@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX DIRIGEANTS DES «SCOUTS DE FRANCE»***
+
+*Samedi Saint 25 mars 1967*
+
+C’est, pensons-Nous, votre instinct de l’orientation qui vous a conduits à Rome cette année. Ce n’est pas seulement, en effet, sur les sentiers des bois et des montagnes, sur les sentiers de la terre physique, que le sens de l’orientation guide les pas des jeunes: c’est aussi sur les sentiers des problèmes de la vie, les sentiers qui mènent à la découverte et à la conquête des valeurs morales et spirituelles, aux carrefours de la vérité. Vous êtes des explorateurs, vous êtes des chercheurs. Vous êtes des jeunes auxquels ne fait peur ni la longueur, ni la difficulté de la route. Ce qui vous fait peur, c’est la paresse, c’est la recherche au hasard, la recherche non orientée, le dilettantisme, la marche sans direction et sans but.
+
+Votre excursion vous a donc conduits à Rome. Cela valait la peine. Vous ne vous êtes pas trompés en y venant.
+
+D’abord, parce qu’ici vous étiez attendus, Nous vous attendions. Oui, Nous sommes toujours en attente des jeunes qui cherchent le sens de la vie. Cette attente, cette vigilance, cette étude sur les courants humains dans l’histoire, et spécialement dans la vie contemporaine, font partie de Notre mission. Votre venue n’est donc pas seulement une visite: c’est une rencontre. Nous sommes heureux de votre arrivée. Nous vous ouvrons Notre maison et Nos églises; mais surtout Nous vous ouvrons Notre cœur, Fils de France, soyez les bienvenus! Chefs et Cheftaines des Scouts de France, vous êtes chez vous dans cette Rome catholique, qui accueille les fils de l’Eglise de toutes les parties du monde, mais qui réserve toujours une place de choix aux fidèles de la Nation qui a toujours été fière de s’appeler la fille aînée de l’Eglise.
+
+Nous sommes heureux que vous célébriez les grandes journées du mystère pascal avec Nous. Nous voulons vous sentir proches, Nous voulons prier avec vous et pour vous; cette union qui nous rassemble tous dans le Christ, c’est avec vous que Nous voulons la goûter, avec vous, chers jeunes amis, avec vous, magnifiques Chefs et Cheftaines de la splendide troupe des Scouts de France!
+
+Que pouvons-Nous vous offrir à votre arrivée, pour refaire vos forces, pour raffermir votre marche dans les sentiers de la vie? Rien que vous ne possédiez déjà, mais quelque chose qui peut donner valeur et vigueur aux trésors que votre éducation catholique a déjà mis dans vos cœurs.
+
+C’est là Notre mission, chers fil et amis: celle de «confirmer», selon la parole que Jésus a dite à Pierre, Lui qui précisément de Simon a fait Pierre, c’est-à-dire la force, la fermeté (cf. *Luc*. 22, 32).
+
+Nous voulons confirmer votre foi. Nous le ferons en vous montrant les lieux sacrés de cette Rome, où le témoignage rendu au Christ s’est affirmé de façon si étendue, si répétée, si exemplaire. Nous le ferons en vous demandant une profession de foi, franche et décidée, qui surmonte dans vos âmes les faiblesses caractéristiques de la foi de nos jours: le doute, l’ambiguïté, le respect humain, l’indifférence. Nous le ferons par Notre bénédiction, pour qu’elle vous obtienne du Christ l’a certitude intérieure, la joie de croire le désir de témoigner.
+
+Et de même, Nous voulons confirmer dans vols âmes la lumière de l'espérance. Vous savez que le monde dans lequel nous vivons a mille dons à faire à l’esprit humain, mais n’a plus celui de l’espérance; bien plus, il enlève des cœurs - des cœurs des jeunes - l’espérance, et y met le désespoir. Ce n’est pas ainsi qu’agit le Christ: il nous a sauvés dans l’espérance. Le christianisme n’est pas seulement une richesse présente, c’est un trésor de promesses, c’est une source d’espérances qui ne tromperont pas. Nous, au nom du Christ, à vous, les jeunes, Nous vous en donnons l’assurance.
+
+Enfin c’est la charité que Nous voulons accroître et affermir dans vos cœurs. A Rome l’amour devient total: pour Dieu, pour le Christ, pour l’Eglise, pour le monde. Il devient universel. Il n’est pas possible d’être catholique et d’être en même temps égoïste: voilà ce que vous dit Rome, centre de la charité apportée au monde par le Christ. Nous voudrions que vos journées romaines marquent un moment de plénitude de charité dans vos cœurs. D’ici vous pouvez regarder la vie, le panorama de l’humanité: ne voyez-vous pas combien les hommes ont besoin d’amour? de votre amour? de votre dévouement? Faites ici vos programmes d’avenir: ici vous trouverez l’inspiration lumineuse, ici la générosité dans le sacrifice, ici le sens du service chrétien, ici la joie de vivre dans l’amour.
+
+Voilà, chers Fils, Chères Filles, ce que Nous avions à vous dire. Et maintenant, bonnes et saintes Pâques à tous! Que Dieu bénisse vos projets, vos personnes, vos aumôniers, vos dirigeants, tout le beau et grand mouvement des Scouts de France, comme Nous le bénissons Nous-même avec toute l’affection de Notre cœur, au nom du Père, du Fils et du Saint-Esprit. Amen.

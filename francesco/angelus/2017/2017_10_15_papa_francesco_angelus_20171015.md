@@ -1,0 +1,21 @@
+PAPE FRANÇOIS
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 15 octobre 2017*
+
+\[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/10/15/angelus.html)**\]
+
+* * *
+
+*Chers frères et sœurs,*
+
+Au terme de [cette célébration](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/10/15/messa-ritodicanonizzazione.html), je vous salue tous cordialement, vous tous qui êtes venus de divers pays pour rendre hommage aux nouveaux saints. J’adresse une pensée respectueuse en particulier aux délégations officielles du Brésil, de France, d’Italie, du Mexique, de l’Ordre de Malte et d’Espagne. Que l’exemple et l’intercession de ces témoins lumineux de l’Evangile nous accompagnent sur notre chemin et nous aident à toujours promouvoir des relations fraternelles et solidaires, pour le bien de l’Eglise et de la société.
+
+Accueillant le désir de diverses conférences épiscopales d’Amérique latine, ainsi que la voix de divers pasteurs et fidèles d’autres parties du monde, j’ai décidé de convoquer une *assemblée spéciale du synode des évêques pour la région pan-amazonienne,* qui aura lieu à Rome au mois d’octobre 2019. L’objectif principal de cette convocation est d’identifier de nouvelles voies pour l’évangélisation de cette portion du Peuple de Dieu, en particulier des autochtones, souvent oubliés et sans la perspective d’un avenir serein, notamment à cause de la crise de la forêt amazonienne, poumon d’une importance capitale pour notre planète. Que les nouveaux saints intercèdent pour cet événement ecclésial, afin que, dans le respect de la beauté de la création, tous les peuples de la terre louent Dieu, Seigneur de l’univers et, éclairés par Lui, parcourent des chemins de justice et de paix.
+
+Je rappelle aussi qu’après-demain sera célébrée la *journée du refus de la misère*. La misère n’est pas une fatalité: elle a des causes qui doivent être reconnues et supprimées, pour honorer la dignité d’un grand nombre de nos frères et sœurs, à l’exemple des saints.
+
+Et à présent, nous nous tournons en prière vers la Vierge Marie.

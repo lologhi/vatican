@@ -1,0 +1,27 @@
+[VOYAGE APOSTOLIQUE \
+\
+À SYDNEY (AUSTRALIE) À L'OCCASION \
+\
+DE LA XXIII JOURNÉE MONDIALE DE LA JEUNESSE \
+\
+(12-21 JUILLET 2008)](/content/benedict-xvi/fr/travels/2008/outside/documents/australia.html)
+
+**CÉRÉMONIE DE DÉPART AVEC LES AUTORITÉS**
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+*Aéroport de Sydney*
+
+*Lundi 21**juillet 2008*
+
+*Chers amis*,
+
+Avant de prendre congé, je désire dire à ceux qui m’ont offert l’hospitalité combien j’ai apprécié ma visite ici et combien grande est ma reconnaissance pour l’accueil dont j’ai bénéficié. Je remercie le Premier Ministre, l’Honorable Kevin Rudd, pour la gentillesse qu’il a témoignée à moi-même et à tous les participants de la [Journée Mondiale de la Jeunesse](/content/benedict-xvi/fr/travels/2008/outside/documents/australia.html). Je remercie aussi le Gouverneur Général, le Général Major Michael Jeffery, pour sa présence ici et pour l’accueil courtois qu’il m’a réservé à l’Amirauté générale au début de mes engagements publics. Le Gouvernement fédéral et le Gouvernement de l’État de Nouvelles Galles du Sud, tout comme les habitants et la communauté des Entrepreneurs de Sydney, ont généreusement collaboré pour soutenir la [Journée Mondiale de la Jeunesse](/content/benedict-xvi/fr/travels/2008/outside/documents/australia.html). Un événement de ce genre requiert un immense travail de préparation et d’organisation, et je sais que, en exprimant mes félicitations et ma gratitude à vous tous, je parle au nom de milliers de jeunes. Dans un style authentiquement australien, vous avez offert une chaleureuse bienvenue à moi-même et à d’innombrables jeunes pèlerins qui, venant de tous les points du monde, se sont rassemblés ici. Je suis particulièrement reconnaissant envers toutes les familles de l’Australie et de la Nouvelle-Zélande qui ont accueilli chez elles des jeunes. Vous avez ouvert vos portes et vos cœurs à la jeunesse du monde, et au nom de ces jeunes, je vous remercie.
+
+Sur la scène, ces derniers jours, les acteurs principaux étaient évidemment les jeunes eux-mêmes. La [Journée Mondiale de la Jeunesse](/content/benedict-xvi/fr/travels/2008/outside/documents/australia.html) leur appartient. Ce sont eux qui ont fait de cette Journée un événement ecclésial de portée mondiale, une grande célébration de la jeunesse, une grande célébration de ce que signifie être Église, Peuple de Dieu au milieu du monde, uni dans la foi et dans l’amour et rendu capable par l’Esprit de témoigner du Christ ressuscité jusqu’aux extrémités de la terre. Je les remercie d’être venus, je les remercie de leur participation, et je prie pour que leur voyage de retour soit tranquille. Je sais que les jeunes, leurs familles et des personnes amies, dans bien des cas, ont fait de grands sacrifices pour leur permettre d’arriver en Australie. L'Église tout entière leur en est reconnaissante.
+
+En survolant du regard les jours, chargés d’émotion, que nous venons de vivre, des scènes significatives me reviennent à ma mémoire. J’ai été très touché par ma visite à la Tombe de Mary MacKillop, et je remercie les Sœurs de Saint-Joseph pour la possibilité qui m’a été donnée de prier dans le sanctuaire de leur co-fondatrice. Les Stations du *Chemin de Croix* à travers les rues de Sydney nous ont rappelé de manière forte que le Christ nous a aimés « jusqu’au bout » et qu’il a partagé nos souffrances afin que nous puissions avoir part à sa gloire. La rencontre avec les jeunes à [Darlinghurst](/content/benedict-xvi/fr/speeches/2008/july/documents/hf_ben-xvi_spe_20080718_darlinghurst.html) a été un moment de joie et de grande espérance, un signe que le Christ peut nous faire surmonter les situations les plus difficiles, en nous rendant notre dignité et en nous permettant de regarder vers un avenir meilleur. La [rencontre œcuménique](/content/benedict-xvi/fr/speeches/2008/july/documents/hf_ben-xvi_spe_20080718_ecumenism.html) et [interreligieuse](/content/benedict-xvi/fr/speeches/2008/july/documents/hf_ben-xvi_spe_20080718_interel.html) avec les responsables concernés a été marquée par un esprit d’authentique fraternité et par un profond désir d’une plus grande collaboration en vue d’édifier un monde plus juste et pacifique. Et, sans aucun doute, les rencontres de [Barangaroo](/content/benedict-xvi/fr/speeches/2008/july/documents/hf_ben-xvi_spe_20080717_barangaroo.html) et de la [Croix du Sud](/content/benedict-xvi/fr/speeches/2008/july/documents/hf_ben-xvi_spe_20080719_vigil.html) ont été les points culminants de ma visite. Ces expériences de prière, notre joyeuse [célébration de l’Eucharistie](/content/benedict-xvi/fr/homilies/2008/documents/hf_ben-xvi_hom_20080720_xxiii-wyd.html), ont été un témoignage éloquent de l’action vivifiante de l’Esprit Saint, présent et actif dans le cœur de nos jeunes. La [Journée Mondiale de la Jeunesse](/content/benedict-xvi/fr/travels/2008/outside/documents/australia.html) nous a montré que l'Église peut se réjouir à cause des jeunes d’aujourd’hui et être remplie d’espérance pour le monde de demain.
+
+Chers amis, en quittant Sydney, je demande à Dieu de poser son regard aimant sur cette cité, sur ce pays et sur ses habitants. Je prie pour que nombreux soient ceux qui trouveront une inspiration dans l’exemple de compassion et de service que donne la bienheureuse Mary MacKillop. Et, en vous saluant, le cœur rempli de sentiments de profonde gratitude, je dis encore une fois : que Dieu bénisse le peuple de l’Australie !
+
+© Copyright 2008 - Libreria Editrice Vaticana

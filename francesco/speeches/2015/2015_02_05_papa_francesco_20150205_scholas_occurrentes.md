@@ -1,0 +1,37 @@
+***DISCOURS DU PAPE FRANÇOIS* *À L'OCCASION DE LA CLÔTURE DU CONGRÈS MONDIAL ÉDUCATIF***
+
+***DE "SCHOLAS OCCURRENTES"***
+
+*Salle du Synode*
+
+*Jeudi 5 février 2015*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/2/5/scholasoccurrentes.html)\]**
+
+* * *
+
+**Message vidéo du Saint-Père aux enfants**
+
+Vous possédez tous un écrin, une boîte, dans laquelle il y a un trésor. Et votre travail est d’ouvrir la boîte, de prendre le trésor, de le faire croître, le donner aux autres, et de recevoir le trésor des autres. Chacun de nous possède un trésor à l’intérieur. Si nous le gardons enfermé, il reste enfermé; si nous le partageons avec les autres, le trésor se multiplie avec les trésors qui s’ajoutent à ceux des autres.
+
+Ce que je veux dire, c’est qu’il ne faut pas cacher le trésor que chacun possède. Parfois on le trouve tout de suite; parfois il faut faire comme pour le jeu de la chasse au trésor: on ne le trouve pas immédiatement, mais, une fois que vous l’avez trouvé, partagez-le! Car en le partageant, on reçoit de l’autre et il se multiplie. Chers enfants, c’est ce que je désire vous dire. Allez de l’avant! Ce que vous accomplissez à partir de l’endroit où vous vous trouvez nous aide également tous à comprendre que la vie est un beau trésor, mais elle ne possède un sens que si nous la donnons. Merci beaucoup!
+
+* * *
+
+**Discours de clôture du Pape**
+
+Je vous remercie avant tout pour l’effort que vous avez accompli pour participer à ce ive congrès. Je vous remercie pour vos contributions qui sont le fruit de votre expérience.
+
+Une chose qui me préoccupe beaucoup est comment obtenir des harmonies, qui ne consistent pas simplement à atteindre des compromis, des accords, des compréhensions partielles. L’harmonie, d’une certaine façon, signifie créer une compréhension des différences, accepter les différences, valoriser les différences et faire en sorte qu’elles s’harmonisent, et qu’elles ne se fragmentent pas.
+
+Le message de la Lumsa, que nous avons écouté, rappelait l’une de mes phrases: «Nous ne changerons pas le monde, si nous ne changeons pas l’éducation». Et il y a quelque chose de totalement discordant. Je pensais que c’était seulement en Amérique latine ou dans certains pays d’Amérique latine, qui sont ce que je connaissais le mieux. Mais c’est dans le monde. C’est le pacte éducatif, le pacte éducatif qui se crée entre la famille, l’école, la patrie et la culture. Il s’est rompu, complètement rompu et on ne peut plus le recoller. Le pacte éducatif rompu signifie que tant la société, que la famille, les diverses institutions délèguent l’éducation aux agents éducatifs, aux enseignants qui — généralement mal payés — ont sur leurs épaules cette responsabilité et s’ils n’obtiennent pas de succès, on les réprimande. Mais personne ne réprimande les diverses institutions qui ont négligé le pacte éducatif, qui l’ont délégué au professionnalisme d’un enseignant. Je veux rendre hommage aux enseignants, parce qu’ils se sont retrouvés avec cette tâche difficile entre les mains et ils ont eu le courage d’aller de l’avant.
+
+*Scholas* veut, en quelque sorte, réintégrer l’effort de tous pour l’éducation, veut rétablir le pacte éducatif de manière harmonieuse parce que ce n’est que de cette façon, si nous tous, qui sommes responsables de l’éducation de nos enfants et de nos jeunes, nous nous harmonisons, que l’éducation pourra changer. C’est pour cela que *Scholas* cherche la culture, le sport, la science; c’est pour cela que *Scholas* cherche les ponts, sort de ce qui est «petit» et va les chercher plus loin. Aujourd’hui, elle met en œuvre cette interaction, cette connaissance, sur tous les continents. Mais *Scholas* cherche aussi à harmoniser l’éducation même de la personne de l’enfant, du jeune, de l’étudiant. Il ne s’agit pas seulement de chercher de l’information, le langage de la tête. Cela ne suffit pas. *Scholas* veut harmoniser le langage de la tête avec le langage du cœur et le langage des mains. Qu’une personne, qu’un enfant, qu’un jeune pense ce qu’il sent et ce qu’il fait; qu’il sente ce qu’il pense et ce qu’il fait; qu’il fasse ce qu’il sent et ce qu’il pense. Harmonie dans la personne elle-même, dans celui qui éduque, et harmonie universelle, de sorte que tous, nous assumions le pacte éducatif et qu’ainsi, nous sortions de cette crise de la civilisation dans laquelle nous vivons et que nous accomplissions le pas que la civilisation elle-même exige de nous.
+
+Chacun des pays où *Scholas* est présente doit chercher dans sa tradition — dans sa tradition historique, dans sa tradition populaire — les éléments fondateurs, les éléments qui, culturellement, sont fondateurs de la patrie. Et, en partant de ce qui a donné du sens à cette patrie, à cette nation, en tirer l’universalité qui harmonise. La culture italienne, par exemple, ne peut pas renier Dante comme élément fondateur. La culture argentine, qui est celle que je connais, ne peut pas renier *Martín Fierro*, notre poème fondateur. Et j’ai envie de demander, mais je ne le ferai pas, combien d’Argentins parmi vous ici ont étudié, lu, médité *Martín Fierro*. Revenir aux choses culturelles qui nous ont donné un sens, qui nous ont donné la première unité de la culture nationale des peuples. Récupérer, pour chaque pays, ce qui lui est propre pour le partager avec les autres et harmoniser ce qui est plus grand: c’est cela, éduquer à la culture.
+
+En outre, il faut chercher ce qui fonde la personne, la santé fondatrice, la capacité ludique, la capacité créative du jeu. Le livre de la Sagesse dit que Dieu jouait, la Sagesse de Dieu jouait. Redécouvrir le jeu comme chemin éducatif, comme expression éducative. Alors l’éducation n’est plus seulement information, elle est créativité dans le jeu. Cette dimension ludique qui nous fait grandir dans la créativité et dans le travail ensemble.
+
+Enfin, chercher en chacun de nous, dans nos peuples, la beauté, la beauté qui nous fonde, avec notre art, avec notre musique, avec notre peinture, avec notre sculpture, avec notre littérature. Le beau. Eduquer à la beauté, parce qu’harmonie signifie beauté et nous ne pouvons pas obtenir l’harmonie du système éducatif si nous n’avons pas cette perception de la beauté.
+
+Je vous remercie pour tout ce que vous faites et pour la façon dont vous collaborez à ce défi, qui est créateur: créateur du pacte éducatif — le recréer parce qu’ainsi, nous recréons l’éducation —; créateur de l’harmonie entre les trois langages de la personne, celui des mains, celui du cœur et celui de l’esprit; créateur dans la dimension ludique d’une personne, cette saine aptitude à perdre du temps dans le travail lié au jeu; créateur dans la beauté, que nous avons déjà rencontrée dans les fondements des identités nationales, tous ensemble. Tel est le défi. Qui a inventé cela? On ne le sait pas, mais il existe. Y a-t-il des problèmes? Beaucoup, et encore beaucoup à résoudre dans l’organisation de tout cela. Sommes-nous tentés? Oui. Toute œuvre qui commence est tentée; tentée de s’arrêter, de se corrompre, de dévier. A cette fin, le travail en commun et la vigilance de tous sont nécessaires, afin que cette étincelle qui est née continue de se répandre dans un feu qui aide à reconstruire, à harmoniser le pacte éducatif. Ceux qui y gagnent, dans tout cela, ce sont les enfants. Par conséquent, je vous remercie pour ce que vous faites pour l’avenir, parce que dire «enfants», c’est dire «avenir». Merci.

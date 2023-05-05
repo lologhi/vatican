@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX MEMBRES DU COMITÉ NATIONAL ITALIEN POUR LA BIOSÉCURITÉ,***
+
+***LES BIOTECHNOLOGIES ET LES SCIENCES DE LA VIE***
+
+*Salle des Papes*
+
+*Lundi 10 avril 2017*
+
+**\[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/4/10/biosicurezza-biotecnologie.html)\]**
+
+* * *
+
+*Mesdames et Messieurs,*
+
+Je souhaite à chacun une cordiale bienvenue et je remercie le président M. Andrea Lenzi pour les aimables paroles avec lesquelles il a introduit notre rencontre. Je désire avant tout exprimer mon appréciation pour le travail réalisé par le comité national pour la biosécurité, les biotechnologies et les sciences de la vie au cours des 25 ans depuis son institution auprès de la présidence du Conseil des ministres \[italien\]. Les thèmes et les questions que votre comité aborde sont d’une grande importance pour l’homme contemporain, tant comme individu que dans sa dimension relationnelle et sociale, à partir de la famille et jusqu’aux communautés locales et nationales, à la communauté internationale et à la sauvegarde de la création.
+
+Comme nous le lisons dans le livre de la Genèse, «Yahvé Dieu prit l’homme et l’établit dans le jardin d’Eden pour le cultiver et le garder» (2, 15). La culture, dont vous êtes les représentants faisant autorité dans le domaine de la science et des technologies de la vie, porte en elle l’idée de « *cultiver*». Elle exprime bien la tension en vue de faire croître, fleurir et fructifier, à travers le génie humain, ce que Dieu a placé dans le monde. Mais nous ne pouvons pas oublier que le texte biblique nous invite aussi à « *garder*» le jardin du monde. Comme je l’ai écrit dans l’encyclique *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, «alors que “cultiver” signifie labourer, défricher ou travailler, “garder” signifie protéger, sauvegarder, préserver, soigner, surveiller. Cela implique une relation de réciprocité responsable entre l’être humain et la nature» ( [n. 67](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html#67.)). Votre ne tâche consiste pas seulement à promouvoir le développement harmonieux et intégré de la recherche scientifique et technologique qui concerne les processus biologiques de la vie végétale, animale et humaine; il vous est aussi demandé de prévoir et de prévenir les conséquences négatives que peut provoquer un usage déformé des connaissances et des capacités de manipulation de la vie.
+
+Le scientifique, comme le technologue, est appelé à «savoir» et à «savoir faire» avec une précision et une créativité toujours plus grandes dans le domaine de sa compétence et, dans le même temps, à prendre des décisions responsables sur les pas à accomplir et sur ceux face auxquels s’arrêter et emprunter une voie différente. Le *principe de responsabilité* est un pivot incontournable de l’agir de l’homme qui doit répondre de ses actes et de ses omissions devant lui-même, devant les autres et enfin devant Dieu. Les technologies, plus encore que les sciences, placent entre les mains de l’homme un pouvoir immense et croissant. Le risque grave est que les citoyens, et parfois aussi ceux qui les représentent et les gouvernent, ne perçoivent pas pleinement la gravité des défis qui se présentent, la complexité des problèmes à résoudre et le danger de mal utiliser la puissance que les sciences et les technologies de la vie placent entre nos mains (cf. Romano Guardini, *La fin de l’époque moderne*, Brescia 1987, pp.80-81).
+
+De plus, lorsque le lien entre le pouvoir technologique et le pouvoir économique se fait plus étroit, les intérêts peuvent alors conditionner les styles de vie et les orientations sociales dans la direction du profit de certains groupes industriels et commerciaux, au détriment des populations et des nations plus pauvres. Il n’est pas facile d’atteindre une composition harmonieuse des diverses instances scientifiques, productives, éthiques, sociales, économiques et politiques, en promouvant un développement durable qui respecte la «maison commune». Une telle composition harmonieuse requiert humilité, courage et ouverture à la confrontation entre les diverses positions, dans la certitude que le témoignage rendu par les hommes de science à la vérité et au bien commun contribue à faire mûrir la conscience civile.
+
+En conclusion de cette réflexion, permettez-moi de rappeler que les sciences et les technologies sont faites pour l’homme et pour le monde, et non pas l’homme et le monde pour les sciences et les technologies. Qu’elles soient au service d’une vie digne et saine pour tous, dans le présent et à l’avenir, et qu’elles rendent notre maison commune plus habitable et solidaire, plus soignée et protégée. Enfin, j’encourage l’effort de votre comité en vue de lancer et de soutenir des processus de consensus entre les scientifiques, les technologues, les entrepreneurs et les représentants des institutions, et pour identifier des stratégies de sensibilisation de l’opinion publique sur les questions soulevées par les développements des sciences de la vie et des biotechnologies.
+
+Que le Seigneur bénisse chacun de vous, ainsi que vos familles et votre précieux travail. Je vous assure de mon souvenir dans la prière et je suis certain que vous aussi vous ferez de même. Merci.

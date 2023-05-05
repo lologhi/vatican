@@ -1,0 +1,21 @@
+***MESSAGE DU PAPE PAUL VI***
+
+***À L’OCCASION DES JEUX OLYMPIQUES D’HIVER***
+
+***À GRENOBLE***
+
+*Lundi 5 février 1968*
+
+Au moment où s’ouvrent à Grenoble les Jeux Olympiques Mondiaux d’Hiver, Nous sommes heureux d’assurer organisateurs et athlètes du vif intérêt que Nous portons à tette grandiose compétition, de Notre estime affectueuse pour leurs personnes, de Nos encouragements et de Nos vœux.
+
+Tant d’efforts ont été nécessaires pour préparer tette magnifique réalisation qui s’inscrit au bénéfice d’une authentique promotion des hommes. Une ville et une région ont été marquées par d’importants travaux, et ces heureux aménagements techniques profiteront demain à tous les habitants dont le plein épanouissement humain sera ainsi facilité. En même temps, Grenoble se préparait à donner à ses nombreux hôtes un accueil agréable et délicat. Et voici que désormais à pied d’œuvre tous les participants qui se sont entraînés par de longs et patients efforts s’apprêtent à en recueillir le fruit. Nous Nous en réjouissons vivement, heureux de tette riche vitalité et de ses promesses d’avenir.
+
+Depuis leur origine, l’Eglise a toujours applaudi à ces nobles compétitions. Le récent Concile n’a pas manqué pour sa part de souligner la valeur de ces activités sportives, «qui aident à conserver un bon équilibre psychique, individuellement et collectivement» (Const. *[Gaudium et spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, n. 61, § 3). Au reste, le problème est d’ores et déjà posé d’une civilisation où un nombre d’hommes toujours croissant pourra accéder plus largement aux loisirs. Il lui faudra donc donner sa juste place au sain développement du corps, indispensable à l’harmonie même de l’homme. «Il est interdit à l’homme de dédaigner la vie corporelle, - dit encore le Concile - . . . c’est la dignité même de l’homme qui exige de lui qu’il glorifie Dieu dans son corps» ( *ibid*., n. 14). Qui ne voit d’ailleurs le rôle éducatif et l’apport de l’entraînement sportif à la formation complète de la personne? Ne requiert-il pas souvent maîtrise de soi, patience, discipline rigoureuse, mépris du danger, loyauté dans la compétition, sérénité devant le résultat, sens de l’équipe? Autant de vertus humaines que notre époque se doit de cultiver, pour prémunir l’homme contre les séductions amollissantes que présente une conception hédoniste et dégradée de la vie.
+
+Et comment ne pas s’en réjouir? Dans un monde divisé qui cherche comme à tâtons son unité, dans une fraternité toujours menacée et vulnérable, votre rassemblement est un appel lancé à tous les peuples: cette sereine compétition peut «établir des relations fraternelles entre les hommes de toutes conditions, de toutes nations ou de races différentes» ( *ibid*., n. 61, § 3). Certes, chaque pays va lutter ici avec ardeur pour sa victoire, mais c’est un combat pacifique, sans haine ni mépris. Bien plus, chacun va apprendre à reconnaître chez l’autre une valeur qu’il ignorait. Ainsi élevés durant ces quelques jours au-dessus des conflits qui déchirent l’humanité, puissiez-vous, chers fils, devenir les artisans d’un rapprochement des peuples! Puissent la sympathie et l’amitié pour vos compétiteurs s’enraciner dans vos cœur et les marquer profondément. Revenus dans vos patries, enrichis par ces expériences bénéfiques, vous saurez en prolonger le retentissement autour de vous et agir comme un ferment efficace de compréhension et de paix. C’est vous dire combien l’Eglise se réjouit d’un tel rassemblement où tous les visages de l’humanité sont appelés à prendre leur place, elle qui ne cesse de rassembler en un même Corps ses fils de toute provenance et de bénéficier de la diversité de leurs apports.
+
+Que ces journées vous apportent à tous les joies légitimes que vous en attendez. Que le vœu de l’Apôtre «glorifiez Dieu dans votre Corps» ( *1 Cor*. 6, 20) se réalise dans vos personnes. C’est Notre souhait le plus cher que Nous accompagnons de Notre affectueuse Bénédiction Apostolique.
+
+*Du Vatican, le 24 janvier 1968.*
+
+**PAULUS PP. VI**
