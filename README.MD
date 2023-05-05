@@ -1,7 +1,7 @@
 vatican
 ======
 
-This is just copy-pasted, but I will try to make a script to parse all the texts from vatican.va.
+Le résultat du travail de [vatican-parser](https://github.com/lologhi/vatican-parser).
 
 © AELF
 © Copyright - Libreria Editrice Vaticana
