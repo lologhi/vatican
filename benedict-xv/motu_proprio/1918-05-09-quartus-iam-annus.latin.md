@@ -1,0 +1,19 @@
+**BENEDICTUS PP. XV**
+
+MOTU PROPRIO
+
+***QUARTUS IAM ANNUS****
+
+DEMISSA  PROPRAE SENTIBUS SOCIETATIS HUMANAE  NECESSITATIBUS
+
+DIE XXIX PROXIMI MENSIS IUNII CELEBRANDA.
+
+Quartus iam annus ad exitum appropinquat, ex quo, ut Europa bello flagrare coepit, Nobis Pontificatus maximi est onus impositum ; atque hoc toto spatio, uti non se remisit unquam, imo excrevit dimicandi furor, ita ne punctum quidem temporis respiravit animus Noster ab acri cura et sollicitudine qua ex tantis belli tamque ingravescentibus malis afficiebantur. Hanc enim seriem continuationemque rerum tristissimarum hucusque Nos sine intermissione inspectantes, non solum doluimus omnium doloribus, ut vere possimus illud Apostoli usurpare : « quis infirmatur, et ego non infirmor ? Quis scandalizatur, et ego non uror ?»; sed etiam de iis quae et conscientia admonebat officii, Nobis divinitus attributi, et Iesu Christi caritas suadebat, nihil unquam, quoad potuimus, intentatum reliquimus. Nunc vero in ea temporum conditione versamur, ut sponte occurrat recordatio illius Iosaphat regis, ita maximis in angoribus comprecantis : « Domine Deus patrum nostrorum, tu es Deus in caelo et dominans cunctis regnis gentium ; in manu tua est fortitudo et potentia, nec quisquam tibi potest resistere... clamabimus ad te in tribulationibus nostris et exaudies salvosque facies... Deus noster... cum ignoramus quid agere debeamus, hoc solum habemus residui ut oculos nostros dirigamus ad te » ( *II Par*., XX, 6-12). Iam igitur omnem « sollicitudinem Nostram proiicientes in Eum », cuius in arbitrio sunt hominum voluntates eventusque rerum, ab Ipso qui « castigando sanat et ignoscendo conservat » illud exspectamus ut misericors tantis aerumnis finem celeriter faciat, rebusque sua pace compositis, regnum in hominibus iustitiae caritatisque restituat. Sed primum omnium, iratus tam late diffusa contumacia peccandi, placandus Deus ; idque prece humili ac supplici, quam scimus plurimum posse ad impetrandum, si quidem confidenter et perseveranter fiat. — Iam vero ad divinam maiestatem propitiandam nihil plus valet quam sacrosanctum Eucharistiae sacrificium, in quo Ipse Patri offertur qui « dedit redemptionem semetipsum pro omnibus », « semper vivens ad interpellandum pro nobis ». Ac recte Ecclesia animarum pastoribus legem constituit certis diebus pro populo eorum curis concredito sacrum faciendi : quibus praesertim diebus piissima mater divinam clementiam suorum filiorum necessitatibus vult conciliari. Quoniam autem rerum omnium quibus haec tempora indigent, ea est summa, ut rursus concordia et tranquillitate potiatur humana societas, Nobis visum est peropportunum, sacros pastores, in praecipua quadam Ecclesiae solemnitate, universos Nobiscum divinum sacrificium in eam causam offerre. Itaque Motu proprio statuimus, ut die XXIX proximi mensis Iunii, natali Sanctorum Apostolorum Petri et Pauli, qui populi christiani praesidia sunt et firmamenta, quotquot ex officio Missam pro populo celebrare debent, eam celebrent secundum mentem quam diximus. Praeterea sciant ceteri ex utroque Clero sacerdotes fore Nobis gratissimum, si eodem die sacrum facientes suam quoque mentem Nostrae adiungere velint. Sic enim, toto catholicorum sacerdotum ordine, in quavis ora ac parte terrarum, una simul Nobiscum sacrificante, maior aderit spes a divina bonitate impetrandi, ut illud tandem efficiatur, quod cuique est optatissimum : Iustitia et pax osculatae sunt.
+
+*Datum Romae apud sanctum Petrum die IX mensis maii, festo Ascensionis Domini, MCMXVIII, Pontificatus Nostri anno quarto.*
+
+**BENEDICTUS PP. XV**
+
+* * *
+
+*A.A.S., vol. X (1918), n. 6, pp. 225-227

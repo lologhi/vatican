@@ -1,0 +1,43 @@
+[VOYAGE APOSTOLIQUE À PARIS ET LISIEUX\
+\
+(30 MAI - 2 JUIN 1980)](/content/john-paul-ii/fr/travels/sub_index1980/trav_parigi.html)
+
+***ARRIVÉE DE JEAN-PAUL II À PARIS***
+
+*Vendredi, 30 mai 1980*
+
+*Monsieur le Président,*
+
+Je suis particulièrement touché des paroles que vous venez de m’adresser, dès mon arrivée sur le sol de France. Je vous en remercie vivement. Vous l’avez fait en votre nom personnel, vous l’avez fait au nom du Peuple Français auquel, en votre personne, je voudrais adresser mon premier message.
+
+**1.** Loué soit Jésus-Christ ! Oui, c’est bien ainsi, par ces mots emplis de ferveur et d’action de grâce, que j’ai voulu, dès le soir de mon élection comme Évêque de Rome et Pasteur universel, inaugurer mon ministère de prédication de l’Évangile. Ce salut, je l’ai porté en premier à mes diocésains des bords du Tibre, qui venaient de m’être confiés pour les guider selon les desseins de la divine Providence. Je l’ai porté ensuite à d’autres peuples, à d’autres Églises locales, avec tout le contenu d’estime, de sollicitude pastorale, d’espérance aussi dont il est chargé.
+
+Ce même salut, je viens le porter maintenant à la France, avec tout mon cœur, avec toute mon affection, en lui disant : je suis profondément heureux de te visiter en ces jours, et de te montrer mon désir de te servir en chacun de tes Enfants. Le message que je veux te livrer est un message de paix, de confiance, d’amour et de foi. De foi en Dieu, bien sûr, mais également, si je puis m’exprimer ainsi, de foi en l’homme, de foi dans les merveilleuses possibilités qui lui ont été données, afin qu’il en use avec sagesse et dans le souci du bien commun, pour la gloire du Créateur.
+
+A tous les Fils et à toutes les Filles de cette grande Nation, à tous le Pape offre ses vœux les plus cordiaux, au nom du Seigneur. La France symbolise pour le monde un pays à l’histoire très ancienne, très dense aussi. Un pays au patrimoine artistique et culturel incomparable, dont le rayonnement n’est plus à décrire. Combien de peuples ont bénéficié du génie français, qui a marqué leurs propres racines, et constitue encore pour eux un motif de fierté en même temps, on peut l’affirmer, qu’une sorte de référence !
+
+Le rôle de la France se poursuit dans la communauté internationale, au niveau qui est le sien, mais avec un esprit d’ouverture et un souci d’apporter une contribution à la fois aux principaux problèmes internationaux, et aux situations de contrées moins favorisées. Au cours de mes précédents voyages, j’ai pu constater la place qu’elle tient sous d’autres cieux. Mais plus qu’à l’ampleur des moyens mis en œuvre, forcément limités, c’est à son Peuple qu’elle doit sa place, à des hommes et à des femmes héritiers de sa civilisation.
+
+**2.** Ce sont ces hommes et ces femmes, l’âme de la France, que je rencontrerai en ces jours.
+
+Comment ne pas être touché de l’accueil que vous me réservez ici, dans votre capitale ? Beaucoup d’entre vous m’ont écrit avant cette visite, et vous êtes très nombreux ce soir à me souhaiter la bienvenue. Je ne puis malheureusement remercier chacun en particulier, ni serrer toutes les mains que vous aimerez me tendre. Mais devant vous, aux représentants de la souveraineté nationale, je voudrais témoigner ma vive gratitude.
+
+Monsieur le Président, vous que vos compatriotes ont désigné pour assumer la plus haute responsabilité de l’État, daignez par conséquent accepter l’hommage reconnaissant que j’adresse au Peuple Français tout entier. J’ajouterai des sentiments de satisfaction pour la disponibilité extrême dont on fait preuve personnellement Votre Excellence, et aussi Monsieur le Premier Ministre et le Gouvernement, dès que leur fut connu mon projet.
+
+De ce voyage, vous avez d’emblée compris la nature propre : un voyage pastoral avant tout, pour visiter et encourager les catholiques de France ; un voyage qui veut également traduire mon estime et mon amitié pour l’ensemble de la population, et je pense ici en particulier aux membres des autres confessions chrétiennes, de la communauté judaïque et de la religion islamique. Mon désir était que ce voyage pût s’accomplir dans la simplicité et la dignité, en ménageant aussi, chaque fois que possible, des contacts et des rencontres. Vous avez prêté tout votre concours à la réalisation du programme, et j’y suis d’autant plus sensible qu’il fallait une préparation minutieuse. Je pense enfin aux personnes auxquelles ces événements occasionnent un surcroît de travail. Tout cela fait partie de l’hospitalité, unè vertu dont la France peut s’honorer à juste titre. Vraiment, j’exprime à tous un cordial merci.
+
+**3.** Je vous salue très spécialement, chers catholiques de France, mes Frères et mes Sœurs dans le Christ, mes amis. Vous m’avez invité à constater, quinze cents ans ou presque après le baptême de votre Nation, que la foi y est toujours vivante, jeune, dynamique, que la générosité ne manque pas chez vous. Elle se traduit même par un bouillonnement d’initiatives, de recherches, de réflexions. Il vous faut en effet affronter des problèmes souvent nouveaux, ou tout au moins des problématiques nouvelles. Le contexte dans lequel vous vivez évolue rapidement, en fonction de mutations culturelles et sociales qui ne sont pas sans influer progressivement sur les mœurs, sur les mentalités.
+
+C’est une multitude d’interrogations qui se posent à vous. Que faire ? Comment répondre aux besoins fondamentaux de l’homme contemporain, qui révèlent finalement un immense besoin de Dieu ?
+
+En union avec vos évêques, et en particulier avec le cher Cardinal archevêque de Paris et le Président de la Conférence épiscopale française, je suis venu vous encourager dans la voie de l’Évangile, une voie étroite certes, mais la voie royale, sûre, éprouvée par des générations de chrétiens, enseignée par les saints et les bienheureux dont s’honore votre patrie, la voie sur laquelle, tout comme vous, vos frères dans l’Église universelle s’efforcent de cheminer.
+
+Cette voie ne passe pas par la résignation, les renoncements ou les abandons. Elle ne se résout pas à l’affadissement du sens moral, et elle souhaiterait que la loi civile elle-même aide à élever l’homme. Elle ne cherche pas à s’enterrer, à demeurer inaperçue, mais elle requiert au contraire l’audace joyeuse des Apôtres. Elle bannit donc la pusillanimité, tout en se montrant parfaitement respectueuse à l’égard de ceux qui ne partagent pas le même idéal. Si l’Église revendique en effet pour elles-mêmes la liberté religieuse, et si elle a de multiples raisons de se féliciter d’en jouir en France, il est normal qu’elle respecte aussi les convictions des autres. Elle demande, pour sa part, qu’on lui permette de vivre, de témoigner publiquement et de s’adresser aux consciences.
+
+“Reconnais, ô chrétien, ta dignité”, disait le grand Pape saint Léon. Et moi, son indigne successeur, je vous dis à vous, mes Frères et Sœurs catholiques de France : Reconnaissez votre dignité! Soyez fiers de votre foi, du don de l’Esprit que le Père vous a fait ! Je viens parmi vous comme un pauvre, avec la seule richesse de la foi, pèlerin de l’Évangile. Donnez à l’Église et au monde l’exemple de votre fidélité sans faille et de votre zèle missionnaire. Ma visite chez vous veut être, en même temps qu’un témoignage de solidarité à l’égard de vos pasteurs, un appel à un élan nouveau devant les tâches nombreuses qui s’offrent à vous.
+
+Je sens que, dans le fond de vos cœurs, vous entendrez cette exhortation. Je l’adresse, dès mon arrivée sur le sol de la France, à tous ceux qui m’écoutent, et j’aurai ensuite l’occasion de la reprendre ces jours-ci en m’entretenant avec les évêques, les prêtres, les religieux et les religieuses, les laïcs engagés dans l’apostolat, en rencontrant le monde du travail et celui des jeunes, les hommes de pensée et de science. Un moment tout à fait spécial sera réservé à l’UNESCO, qui a son siège dans votre capitale : il m’a semblé très important, en effet, de répondre à sa courtoise invitation, pour saluer un aréopage exceptionnel de témoins de la culture de notre temps, et apporter le propre témoignage de l’Église.
+
+Il faut achever à présent ce premier contact. Je vais me rendre à la basilique Notre-Dame, la Mère des églises de ce diocèse, et l’un des plus vénérables édifices religieux de cette Nation. Je veux y confier au Seigneur et à la Vierge très sainte les souhaits que je forme a l’intention du Peuple Français tout entier. Que Dieu bénisse la France !
+
+© Copyright 1980 - Libreria Editrice Vaticana

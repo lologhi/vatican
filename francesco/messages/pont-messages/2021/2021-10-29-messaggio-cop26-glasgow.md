@@ -1,0 +1,85 @@
+**MESSAGE DU PAPE FRANÇOIS**
+
+**À SON EXCELLENCE M. ALOK SHARMA,**
+
+**PRÉSIDENT DE LA CONFÉRENCE SUR LES CHANGEMENTS CLIMATIQUES, COP26**
+
+[Glasgow, 31 octobre – 12 novembre 2021]
+
+*Excellence,*
+
+Alors que commence la Conférence de Glasgow, nous sommes tous conscients de son devoir important de montrer  à la communauté internationale tout entière s’il subsiste réellement la volonté politique de destiner avec honnêteté, res-ponsabilité et courage de plus grandes ressources humaines, financières et technologiques pour atténuer les effets négatifs du changement climatique ain-si que pour aider les populations les plus pauvres et vulnérables, qui sont celles qui en souffrent le plus (cf. *[Message vidéo au Sommet sur le climat](https://www.vatican.va/content/francesco/fr/messages/pont-messages/2019/documents/papa-francesco_20190923_videomessaggio-climate-action-summit.html)*, New York, 23 septembre 2019).
+
+Mais il y a bien plus : ce devoir devra, en effet, être accompli au milieu d’une pandémie qui, depuis près de deux ans, frappe notre humanité. A côté des divers drames qu’a apportés le covid-19, la pandémie nous enseigne également que nous n’avons pas d’alternatives : nous ne réussirons à la vaincre que si nous prenons tous part à ce défi. Tout cela, nous le savons bien, requiert une collaboration profonde et solidaire entre tous les peuples du monde.
+
+Il y a eu un avant-pandémie qui sera inévitablement différent de l’après-pandémie que nous devons construire, ensemble, en partant des erreurs commises par le passé.
+
+Un discours analogue peut être fait en ce qui concerne nos efforts pour résoudre le problème mondial du changement climatique. Nous n’avons pas d’alternatives. Nous pouvons poursuivre les objectifs écrits dans l’Accord de Paris uniquement si nous agissons de manière coordonnée et responsable. Ce sont des objectifs ambitieux, mais qui ne peuvent être différés. Aujourd’hui, c’est à vous qu’il revient de prendre ces décisions.
+
+La COP26 peut et doit contribuer activement à l’édification consciencieuse d’un avenir où les comportements quotidiens et les investissements économiques et financiers peuvent réellement sauvegarder les conditions d’une vie digne de l’humanité d’aujourd’hui et de demain sur une planète « saine ».
+
+Il s’agit d’un changement historique, d’un défi de civilisation pour lequel nous avons besoin de l’engagement de tous, et en particulier des pays ayant de plus grandes capacités, qui doivent assumer un rôle de guide dans le domaine de la finance climatique, de la décarbonisation du système économique et de la vie des personnes, de la promotion d’une économie circulaire, du soutien aux pays les plus vulnérables pour les activités d’adaptation aux impacts du changement climatique et de réponse aux pertes et aux dommages découlant de ce phénomène.
+
+Pour sa part, le Saint-Siège, [comme je l’ai indiqué dans le *High Level Climate Ambition Summit* du 12 décembre 2020](https://www.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/12/12/videomessaggio-climate-ambition-summit.html), a adopté une stratégie de réduction à zéro des émissions nettes ( *net-zero emission*), qui sera accomplie à deux niveaux : 1) l’engagement de l’Etat de la Cité du Vatican à poursuivre cet objectif d’ici 2050 ; 2) l’engagement du Saint-Siège lui-même à promouvoir une éducation à l’économie intégrale, bien conscient que les mesures politiques, techniques et opératives doivent être associées à un processus éducatif qui, également et surtout parmi les jeunes, promeuve des styles de vie nouveaux et favorise un modèle culturel de développement et de durabilité centré sur la fraternité et sur l’alliance entre l’être humain et le milieu naturel. De ces engagements sont nés des milliers d’initiatives dans le monde entier.
+
+Dans cette perspective également, [le 4 octobre dernier, j’ai eu le plaisir de rencontrer divers responsables religieux et scientifiques](https://www.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/10/4/religione-scienza-cop26.html) pour signer un [Appel conjoint](https://press.vatican.va/content/salastampa/it/bollettino/pubblico/2021/10/04/0627/01342.html#APPELLO) en vue de la COP26. A cette occasion, nous avons entendu les voix de représentants de nombreuses confessions et traditions spirituelles, de nombreuses cultures et milieux scientifiques. Des voix différentes ayant des sensibilités différentes. Mais ce que l’on a pu percevoir clairement a été une forte convergence de tous à s’engager face à la nécessité urgente d’entamer un changement de cap capable de passer de façon résolue et convaincue de la « culture du déchet » dominante dans notre société à une « culture du soin » de notre maison commune et de ceux qui y habitent ou qui y habiteront.
+
+Les blessures infligées à l’humanité par la pandémie de covid-19 et par le phénomène du changement climatique sont comparables à celles dérivant d’un conflit mondial. Tout comme au lendemain de la deuxième guerre mondiale, il est nécessaire qu’aujourd’hui, toute la communauté internationale ait comme priorité la mise en œuvre d’actions collégiales, solidaires et clairvoyantes.
+
+Nous avons besoin d’espérance et de courage. L’humanité a les moyens d’affronter cette transformation qui exige une véritable conversion, individuelle mais aussi communautaire, et la ferme volonté d’entreprendre ce chemin. Il s’agit de la transition vers un modèle de développement plus intégral et intégrant, fondé sur la solidarité et la responsabilité; une transition qui devra aussi prendre sérieusement en considération les effets qu’elle aura sur le monde du travail.
+
+Dans cette perspective, une attention particulière doit également être accordée aux personnes les plus vulnérables, envers lesquelles a été contractée une « dette écologique », liée tant à des déséquilibres commerciaux ayant des conséquences sur l’environnement, qu’à l’utilisation disproportionnée des ressources naturelles de son propre pays et d’autres (Lettre enc. *[Laudato si’](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, n. 51). Nous ne pouvons pas le nier.
+
+La « dette écologique »  soulève d’une certaine façon la question de la dette extérieure, dont la pression freine souvent le développement des peuples (Lettre enc. *[Fratelli tutti](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html)*, n. 126). L’après-pandémie peut et doit repartir en tenant compte de tous ces aspects, liés également à la mise en place de procédures attentivement négociées de remise de la dette extérieure, associées à une restructuration économique plus durable et juste, visant à soutenir l’urgence climatique. « Il faut que les pays développés contribuent à solder cette dette, en limitant de manière significative la consommation de l’énergie non renouvelable et en apportant des ressources aux pays qui ont le plus de besoins, pour soutenir des politiques et des programmes de développement durable » (Lettre enc. *[Laudato si’](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, n. 52). Un développement auquel tous peuvent enfin prendre part.
+
+Malheureusement, nous devons constater avec amertume que nous sommes encore loin d’atteindre les objectifs désirés pour lutter contre le changement climatique. Il faut le dire avec honnêteté: cela ne peut plus durer ! A divers moments, en vue de la COP26, il est apparu clairement qu’il n’y a pas de temps à perdre ; il y a trop, désormais, de visages humains qui souffrent de cette crise climatique : outre ses impacts toujours plus fréquents et intenses sur la vie quotidienne de nombreuses personnes, en particulier des populations les plus vulnérables, on se rend compte qu’elle est devenue également une crise des droits des enfants et que, dans un avenir proche, les migrants environnementaux seront plus nombreux que les réfugiés des conflits. Il faut agir avec urgence, courage et responsabilité. Agir également pour préparer un avenir dans lequel l’humanité est en mesure de prendre soin d’elle-même et de la nature.
+
+Les jeunes, qui au cours des dernières années nous demandent avec insistance d’agir, hériteront de la planète que nous choisissons de leur laisser, en fonction des choix concrets que nous faisons aujourd’hui. Le moment est venu de prendre des décisions qui leur donne un motif d’espérance dans l’avenir.
+
+J’aurais voulu être présent parmi vous, mais cela n’a pas été possible. Je vous accompagne toutefois par ma prière dans ces choix importants.
+
+Recevez, Monsieur le président, mes salutations les plus sincères et cordiales.
+
+François
+
+Message du Pape François au président de la cop 26 de Glasgow
+
+Il est temps d’agir avec urgence,  courage et responsabilité
+
+Nous publions ci-dessous le message du Pape adressé au président de la conférence sur les changements climatiques, *cop* 26, en cours à Glasgow du 31 octobre au 12 novembre, et qui a été lu par le cardinal-secrétaire d’Etat, Pietro Parolin, le mardi 2 novembre :
+
+Excellence,
+
+Alors que commence la Conférence de Glasgow, nous sommes tous conscients de son devoir important de montrer  à la communauté internationale tout entière s’il subsiste réellement la volonté politique de destiner avec honnêteté, res-ponsabilité et courage de plus grandes ressources humaines, financières et technologiques pour atténuer les effets négatifs du changement climatique ain-si que pour aider les populations les plus pauvres et vulnérables, qui sont celles qui en souffrent le plus (cf. Message vidéo au Sommet sur le climat, New York, 23 septembre 2019).
+
+Mais il y a bien plus : ce devoir devra, en effet, être accompli au milieu d’une pandémie qui, depuis près de deux ans, frappe notre humanité. A côté des divers drames qu’a apportés le covid-19, la pandémie nous enseigne également que nous n’avons pas d’alternatives : nous ne réussirons à la vaincre que si nous prenons tous part à ce défi. Tout cela, nous le savons bien, requiert une collaboration profonde et solidaire entre tous les peuples du monde.
+
+Il y a eu un avant-pandémie qui  sera inévitablement différent de l’après-pandémie que nous devons construire, ensemble, en partant des erreurs commises par le passé.
+
+Un discours analogue peut être fait en ce qui concerne nos efforts pour résoudre le problème mondial du changement climatique. Nous n’avons pas d’alternatives. Nous pouvons poursuivre les objectifs écrits dans l’Accord de Paris uniquement si nous agissons de manière coordonnée et responsable. Ce sont des objectifs ambitieux, mais qui ne peuvent être différés. Aujourd’hui, c’est à vous qu’il revient de prendre ces décisions.
+
+La cop26 peut et doit contribuer activement à l’édification consciencieuse d’un avenir où les comportements quotidiens et les investissements économiques et financiers peuvent réellement sauvegarder les conditions d’une vie digne de l’humanité d’aujourd’hui et de demain sur une planète « saine ».
+
+Il s’agit d’un changement historique, d’un défi de civilisation pour lequel nous avons besoin de l’engagement de tous, et en particulier des pays ayant de plus grandes capacités, qui doivent assumer un rôle de guide dans le domaine de la finance climatique, de la décarbonisation du système économique et de la vie des personnes, de la promotion d’une économie circulaire, du soutien aux pays les plus vulnérables pour les activités d’adaptation aux impacts du changement climatique et de réponse aux pertes et aux dommages découlant de ce phénomène.
+
+Pour sa part, le Saint-Siège, comme je l’ai indiqué dans le High Level Climate Ambition Summit du 12 décembre 2020, a adopté une stratégie de réduction à zéro des émissions nettes (net-zero emission), qui sera accomplie à deux niveaux : 1) l’engagement de l’Etat de la Cité du Vatican à poursuivre cet objectif d’ici 2050 ; 2) l’engagement du Saint-Siège lui-même à promouvoir une éducation à l’économie intégrale, bien conscient que les mesures politiques, techniques et opératives doivent être associées à un processus éducatif qui, également et surtout parmi les jeunes, promeuve des styles de vie nouveaux et favorise un modèle culturel de développement et de durabilité centré sur la fraternité et sur l’alliance entre l’être humain et le milieu naturel. De ces engagements sont nés des milliers d’initiatives dans le monde entier.
+
+Dans cette perspective également, le 4 octobre dernier, j’ai eu le plaisir de rencontrer divers responsables religieux et scientifiques pour signer un Appel conjoint en vue de la cop26. A cette occasion, nous avons entendu les voix de représentants de nombreuses confessions et traditions spirituelles, de nombreuses cultures et milieux scientifiques. Des voix différentes ayant des sensibilités différentes. Mais ce que l’on a pu percevoir clairement a été une forte convergence de tous à s’engager face à la nécessité urgente d’entamer un changement de cap capable de passer de façon résolue et convaincue de la « culture du déchet » dominante dans notre société à une « culture du soin » de notre maison commune et de ceux qui y habitent ou qui y habiteront.
+
+Les blessures infligées à l’humanité par la pandémie de covid-19 et par le phénomène du changement climatique sont comparables à celles dérivant d’un conflit mondial. Tout comme au lendemain de la deuxième guerre mondiale, il est nécessaire qu’aujourd’hui, toute la communauté internationale ait comme priorité la mise en œuvre d’actions collégiales, solidaires et clairvoyantes.
+
+Nous avons besoin d’espérance et de courage. L’humanité a les moyens d’affronter cette transformation qui exige une véritable conversion, individuelle mais aussi communautaire, et la ferme volonté d’entreprendre ce chemin. Il s’agit de la transition vers un modèle de développement plus intégral et intégrant, fondé sur la solidarité et la responsabilité; une transition qui devra aussi prendre sérieusement en considération les effets qu’elle aura sur le monde du travail.
+
+Dans cette perspective, une attention particulière doit également être accordée aux personnes les plus vulnérables, envers lesquelles a été contractée une « dette écologique », liée tant à des déséquilibres commerciaux ayant des conséquences sur l’environnement, qu’à l’utilisation disproportionnée des ressources naturelles de son propre pays et d’autres (Lettre enc. Laudato si’, n. 51). Nous ne pouvons pas le nier.
+
+La « dette écologique »  soulève d’une certaine façon la question de la dette extérieure, dont la pression freine souvent le développement des peuples (Lettre enc. Laudato si’, n. 126). L’après-pandémie peut et doit repartir en tenant compte de tous ces aspects, liés également à la mise en place de procédures attentivement négociées de remise de la dette extérieure, associées à une restructuration économique plus durable et juste, visant à soutenir l’urgence climatique. « Il faut que les pays développés contribuent à solder cette dette, en limitant de manière significative la con-sommation de l’énergie non renouvelable et en apportant des ressources aux pays qui ont le plus de besoins, pour soutenir des politiques et des programmes de développement durable » (Lettre enc. Laudato si’, n. 52). Un développement auquel tous peuvent enfin prendre part.
+
+Malheureusement, nous devons constater avec amertume que nous sommes encore loin d’atteindre les objectifs désirés pour lutter contre le changement climatique. Il faut le dire avec honnêteté: cela ne peut plus durer ! A divers moments, en vue de la cop26, il est apparu clairement qu’il n’y a pas de temps à perdre ; il y a trop, désormais, de visages humains qui souffrent de cette crise climatique : outre ses impacts toujours plus fréquents et intenses sur la vie quotidienne de nombreuses personnes, en particulier des populations les plus vulnérables, on se rend compte qu’elle est devenue également une crise des droits des enfants et que, dans un avenir proche, les migrants environnementaux seront plus nombreux que les réfugiés des conflits. Il faut agir avec urgence, courage et responsabilité. Agir également pour préparer un avenir dans lequel l’humanité est en mesure de prendre soin d’elle-même et de la nature.
+
+Les jeunes, qui au cours des dernières années nous demandent avec insistance d’agir, hériteront de la planète que nous choisissons de leur laisser, en fonction des  choix concrets que nous faisons aujourd’hui. Le moment est venu de prendre des décisions qui leur donne un motif d’espérance dans l’avenir.
+
+J’aurais voulu être présent parmi vous, mais cela n’a pas été possible. Je vous accompagne toutefois par ma prière dans ces choix importants.
+
+Recevez, Monsieur le président, mes salutations les plus sincères et cordiales.
+
+François

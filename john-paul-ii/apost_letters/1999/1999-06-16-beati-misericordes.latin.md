@@ -1,0 +1,35 @@
+**IOANNES PAULUS PP. II**
+
+**LITTERA** **E DECRETALES**
+
+***BEATI MISERICORDES****
+
+QUIBUS BEATAE CUNEGUNDI SEU KINGAE,
+
+MONIALI PROFESSAE ORDINIS S. CLARAE, OLIM DUCISSAE
+
+CRACOVIENSI ET SANDOMIRIENSI, SANCTORUM HONORES DECERNUNTUR.
+
+« Beati misericordes quia misericordiam consequentur. Beati mundo corde quoniam ipsi Deum videbunt » ( *Mt* 5, 7-8). Ex beatitudinibus consilia propositaque usque duxit Cunegundis, simul cum viro vivens, simul in monasterio Ordinis Sanctae Clarae suam exigens aetatem.
+
+Cunegundis, Belae IV Hungariae regis Reginaeque Mariae Lascaris filia, die V mensis Martii anno MCCXXIV orta est, quae quinque annos nata in Polonia ducta est eaque Boleslao, Sandomiriensi duci, desponsata, ducalem Cracoviae solium legitime occupaturo. Sponsali icto foedere, Cunegundis christianam disciplinam et eruditionem sustinuit Grimislava, Boleslai mater et tutrix. Ut puerum puellamque tueretur, Tartaris anno MCCXLI invadentibus, in Moraviam effugit ibique duos annos mansit. Anno MCCXLIII Cracoviae nobiles, qui Boleslai ius ad ducalem solium vindicare contendebant, eundem in Poloniam reportarunt, frequenti Hungarorum equitum comitante turma et usurpatoris copias profligaverunt. Anno MCCXLVII Boleslaus suam potestatem solidavit atque ducissa suam iterum dedit operam ut militibus stipendia persolverentur. Hoc quidem tempore Cunegundis suam spiritalem vitam roborare studuit. Ipsa Franciscalem motum cognovit eaque Francisci Claraeque evangelico exemplo pellecta est. Suo In animo miram virginitatis propter regnum caelorum voluptatem crescere sentiebat, sibi conscia Deum id postulare Ipsumque concessurum ut eandem etiam in matrimonio viro assentiente servare posset. Anno MCCXLVIII Boleslaus et Cunegundis nuptias sollemniter inierunt. Dei beneficio temporariam assensionem virginitatis servandae gratia obtinuit ducissa ; posthac, multis superatis difficultatibus, assensum perpetuum consecuta est. Boleslaus gratus agrum Sącz Cunegundi liberis cum mandatis mancipavit, in quo ipsa socialem religiosamque curam singulariter adhibuit. Anno MCCLXXIX, Boleslao vita functo, Cunegundis pauperibus pecuniam moniliumque pretium dedit atque Sącz concessit, ubi annis MCCLXXX-MCCLXXXI claustrum aedificavit, quod monialibus S. Clarae una cum possessionibus commodavit, quas ipsa antea susceperat. Anno MCCLXXXVIII, cum iam esset in monasterio, dicta est « Domina de Sandech sub Ordine S. Francisci divinis mancipata obsequiis », scilicet novitia ; die XXIV mensis Aprilis subsequentis anni vota religiosa nuncupavit secundum « Regulam Ordinis S. Clarae », quam Urbanus IV anno MCCLXIII comprobaverat. Anno MCCXCI decem per menses gravissimi morbi aerumnas placide toleravit. Sacramentis caelestibusque visis roborata die XXIV mensis Iulii anno MCCXCII de hoc mundo demigravit. Cunegundis eximias christianas virtutes Boleslaus ipse vir proclamavit, qui publice declaravit « Kunegundim non solum auro, argento et lapidibus pretiosis gloriose regali providentia et magnificentia ditatam, verum virtutum etiam ac nobilium morum dotibus plurimum redimitam »; quibus dotibus ad Dei voluntatem ac produce patriaque ipsa usa est. Eius Vitae I narratio coaeva et Vita II saeculi XV insigniter prae se Cunegundis virtutes ferunt. Beatam Virginem Mariam cotidianis precationibus est venerata eandemque diebus festis in sanctuariis ipsi dicatis honorabat. Palam quoque S. Franciscum et S.Claram colebat. Ipsius fidei significationes eiusdem in Deum caritatem lucide patefaciunt. Flagrantem erga Deum caritatem Cunegundis ostendebat. In proximum caritatem in publicis potissimum necessitudinibus privatisque cum pauperibus omneque genus vexatisque mirabiliter ostentavit : « Nullum siquidem largitionis genus in quempiam inopem publice privatimque omisit, peregrinos, advenas, pupillos, viduas, leprosos, debiles et quoslibet necessitatem patientes » (Vita II)Post eius mortem ob vitae sanctae exemplum ac apud populum suarum terrarum Poloniaeque propter merita gratam sibi conciliavit venerationem, quae cultu quoque publico in Polonia, Hungaria atque praesertim intra Ordines S. Francisci significata est. Annorum decursu hunc continuatum cultum Alexander VIII Summus Pontifex die X mensis Iunii anno MDCXC comprobavit. Eo quod Polonia divisa est, usque ad XX saeculum Canonizationis Causa est impedita, quae incohata erat anno MDCCXLIII. Causa iterum anno MCMXCIII coepta est agi et apud Curiam Tarnoviensem perrexit, Ordine Fratrum Minorum Conventualium auctore. Causae Canonizationis eiusdem Beatae apud Congregationem de Causis Sanctorum disceptationes de more habitae sunt de heroicitate virtutum tum theologalium tum cardinalium iisque adnexarum Beatae Cunegundis, atque ea de re Nobis coram decretum prodiit die III mensis Iulii anno MCMXCVIII. Explorata deinde sive a medicis sive a theologis necnon a Patribus Cardinalibus et Episcopis mira quadam sanatione intercessioni Beatae Cunegundis tributa, Nostra auctoritate de miraculo die XII mensis Februarii anno MCMXCIX latum est decretum, et exinde in Polonia Nostri itineris tempore Beatam Cunegundem in numerum Sanctorum referre statuimus.
+
+Hoc igitur fausto die, maxima cum Nostri animi Deique populi laetitia, in planitie apud Stary Sącz, ad monasterium monialium clarissarum vergenti, quo ex Polonia sescenta milia fidelium multique alii homines diversis ex Nationibus convenerant, compluribus Sanctae Romanae Ecclesiae Cardinalibus, Archiepiscopis, Episcopis, Praelatis Romanae Curiae adstantibus, postquam auxilium omnium Sanctorum imploravimus ac divino Spiritui adhibuimus preces, supremi ministerii vi quo fungimur, inter sacra haec protulimus verba :
+
+Na chwałę Świętej i Nierozdzielnej Trójcy, dla wywyższenia katolickiej wiary i wzrostu chrześcijańskiego życia, na mocy władzy naszego Pana Jezusa Chrystusa i Świętych Apostołów Piotra i Pawła, a także Naszej, po uprzednim dojrzałym namyśle, po licznych modlitwach i za radą wielu naszych Braci w biskupstwie, orzekamy i stwierdzamy, że błogoslawiona Kinga jest Świętą  i wpisujemy Ją do Katalogu Świętych, polecając, aby odbierała Ona cześć jako Świętą  w całym Kościele. W imię Ojca i Syna, i Ducha Świętego.
+
+Caritatis ac liberalitatis insignis haec mulier clara exhibuit exempla, quae sua opera luculenter in pauperes aegrotosque iuvandos contulit, ob oculos Evangelii usque monitionibus habitis. Exoptamus igitur ut huius caelitis testificationibus incitati homines qui nunc sunt idem patrare contendant.
+
+Quod autem decrevimus volumus et nunc et in posterum vim habere, contrariis minime officientibus rebus quibuslibet.
+
+*Datum apud Stary Sącz, die sexto decimo mensis Iunii, anno Domini millesimo nongentesimo nonagesimo nono, Pontificatus Nostri vicesimo primo.*
+
+**EGO IOANNES PAULUS** Catholicae Ecclesiae Episcopus
+
+Marcellus Rossetti, *Protonot. Apost.*
+
+* * *
+
+*A.A.S., vol. XCII (2000), n. 11, pp. 769-772
+
+© Copyright 1999 - Libreria Editrice Vaticana

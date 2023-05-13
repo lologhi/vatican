@@ -1,0 +1,37 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AU NOUVEL AMBASSADEUR DE HONGRIE***
+
+***LORS DE LA PRÉSENTATION DES LETTRES DE CRÉANCE****
+
+*Jeudi 24 octobre 2002*
+
+*Monsieur l’Ambassadeur,*
+
+1. C’est avec plaisir que j’accueille Votre Excellence à l’occasion de la présentation des Lettres qui L’accréditent comme Ambassadeur extraordinaire et plénipotentiaire de Hongrie auprès du Saint-Siège et je La remercie de ses paroles courtoises. Je Lui saurais gré de transmettre à Son Excellence Monsieur Ferenc Mádl, Président de la République, ainsi qu’aux membres du Gouvernement, mes remerciements pour les salutations cordiales qu’ils m’ont adressées. Me souvenant avec plaisir de sa visite récente au Vatican, j’assure en retour Monsieur le Président de la République de mes vœux les meilleurs pour sa personne, pour les dirigeants du pays et pour tout le peuple hongrois.
+
+2. Vous venez d’évoquer, Monsieur l’Ambassadeur, la riche histoire de votre pays et ses liens avec le Siège apostolique. Après les douloureuses déchirures provoquées au siècle dernier par les deux guerres mondiales et après les années sombres du pouvoir communiste, la Hongrie a retrouvé la possibilité de déterminer librement son avenir. Au cours de l’année jubilaire, elle vient de célébrer solennellement le millénaire de la fondation de la Nation et de son Baptême, sous le roi saint Étienne 1er, occasion exceptionnelle de manifester l’unité nationale et de rappeler combien elle puise dans ses racines religieuses la force pour édifier une société où chacun est reconnu et respecté, et a la possibilité de participer à la vie démocratique du pays. Comme vous le soulignez, l’Église partage les espérances et les souffrances du peuple hongrois, et elle l’a accompagné dans les nombreuses difficultés qui ont jalonné son histoire. Aujourd’hui, elle se réjouit, elle aussi, d’avoir retrouvé sa liberté d’action dans la société hongroise, grâce en particulier aux accords signés avec les gouvernements successifs, qui manifestent les relations cordiales, empreintes de respect et de confiance mutuels, renouées entre l’Église catholique et les Autorités du pays.
+
+3. La Hongrie s’est engagée dans un grand mouvement de réformes et de reconstruction de la vie de la Nation, dans toutes ses composantes. Parmi elles, il y a les familles, cellules de base de la vie sociale, qu’il importe de soutenir et d’aider, particulièrement quand les difficultés économiques atteignent les plus démunies d’entre elles. Par ses diverses institutions, l’Église apporte sa propre contribution à l’entraide et au partage avec les plus pauvres de la société, et elle ne manque pas de soutenir l’institution familiale, en rappelant, notamment par son enseignement, la grandeur du mariage et de la famille.
+
+L’avenir d’un peuple se prépare déjà dans l’attention qu’il porte aux plus jeunes et à leur éducation. Il est tout spécialement nécessaire de transmettre aux jeunes les valeurs civiques, morales et spirituelles qui ont forgé l’âme du peuple hongrois pendant des générations, tout en les préparant à vivre dans un monde ouvert et sécularisé, marqué par l’individualisme et l’attrait pour les biens matériels. Si elle repose d’abord sur la famille, cette œuvre éducative engage aussi la responsabilité de la Nation, à travers l’école et tous ceux qui y collaborent. L’Église, qui a toujours eu un grand souci de la jeunesse, dispose dans votre pays d’un vaste réseau d’écoles, par lesquelles elle participe à cette œuvre d’éducation, et vous pourrez toujours compter sur sa disponibilité à cet égard.
+
+4. Votre pays, Monsieur l’Ambassadeur, a désormais rétabli ses liens économiques, politiques et culturels avec l’ensemble de ses voisins européens, et il est candidat à une adhésion prochaine à l’Union européenne. Le Saint-Siège se réjouit de la perspective de cet élargissement de l’Union qui devrait permettre de rétablir progressivement l’unité du continent européen, longtemps brisée par le partage de Yalta et la fermeture du bloc soviétique. La libre circulation des personnes et des biens, mais aussi le dialogue des cultures et l’échange des richesses spirituelles entre les nations sont seuls susceptibles de vaincre les peurs, les replis sur soi et les étroitesses nationalistes qui ont suscité, encore dans un passé très récent, tant d’hostilités à l’échelle du continent européen et bien davantage à celle du monde.
+
+Votre Nation le sait bien, et son histoire récente l’a rendue particulièrement sensible au respect des minorités, puisque beaucoup de citoyens d’origine et de culture hongroises vivent aujourd’hui dans d’autres pays que le leur. C’est un souci permanent qui pousse les responsables à rechercher toujours davantage les moyens du dialogue avec leurs voisins, pour assurer à leurs frères d’origine les meilleures conditions de vie possibles, dans le respect de leur propre culture. C’est le même souci qui appelle en retour à porter attention et respect à ceux qui, sur le sol hongrois, peuvent appartenir à des minorités culturellement différentes. Le Siège apostolique, attentif à cette réalité des diversités culturelles, ne cesse d’appeler les responsables des Nations, mais aussi les chefs religieux, à un dialogue courageux, seul capable de surmonter les conflits entre les hommes et de préparer à tous un avenir de justice et de paix.
+
+Je souhaite qu’en témoignant de son histoire et de sa riche identité culturelle, votre pays contribue à faire vivre l’Europe de demain, non pas seulement comme un vaste marché de biens matériels, mais comme l’expression vivante de tant de richesses culturelles et spirituelles, propres à chaque Nation et mises en commun au service de l’Union. C’est là une responsabilité importante des Nations européennes, au regard des peuples d’autres continents qui souhaitent eux aussi unir leurs richesses et leurs forces, pour servir le développement et la paix.
+
+5. Permettez-moi, Excellence, de saluer par votre entremise, la communauté catholique de Hongrie et ses pasteurs. Je les assure de la prière et de la proximité spirituelle du Successeur de Pierre, et je les encourage à témoigner sans relâche des appels de l’Évangile, notamment auprès des jeunes qui cherchent à donner sens à leur vie et qui souhaitent s’engager au service de leurs frères. Je sais que les catholiques participent pleinement à la vie de la Nation, conformément à leur vocation. Qu’ils soient fidèles à l’exemple des grands saints qui ont jalonné leur histoire, comme saint Étienne, sainte Élisabeth, l’évêque Vilmos Apor que j’ai eu la joie de béatifier récemment, et de tous les témoins de la foi au cours de la persécution du régime communiste, parmi lesquels se détache la figure du regretté Cardinal József Mindszenty, de vénérée mémoire !
+
+6. Au moment où Votre Excellence commence sa noble mission, je L’assure de la disponibilité attentive de tous mes collaborateurs, et je Lui souhaite un travail fructueux au service des bonnes relations entre la Hongrie et le Saint-Siège !
+
+Sur Votre Excellence, sur sa famille et ses collaborateurs, ainsi que sur tout le peuple hongrois, j’invoque l’abondance des Bénédictions de Dieu.
+
+* * *
+
+* *Insegnamenti di Giovanni Paolo II*, vol. XXV/2 p.602-605.
+
+*L'Osservatore Romano* 25.10.2002 p.5.
+
+© Copyright 2002 - Libreria Editrice Vaticana

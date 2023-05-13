@@ -1,0 +1,41 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AUX PROFESSEURS ET ÉTUDIANTS***
+
+***DE L'INSTITUT PONTIFICAL « *JEAN PAUL II* »***
+
+***POUR LES ÉTUDES SUR LE MARIAGE ET LA FAMILLE***
+
+*Jeudi 31 mai 2001*
+
+*Messieurs les Cardinaux,*
+
+*Vénérés Frères dans l'épiscopat,*
+
+*Très chers frères et soeurs,*
+
+1. Je suis très heureux de célébrer avec vous, professeurs, étudiants et personnel en fonction, le vingtième anniversaire de la fondation de votre, ou plutôt de « notre » Institut pour les Etudes sur le Mariage et la Famille. Merci de votre présence appréciée. Je vous salue tous avec affection, en réservant une pensée particulière au Cardinal-Grand Chancelier Camillo Ruini, au Président du Conseil supérieur de l'Institut, le Cardinal Alfonso Lopez Trujillo et à Mgr Carlo Caffarra, Archevêque de Ferrare, pionnier de l'Institut. Je salue également Mgr Angelo Scola, Proviseur de l'Institut, les professeurs et les élèves, le personnel et ceux qui, à divers titres, collaborent à l'activité digne d'éloges de ce Centre académique.Cet anniversaire est un signe éloquent de la sollicitude de l'Eglise pour le mariage et la famille, qui constituent l'un des biens les plus précieux de l'humanité, comme je l'ai dit dans l'Exhortation apostolique *Familiaris consortio*, dont on célèbre également cette année le vingtième anniversaire de la publication (cf. n. 1).
+
+Le fait que vous soyez désormais présents à travers des « sections » dans tous les continents, prouve que l'intuition originelle, qui a donné son départ à l'Institut, a révélé sa fécondité au contact avec les nouvelles situations et les défis toujours plus radicaux du moment présent.
+
+2. En développant le thème affronté lors de précédentes circonstances, je voudrais aujourd'hui attirer votre attention sur l'exigence d'élaborer une anthropologie adaptée qui cherche à comprendre et à interpréter l'homme dans ce qui est essentiellement humain.
+
+L'oubli du commencement de la création de l'homme, en tant qu'homme et femme, représente en effet l'un des plus grands facteurs de crise et de faiblesse de la société contemporaine, ayant des répercussions inquiétantes au niveau du climat culturel, de la sensibilité morale et du contexte juridique. Là où le commencement a été égaré, s'obscurcit la perception de la dignité singulière de la personne humaine et s'ouvre la voie à une « *culture de la mort* » menaçante.
+
+Toutefois, l'expérience de l'amour compris avec rectitude demeure une porte d'accès, simple et universelle, à travers laquelle chaque homme est appelé à prendre conscience des facteurs constitutifs de sa propre humanité:  raison, affection, liberté. De l'intérieur de l'interrogation incontournable sur la signification de sa personne, notamment en partant du principe qu'il a été créé à l'image de Dieu, homme et femme, le croyant peut reconnaître le mystère du Visage trinitaire de Dieu, qui le crée en plaçant en lui le sceau de sa réalité d'amour et de communion.
+
+3. Le sacrement du mariage et la famille qui en découle représentent la voie efficace à travers laquelle la grâce rédemptrice du Christ assure aux enfants de l'Eglise une participation réelle à la communio  trinitaire.  L'amour sponsal du Ressuscité pour son Eglise, sacramentellement donné dans le mariage chrétien, alimente, dans le même temps,  le don de la virginité pour le Royaume. Celle-ci indique, à son tour, le destin ultime de l'amour conjugal lui-même.
+
+Ainsi, le mystère nuptial nous aide à découvrir que l'Eglise elle-même est « *famille de Dieu* ». C'est pourquoi l'Institut, en approfondissant la nature du sacrement du mariage, offre des éléments pour le renouveau de l'ecclésiologie elle-même.
+
+4. Un aspect particulièrement actuel et décisif pour l'avenir de la famille et de l'humanité est celui du respect de l'homme à ses origines et des modalités de sa procréation. On présente de façon toujours plus insistante des projets qui placent le début de la vie humaine dans des contextes différents de l'union sponsale entre l'homme et la femme. Ce sont des projets souvent soutenus par de prétendues justifications médicales et scientifiques. En effet, avec le prétexte d'assurer une meilleure qualité d'existence au moyen d'un contrôle génétique, ou bien de faire progresser la recherche médicale et scientifique, des expériences sont proposées sur les embryons humains ainsi que des méthodes pour leur production, qui ouvrent la voie à une manipulation et à des abus de la part de ceux qui s'arrogent un pouvoir arbitraire sans limites sur l'être humain. La vérité intégrale sur le mariage et la famille,  qui nous est révélée dans le Christ, est une lumière qui permet de saisir les dimensions constitutives de ce qui est authentiquement humain dans la procréation elle-même. Comme le Concile Vatican II l'enseigne, les époux, unis par le lien conjugal, sont appelés à exprimer, par des actes honnêtes et dignes propres au mariage ( *Gaudium et spes*, n. 49), leur don mutuel et à accueillir de façon responsable et avec gratitude les enfants, « *don le plus excellent du mariage* » ( *Ibid*., n. 50). Ils deviennent ainsi, précisément en se donnant corporellement, des collaborateurs de l'amour de Dieu Créateur. En participant  au  don  de  la  vie  et  de l'amour, ils reçoivent la capacité d'y répondre et, à leur tour, de le transmettre. Le contexte de l'amour sponsal et la médiation corporelle de l'acte conjugal constituent donc l'unique lieu dans lequel est pleinement reconnue et respectée la valeur singulière du nouvel être humain, appelé à la vie. En effet, l'homme ne peut être réduit à ses composantes génétiques et biologiques, même si elles participent à sa dignité personnelle. Chaque homme qui vient au monde est depuis toujours appelé par le Père à participer dans le Christ, à travers l'Esprit, à la plénitude de la vie en Dieu. Dès l'instant mystérieux de sa conception il doit donc être accueilli et traité comme une personne créée à l'image et à la ressemblance de Dieu lui-même (cf. *Gn* 1, 26).
+
+5. Un autre aspect des défis qui attendent aujourd'hui une réponse adaptée de la part de la recherche et de l'activité de l'Institut est de nature socio-culturelle et juridique.
+
+Dans certains pays, des législations permissives fondées sur des conceptions partiales et erronées de la liberté, ont favorisé ces dernières années de présumés modèles alternatifs de la famille, qui n'est plus fondée sur l'engagement irrévocable d'un homme et d'une femme pour former une « *communauté pour toute la vie* ». Les droits spécifiques reconnus jusqu'à présent à la famille, cellule primordiale de la société, ont été étendus à des formes d'association, à des unions de fait, à des pactes civils de solidarité, créés en réponse à des exigences et des intérêts individuels, à des revendications visant à sanctionner juridiquement des choix injustement présentés comme des conquêtes de liberté. Quelle est la personne qui ne se rend pas compte que la promotion artificielle de tels modèles juridiques et institutionnels tend toujours plus à détruire le droit originel que possède la famille à être reconnue comme un sujet social à plein titre ?
+
+Je voudrais ici réaffirmer avec force que l'institution familiale, en mesure de permettre à l'homme d'acquérir de façon adaptée le sens de sa propre identité, lui offre également un cadre conforme à la dignité naturelle et à la vocation de la personne humaine. Les liens familiaux sont le premier lieu de préparation aux formes sociales de la solidarité. En promouvant dans le respect de sa nature académique une « *culture de la famille* », l'Institut contribue à développer cette « *culture de la vie* », que j'ai eu plusieurs fois l'occasion de souhaiter.
+
+6. Il y a vingt ans, dans *Familiaris consortio*, j'affirmais que « *l'avenir de l'humanité passe par la famille* » (n. 86). Je vous le répète aujourd'hui avec une profonde conviction et une grande préoccupation. Je le répète également avec une totale confiance, en vous confiant, ainsi que votre travail, à la Madone de Fatima, Patronne douce et forte de l'Institut au cours de ces années. A Elle, Reine de la famille, je confie chacun de vos projets et le chemin qui vous attend à l'aube de ce troisième millénaire.
+
+En vous assurant que je vous suis dans votre engagement avec ma prière, je vous bénis de tout coeur.

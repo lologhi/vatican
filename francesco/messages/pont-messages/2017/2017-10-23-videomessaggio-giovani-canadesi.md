@@ -1,0 +1,25 @@
+***MESSAGE VIDÉO DU PAPE FRANÇOIS***
+
+***AUX JEUNES CANADIENS PARTICIPANT AU***
+
+***FORUM NATIONAL DES JEUNES***
+
+*Chers jeunes amis canadiens !*
+
+Je suis heureux de passer un peu de temps avec vous, en participant à votre dialogue qui vous voit protagonistes de l’Atlantique au Pacifique. Ce sont les merveilles de la technologie qui, si elles sont exploitées de façon positive, offrent une occasion de rencontre et d’échange impensable jusqu’à il y a peu.
+
+Cela nous confirme que lorsque les personnes travaillent ensemble en recherchant le bien les uns des autres, le monde se révèle dans toute sa beauté. Alors, je vous demande de ne pas le laisser détruire par ceux qui ne pensent qu’à l’exploiter et le ravager, sans scrupules. Je vous invite à inonder les lieux dans lesquels vous vivez de la joie et de l’enthousiasme typiques de votre âge, à irriguer le monde et l’histoire avec la joie qui vient de l’Evangile, d’avoir rencontré une Personne : Jésus, qui vous a fascinés et vous a attirés à demeurer avec Lui.
+
+Ne vous laissez pas voler votre jeunesse. Ne permettez à personne de freiner et d’obscurcir la lumière que le Christ place sur votre visage et dans votre cœur. Tissez des relations marquées par la confiance, le partage, l’ouverture jusqu’aux extrémités du monde. N’élevez pas de murs de division, n’élevez pas de murs de division ! Construisez des ponts, comme ce pont extraordinaire que vous traversez de façon idéale et qui relie entre elles les rives de deux océans. Vous vivez un moment d’intense préparation au prochain synode — le synode des évêques — qui vous concerne de façon particulière, comme il concerne la communauté chrétienne. En effet, le thème est : « Les jeunes, la foi et le discernement vocationnel ».
+
+« Je souhaite aussi vous rappeler les paroles que Jésus dit un jour aux disciples qui lui demandaient : “Maître, où habites-tu ?”. Il répondit : “Venez et voyez” (Jn 1, 38-39). Vers vous aussi Jésus tourne son regard et vous invite à aller chez lui. Chers jeunes, avez-vous rencontré ce regard ? Avez-vous entendu cette voix ? Avez-vous ressenti cette ardeur à vous mettre en route ? Je suis sûr que, même si le vacarme et la confusion semblent régner dans le monde, cet appel continue à résonner dans votre âme pour l’ouvrir à la joie complète. Ceci sera possible dans la mesure où, avec également l’accompagnement de guides experts, vous saurez entreprendre un itinéraire de discernement pour découvrir le projet de Dieu sur votre vie, sur la tienne, la tienne... Même quand votre parcours est marqué par la précarité et par la chute, Dieu riche en miséricorde, tend sa main pour vous relever ».
+
+J’écrivais ces paroles dans la lettre que j’ai envoyée à tous les jeunes du monde le 13 janvier de cette année, précisément pour présenter le thème du synode. Le monde, l’Eglise ont besoin de jeunes courageux, qui n’aient pas peur face aux difficultés, qui affrontent les épreuves, gardent les yeux et le cœur bien ouverts sur la réalité, afin que personne ne soit rejeté, victime d’injustices, de violences, privé de la dignité de personne humaine.
+
+Je suis certain que votre cœur jeune ne demeurera pas fermé au cri d’aide d’un grand nombre de jeunes de votre âge, à la recherche de liberté, de travail, d’études, de possibilités de donner un sens à leur vie. Je compte sur votre disponibilité, sur votre engagement, sur votre capacité à affronter des défis importants et à oser l’avenir, pour accomplir des pas décisifs sur la voie du changement.
+
+Jeunes, laissez-vous toucher par le Christ. Laissez-le vous parler, vous embrasser, vous consoler, guérir vos blessures, dissoudre vos doutes et vos peurs et vous serez prêts pour l’aventure fascinante de la vie, don précieux et irremplaçable que Dieu place chaque jour entre vos mains. Allez à la rencontre de Jésus, soyez avec Lui dans la prière, confiez-vous à Lui, confiez toute votre existence à son amour miséricordieux et à votre foi, et votre foi sera un témoignage lumineux de générosité et de joie de le suivre, partout où il vous conduira.
+
+Chers jeunes du Canada, je vous souhaite de vivre une rencontre comme celle des premiers disciples, afin que s’ouvre devant vous la beauté d’une vie réalisée à la suite du Seigneur. Pour cela, « je vous confie à Marie de Nazareth, une jeune comme vous vers qui Dieu a tourné son regard plein d’amour, pour qu’elle vous prenne par la main e vous guide à la joie d’un “me voici !” total et généreux » ( [*Lettre aux jeunes*, 13 janvier 2017](http://w2.vatican.va/content/francesco/fr/letters/2017/documents/papa-francesco_20170113_lettera-giovani-doc-sinodo.html)). Jésus te regarde et attend de toi un « Me voici ».
+
+Je vous bénis, je vous embrasse avec affection en vous demandant, s’il vous plaît, de prier pour moi, afin que je sois un fidèle collaborateur de votre joie (cf. 2 Co 1, 24). Merci.

@@ -1,0 +1,35 @@
+***MESSAGE DU SAINT-PÈRE JEAN-PAUL II***
+
+***POUR LA XXXIXe JOURNÉE MONDIALE***
+
+***DES COMMUNICATIONS SOCIALES***
+
+**« Les moyens de communication**
+
+**au service de l’entente entre les peuples »**
+
+[Dimanche 8 mai 2005]
+
+*Chers frères et sœurs,*
+
+1. Nous lisons dans la lettre de Saint Jacques : « De la même bouche sortent la bénédiction et la malédiction. Il ne faut pas, mes frères et sœurs, qu’il en soit ainsi » ( *Jc* 3, 10). Les Saintes Ecritures nous rappellent que les mots ont un pouvoir extraordinaire pour rapprocher les gens ou les séparer, créer des liens d'amitié ou provoquer l'hostilité.
+
+Cela n’est pas seulement vrai des paroles adressées par une personne à une autre, mais s’applique également à tous les niveaux de la communication. *La technologie moderne met à notre disposition des possibilités sans précédent en vue du bien, pour répandre la vérité de notre salut en Jésus-Christ et pour promouvoir l’harmonie et la réconciliation*. Un mauvais usage de la communication peut causer un mal indicible, suscitant des malentendus, des préjugés et même des conflits. Le thème choisi pour la Journée mondiale des communications sociales de 2005 — « Les moyens de communication au service de l’entente entre les peuples » — exprime un besoin urgent : encourager l'unité de la famille humaine à travers l'usage approprié de ces grandes ressources.
+
+2. Une des manières les plus appropriées d'accomplir cet objectif concerne l’éducation. Les médias peuvent faire savoir à des milliards de gens ce qui se passe dans d'autres parties du monde et au sein d’autres cultures. Avec raison on les a appelé « le premier aréopage des temps modernes... pour beaucoup le principal moyen d'information et d’éducation, d’orientation et d’inspiration dans leur attitude comme individus, comme familles, et au sein de toute la société » ( [*Redemptoris missio,* 37](http://www.vatican.va/edocs/FRA0205/__PP.HTM)). Une connaissance exacte encourage la compréhension, chasse les préjugés et éveille le désir d’apprendre davantage. Surtout les images ont le pouvoir de susciter des impressions durables et de façonner des attitudes. Elles enseignent aux gens comment considérer les membres d’autres groupes et nations, influençant subtilement leur inclination à les voir comme amis ou ennemis, alliés ou adversaires potentiels.
+
+Si les autres sont décrits en termes hostiles, ce sont des semences de conflit qui sont semées et qui peuvent facilement déboucher en violence, guerre, ou même génocide. Au lieu d’édifier l'unité et la compréhension, les médias peuvent être utilisés pour dénigrer les autres groupes sociaux, ethniques et religieux, fomentant la peur et la haine. Les responsables du style et des contenus de la communication ont le devoir grave d’assurer que cela n’arrive pas. En effet, *les médias possèdent un énorme potentiel pour encourager la paix et construire des ponts entre les peuples*, brisant le cycle fatal de la violence, des représailles et de la nouvelle violence qui se répand aujourd'hui. Les paroles de Saint Paul, qui inspirent le [Message de cette année pour la Journée mondiale de la paix](/content/john-paul-ii/fr/messages/peace/documents/hf_jp-ii_mes_20041216_xxxviii-world-day-for-peace.html), y font écho : « Ne te laisse pas vaincre par le mal, sois vainqueur du mal par le bien » ( *Rom* 12, 21).
+
+3. Si cette contribution à l’instauration de la paix est une des voies principales qui permet aux médias de rassembler les gens, son influence en faveur d’une mobilisation rapide d'aides humanitaires en réponse aux catastrophes naturelles est une autre de ses potentialités. Il est encourageant de voir avec quelle rapidité la communauté internationale a récemment répondu au tsunami qui causa d’innombrables victimes. La vitesse de circulation des nouvelles aujourd'hui augmente naturellement la possibilité de mettre en place les mesures pratiques opportunes en vue d’un maximum d'assistance. En ce sens, les médias peuvent accomplir un bien immense.
+
+4. Le [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) a rappelé: « Afin que les médias soient correctement utilisés, il est essentiel que tous ceux qui en font usage connaissent les principes de l'ordre moral et les appliquent fidèlement » ( *[Inter mirifica](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19631204_inter-mirifica_fr.html)*, 4).
+
+Le principe éthique fondamental est le suivant : « La personne humaine et la communauté humaine sont la fin et la mesure de l'usage des moyens de la communication sociale ; la communication devrait se faire par les personnes vers les personnes pour le développement intégral des personnes » ( *[Éthique en communication](http://www.vatican.va/roman_curia/pontifical_councils/pccs/documents/rc_pc_pccs_doc_20000530_ethics-communications_fr.html)*, 21). En premier lieu, alors, les communicateurs sont appelés à mettre en pratique dans leurs propres vies les valeurs et les attitudes qu'ils sont chargés de promouvoir chez les autres. Par-dessus tout, cela doit inclure un engagement authentique au service du bien commun — un bien qui n'est pas limité aux intérêts restreints d'un groupe particulier ou d’une nation mais qui embrasse les besoins et les intérêts de tous, le bien de la famille humaine tout entière (cf. *[Pacem in terris](/content/john-xxiii/fr/encyclicals/documents/hf_j-xxiii_enc_11041963_pacem.html)*, 132). *Les communicateurs ont ainsi l'occasion d’encourager une vraie culture de la vie en prenant leurs distances face à la conspiration actuelle contre la vie* (cf. *[Evangelium vitae](/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_25031995_evangelium-vitae.html)*, 17) et en transmettant la vérité au sujet de la valeur et de la dignité de chaque personne humaine.
+
+5. Le modèle et l’exemple de toute communication se trouvent dans la Parole de Dieu elle-même. « Après avoir, à maintes reprises et sous maintes formes, parlé jadis aux Pères par les prophètes ; Dieu en ces jours qui sont les derniers nous a parlé par le Fils » ( *He* 1, 1). Le Verbe incarné a établi une nouvelle alliance entre Dieu et son peuple — une alliance qui nous unit en une communauté les uns avec les autres. « Car c’est lui qui est notre paix, lui qui des deux n’a fait qu’un peuple, détruisant la barrière qui les séparait, supprimant en sa chair la haine » ( *Eph* 2, 14).
+
+Ma prière en cette Journée mondiale des communications est que les hommes et les femmes des médias prennent pleinement part à la *destruction des murs de haine dans notre monde*, murs qui séparent les peuples et les nations les uns des autres, alimentant l’incompréhension et la méfiance. Puissent-ils utiliser les ressources à leur disposition pour fortifier les liens d'amitié et d’amour qui sont clairement le signal de l’instauration du Royaume de Dieu ici en ce monde.
+
+*Du Vatican, le 24 janvier 2005, en la fête de Saint François de Sales.*
+
+**IOANNES PAULUS PP. II**

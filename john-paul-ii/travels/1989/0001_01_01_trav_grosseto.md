@@ -1,6 +1,0 @@
-|     |
-| --- |
-|  |
-| ***Visite Pastorale à Grosseto (Italie)***<br>***(21 mai 1989)***<br>- **Aux entrepreneurs et aux ouvriers de la zone industrielle de Casone (21 mai 1989)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1989/may/documents/hf_jp-ii_spe_19890521_imprenditori-casone.html)\]<br>- **Aux autorités et à la population de la ville (21 mai 1989)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1989/may/documents/hf_jp-ii_spe_19890521_autorita-grosseto.html)\]<br>- **Récitation de l'Angélus à Grosseto (21 mai 1989)** \[ [Espagnol](/content/john-paul-ii/es/angelus/1989/documents/hf_jp-ii_ang_19890521.html), [Italien](/content/john-paul-ii/it/angelus/1989/documents/hf_jp-ii_ang_19890521.html)\]<br>- **Aux religieux et aux laïcs engagés dans l'apostolat (21 mai 1989)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1989/may/documents/hf_jp-ii_spe_19890521_religiosi-grosseto.html)\]<br>- **Aux membres de la communauté de «Nomadelfia» (21 mai 1989)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1989/may/documents/hf_jp-ii_spe_19890521_comunita-nomadelfia.html)\]<br>- **Messe en la solennité de la Très Sainte Trinité célébrée au stade olympique municipal di Grosseto (21 mai 1989)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/homilies/1989/documents/hf_jp-ii_hom_19890521_grosseto.html)\] |
-|  |
-|  |

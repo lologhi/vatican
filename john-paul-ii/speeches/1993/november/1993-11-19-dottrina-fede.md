@@ -1,0 +1,37 @@
+.
+
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***À L’ASSEMBLÉE PLÉNIÈRE DE LA CONGRÉGATION POUR LA DOCTRINE DE LA FOI***
+
+*Vendredi 19 novembre 1993*
+
+*Vénérables frères,*
+
+1. Je suis heureux de vous rencontrer au terme de votre Assemblée plénière qui constitue comme le point focal de l’engagement de votre Congrégation au service du Siège de Pierre et de l’Église universelle. Je suis reconnaissant au cher cardinal Ratzinger pour les sentiments qu’il m’a exprimés au nom de tous et pour son exposé sur les travaux accomplis ces jours derniers.
+
+Je suis toujours avec une grande attention et participation les développements de vos recherches et de vos activités, surtout grâce aux rencontres hebdomadaires avec votre cardinal Préfet ou Mgr le Secrétaire, mais il est très précieux pour moi de pouvoir aussi vous rencontrer, membres de ce dicastère, pour vous exprimer plus directement combien me tient à cœur le travail que vous accomplissez.
+
+2. En particulier, je voudrais profiter de cette circonstance pour vous dire ma gratitude pour l’importante « Lettre aux évêques de l’Église catholique sur certains aspects de l’Église comprise comme communion », par laquelle cette Congrégation a voulu mettre en lumière le concept correct de « communion », en référence au mystère de l’Église, dans la ligne du Concile Vatican II et du Synode extraordinaire des évêques de 1985, où l’on a souligné le caractère central de cette notion pour une vision adéquate de l’Église. En effet, sitôt après le Concile Vatican II, le concept de « communion », avec celui de « Peuple de Dieu », fut parmi les notions qui attirèrent le plus l’intérêt de la réflexion théologique. Mais, à côté de l’approfondissement réel de la doctrine ecclésiologique dans la période post-conciliaire, apparurent aussi des tendances d’interprétation réductrice de ces concepts-clefs, avec en conséquence le danger d’altérer l’ecclésiologie catholique. Le concept de « communion » était interprété selon un sens horizontal et sociologique, et l’idée s’insinuait d’une Église qui se réduisait à une fédération d’Églises locales.
+
+Ce document a apporté aux évêques, aux théologiens et à tous les croyants une contribution doctrinale autorisée, afin que la communion des fidèles de tous les lieux et de tous les temps soit vécue, non pas simplement comme un élément horizontal et extérieur, mais comme une grâce intérieure et, en même temps, comme un signe visible du don du Seigneur qui peut seul réaliser l’unité du genre humain, surmontant toute barrière et toute limite dues aux péchés et à la faiblesse de l’homme.
+
+3. Récemment, votre Congrégation a également publié une « Instruction sur certains aspects de l’utilisation des instruments de communication sociale dans la promotion de la doctrine de la foi », qui a apporté une contribution utile à l’unité de l’Église, fondée avant tout sur la foi. Ce document, qui a fait suite à la publication de l’« Instruction sur la vocation ecclésiale du théologien » de mai 1990, a présenté sous une forme organique la législation de l’Église concernant l’usage des instruments de communication sociale et spécialement les livres, pour la promotion de la doctrine de la foi. En rappelant les normes canoniques, en clarifiant les dispositions, en développant et en déterminant les diverses manières de les observer, vous vous êtes proposé d’encourager et d’aider les pasteurs dans l’accomplissement de leur mission.
+
+Les moyens de communication sociale rendent effectivement un grand service au ministère de l’Église dans la diffusion du message du Christ et l’Église suit avec un grand intérêt les progrès que l’on peut constater en ce domaine, et elle apprécie grandement tout ce que font les évêques à cet égard, malgré les difficultés de tout genre.
+
+Le texte de la Congrégation s’est limité à l’aspect disciplinaire, c’est-à-dire à la présentation organique du droit en vigueur. Mais, puisque, dans l’Église, le droit est un soutien de la vérité et de la liberté, l’Instruction a une grande valeur.
+
+En effet, les normes en cette matière constituent une garantie pour la liberté de tous : qu’il s’agisse des fidèles pris en particulier, car ils ont le droit de recevoir le message de l’Évangile dans sa pureté et son intégralité ; ou bien des ouvriers pastoraux, des théologiens et de tous les publicistes catholiques, qui ont eux aussi le droit de communiquer leur pensée, restant saufs l’intégrité de la foi et des mœurs, ainsi que le respect dû aux pasteurs.
+
+4. Je saisis cette occasion pour vous exprimer également ma satisfaction pour une autre initiative, qui se situe dans cette même perspective de la promotion de l’unité de l’Église, et qui a été prise lors de l’Assemblée plénière de votre dicastère en 1982, même si elle s’est déployée au cours des années suivantes. Il s’agit des rencontres avec les présidents des Commissions doctrinales des Conférences épiscopales des divers continents. La dernière de ces rencontres, qui concernait l’Asie, s’est tenue à Hong Kong du 2 au 5 mars de cette année, faisant suite à des rencontres analogues pour l’Amérique latine (1984), pour l’Afrique (1987) et pour l’Europe (1989).
+
+Comme je l’ai écrit dans le Message que j’ai adressé à cette Assemblée, je pense que ces rencontres peuvent « apporter soutien et sûreté doctrinale au ministère spécifique des évêques en tant que maîtres principaux de la foi dans leurs communautés respectives, de sorte que tout le Peuple de Dieu puisse bénéficier d’une présentation claire de la doctrine catholique et grandir ainsi dans la connaissance des inépuisables richesses du Christ ».
+
+5. Toujours dans ce contexte, je pense qu’il est opportun de dire un mot spécial d’appréciation pour toute la collaboration que vous offrez aux autres dicastères, sous de multiples aspects, avec la préoccupation constante d’assurer à l’Église cette unité de la foi qui naît de la fidélité à la personne du Christ, et que peuvent assurer une méditation constante de la Parole de Dieu et un dialogue continu et patient.
+
+Je voudrais également souligner l’importance que j’attribue à tout ce que fait votre Congrégation pour approfondir les multiples problèmes de théologie morale qui lui sont soumis par les diverses parties du monde. Je connais les études qui ont été entreprises en ce qui concerne les questions nouvelles liées aux problèmes de la contraception, de la stérilisation, de l’avortement, des greffes d’organes et de tissus, des soins apportés aux malades en phase terminale, de la mort et de l’euthanasie. Ces études ont permis de donner à divers secteurs de l’Église des réponses et des indications sur des problèmes parfois très complexes et très délicats. Je vous exhorte à continuer dans cette ligne avec courage et persévérance, malgré les difficultés que présente cette tâche.
+
+6. Enfin, en me réjouissant du travail intense accompli au cours de ces quatre jours, je voudrais vous dire combien j’apprécie surtout l’étude que vous menez sur les rapports entre la foi et la philosophie, un thème qui me tient particulièrement à cœur.
+
+Au terme de cette rencontre, qui nous a permis de regarder ensemble le chemin parcouru, en en tirant encouragement et élan pour vos tâches futures, je confie votre travail à Marie, modèle insigne d’une écoute de la Parole du Seigneur dans la prière et, en gage de mon affectueuse reconnaissance, je vous accorde de tout cœur ma bénédiction.

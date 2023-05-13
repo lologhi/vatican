@@ -1,0 +1,15 @@
+VISITE À LA FABRIQUE DE SAINT-PIERRE
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+*Mercredi 14 mars 2007*
+
+*Vénérés frères dans l'épiscopat,*
+
+*chers amis,*
+
+Je suis très heureux de cette rencontre avec vous, qui a lieu au siège d'une antique et illustre Institution pontificale : la  Fabrique  de Saint-Pierre. Je salue tout d'abord l'Archevêque, Mgr Angelo Comastri, Archiprêtre de la Basilique Saint-Pierre et votre Président, qui s'est fait l'interprète des sentiments communs. Je salue ensuite l'Evêque, Mgr Vittorio Lanzani, Délégué de la Fabrique, ainsi que chacun de vous. Vous travaillez dans un lieu, la vénérable Basilique de l'Apôtre, qui est le cœur de l'Eglise catholique :  un cœur qui bat, grâce à l'Esprit Saint qui le conserve toujours vivant, mais également grâce à l'activité de ceux qui quotidiennement la font fonctionner. 500 ans viennent de s'écouler depuis la pose de la première pierre de la deuxième Basilique Vaticane, ainsi que l'a rappelé Mgr Comastri. Cinq siècles, et pourtant, elle est toujours vivante et jeune ; ce n'est pas un musée, c'est un organisme spirituel et les pierres elles-mêmes manifestent sa vitalité! Vous les premiers, qui travaillez ici, vous êtes les « *pierres vivantes* », comme l'écrivait l'Apôtre Pierre, des pierres vivantes de l'édifice spirituel qu'est l'Eglise.
+
+Je suis heureux de cette rencontre bien que brève, avec vous, qui vient en quelque sorte conclure les célébrations du cinquième centenaire de la Basilique Vaticane, dans laquelle vous œuvrez concrètement. Je voudrais saisir l'occasion pour rappeler, en ce moment, tous vos collègues qui vous ont précédés au cours des 500 années passées. Quant à vous, je vous exprime mes remerciements pour ce que vous accomplissez, avec engagement et compétence, afin que ce « *cœur* » de l'Eglise, comme je le disais tout à l'heure, puisse continuer à « battre » avec une éternelle vitalité:  en attirant  à  lui  les  hommes et les femmes du monde entier et en les aidant à accomplir une expérience spirituelle qui marque leur existence. En effet, grâce à votre contribution, presque toujours cachée, mais toujours opportune, de nombreuses personnes et des pèlerins de toutes les régions du monde, peuvent vivre de manière fructueuse leur pèlerinage, ou simplement leur visite à la Basilique Vaticane, et emporter avec eux dans leur cœur un message de foi et d'espérance, la certitude d'avoir vu non seulement de grandes œuvres d'art, mais d'avoir rencontré l'Eglise vivante, l'Apôtre Pierre et enfin le Christ. Encore une fois, je vous remercie et je vous encourage :  accomplissez toujours votre travail comme un acte d'amour pour l'Eglise, pour saint Pierre et donc pour le Christ. Je vous confie tous à la protection spéciale de saint Pierre, ainsi que les personnes qui vous sont chères. Et, tout en vous assurant de mon souvenir dans la prière, et en vous demandant d'y répondre en priant pour moi, je vous bénis de tout cœur.
+
+© Copyright 2007 - Libreria Editrice Vaticana

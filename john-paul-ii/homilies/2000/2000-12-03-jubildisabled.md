@@ -1,0 +1,47 @@
+**JUBILÉ DES PORTEURS DE HANDICAP**
+
+***HOMÉLIE DU PAPE JEAN PAUL II***
+
+*Dimanche 3 décembre 2000,*
+
+*premier dimanche de l'Avent*
+
+1. « *Redressez-vous et relevez la tête, parce que votre délivrance est proche* » ( *Lc* 21, 28).
+
+Saint Luc, dans le texte évangélique offert à notre méditation en ce premier dimanche de l'Avent, met en lumière la peur qui fait défaillir les hommes face aux bouleversements ultimes. En contraste, cependant, l'évangéliste présente en  la mettant bien plus en relief, la perspective joyeuse de l'attente chrétienne :  « *Et alors - dit-il - on verra le Fils de l'homme venant dans une nuée avec puissance et grande gloire* » ( *Lc* 21, 27). Voilà l'annonce qui transmet l'espérance au coeur du croyant :  le Seigneur viendra « *avec puissance et grande gloire* ». C'est pourquoi les disciples sont invités à ne pas avoir peur, mais à se redresser et à relever la tête, « *parce que votre délivrance est proche* » ( *Lc* 21, 28).
+
+Chaque année, la liturgie nous fait à nouveau entendre, au début de l'Avent, cette « *bonne nouvelle* » qui retentit avec une éloquence extraordinaire dans l'Eglise. C'est la nouvelle de notre salut ; c'est l'annonce que le Seigneur est proche. Plus encore, qu'Il est déjà avec nous.
+
+2. Très chers frères et soeurs ! Aujourd'hui en particulier, je sens retentir dans mon esprit cette invitation à la sérénité et à l'espérance, en célébrant avec vous le Jubilé de « *la Communauté avec les porteurs de handicap* ». Nous le célébrons le jour qui vous est consacré par les Nations unies qui, il y a précisément vingt-cinq ans, publièrent la « *Déclaration sur les droits de la personne handicapée* ».
+
+Je vous salue avec affection, chers amis, qui êtes porteurs d'une ou plusieurs formes de handicap, et qui avez souhaité venir à Rome pour cette rencontre de foi et de fraternité. Je remercie vos représentants et le Directeur de la Caritas italienne pour les paroles qu'ils m'ont adressées au début de la Messe. J'étends mon salut cordial à tous les porteurs de handicap, à leurs proches et aux volontaires qui, en ce même jour, célèbrent avec leurs pasteurs, dans les diverses Eglises locales, leur Jubilé.
+
+Très chers frères et soeurs, dans votre corps et dans votre vie, vous êtes les porteurs d'une profonde espérance de libération. N'y a-t-il pas en cela une attente implicite de la « *libération* » que le Christ a obtenue pour nous à travers sa mort et sa résurrection ? En effet, chaque personne marquée par une difficulté physique ou psychique vit une sorte d'« avent » existentiel, l'attente d'une « *libération* » qui se manifestera pleinement, pour cette dernière comme pour tous, uniquement à la fin des temps. Sans la foi, cette attente peut prendre l'aspect de la déception et du découragement ; si elle est soutenue par la parole du Christ, elle se transforme en espérance vivante et active.
+
+3. « *Veillez donc et priez en tout temps, afin d'avoir la force d'échapper à tout ce qui doit arriver, et de vous tenir debout devant le Fils de l'homme* » ( *Lc* 21, 36). La liturgie d'aujourd'hui nous parle de la « *seconde venue* » du Seigneur ; c'est-à-dire qu'elle nous parle du retour glorieux du Christ qui coïncidera avec ce que, en termes simples, on appelle « *la fin du monde* ». Il s'agit d'un événement mystérieux qui, dans le langage apocalyptique, présente avant tout l'aspect d'un immense cataclysme. De même que la fin de l'individu, c'est-à-dire la mort, la fin de l'univers suscite l'angoisse de l'inconnu, la crainte de la souffrance, ainsi que des interrogations pleine d'inquiétude à propos de l'« *au-delà* ».
+
+Le temps de l'Avent, qui commence précisément aujourd'hui, nous incite à nous préparer à accueillir le Seigneur qui viendra. Mais comment nous préparer ? La célébration significative que nous sommes en train d'accomplir fait apparaître qu'une façon concrète pour nous préparer à cette rencontre est la proximité et le partage avec celui qui, quel qu'en soit le motif, se trouve en difficulté. En reconnaissant le Christ dans notre frère, nous nous préparons à ce qu'Il nous reconnaisse lors de son retour définitif. C'est ainsi que la communauté chrétienne se prépare à la seconde venue du Seigneur :  en plaçant au centre les personnes que Jésus lui-même a privilégiées, des personnes que souvent la société met en marge et ne prend pas en considération.
+
+4. C'est ce que nous avons fait aujourd'hui, en nous rassemblant dans cette basilique pour vivre la grâce et la joie du Jubilé avec vous, qui êtes porteurs d'un handicap, et avec vos familles. A travers ce geste, nous entendons faire nôtres vos angoisses et vos attentes, vos dons et vos problèmes.
+
+Au nom du Christ, l'Eglise s'engage à devenir toujours davantage pour vous une « *maison accueillante* ». Nous savons que le porteur de handicap - personne unique et irremplaçable, possédant une égale dignité inviolable - demande non seulement des soins, mais tout d'abord de l'amour qui devient reconnaissance, respect et intégration :  de la naissance à l'adolescence, jusqu'à l'âge adulte et au moment délicat, vécu avec inquiétude par de nombreux parents, de la séparation de leurs enfants, le moment de l'« *après nous* ». Très chers amis, nous voulons prendre part à votre travail et aux inévitables moments de découragement, afin de les illuminer par la lumière de la foi et par l'espérance de la solidarité et de l'amour.
+
+5. Très chers frères et soeurs, à travers votre présence, vous réaffirmez que le handicap n'est pas seulement une situation de besoin, mais qu'il est également et surtout un encouragement et une interpellation. Certes, il est une demande d'aide, mais il est avant tout une provocation face aux égoïsmes individuels et collectifs ; il est une invitation à des formes toujours nouvelles de fraternité. Votre réalité remet en question les conceptions de la vie liées uniquement à la satisfaction personnelle, à l'apparence, à la hâte, à l'efficacité.
+
+La  communauté  ecclésiale se met elle aussi à l'écoute de façon respectueuse ; elle ressent le besoin de se laisser interroger par la difficulté d'un grand nombre de vos existences, marquées de façon mystérieuse par la souffrance et le poids d'événements blessants, congénitaux ou acquis. Elle veut être plus proche de vous et de vos familles, consciente que le manque d'attention accroît la souffrance et la solitude, alors que la foi témoignée dans l'amour et de façon gratuite donne de la force et son sens à la vie.
+
+A ceux qui assument des responsabilités politiques à tous les niveaux, je voudrais demander, en cette circonstance solennelle, d'oeuvrer afin que soit assurées des conditions de vie et des opportunités telles que votre dignité, chers frères et soeurs porteurs de handicap, soit effectivement reconnue et protégée. Dans une société riche de connaissances scientifiques et techniques, il est possible, et de notre devoir, de faire davantage, selon les divers modes requis par la coexistence civile :  de la recherche bio-médicale pour prévenir le handicap, aux soins, à l'assistance, à la réhabilitation, à la nouvelle intégration sociale.
+
+Si vos droits civils, sociaux et spirituels doivent être protégés, il est cependant encore plus important de sauvegarder les relations humaines :  des relations d'aide, d'amitié, de partage. Voilà pourquoi doivent être encouragées les formes de soins et de réhabilitation qui tiennent compte de la vision intégrale de la personne humaine.
+
+6. « *Et vous, que le Seigneur vous fasse croître et abonder dans l'amour que vous avez les uns envers les autres et envers tous* » (1 *Ts* 3, 12).
+
+Saint Paul nous indique aujourd'hui la  voie  de  la  charité comme la voie royale pour aller à la rencontre du Seigneur qui viendra. Il souligne que ce n'est qu'en aimant de façon sincère et désintéressée que nous pourrons être prêts « *lors de l'avènement de notre Seigneur Jésus avec tous ses saints* » (1 *Ts* 3, 13). L'amour est, une fois de plus, le critère décisif, aujourd'hui et toujours.
+
+Sur la croix, en s'offrant lui-même pour nous racheter, Jésus a accompli le jugement du salut, en révélant le dessein mystérieux du Père. Ce jugement, Il l'anticipe dans le présent :  en s'identifiant avec « *le plus petit de nos frères* », Jésus nous demande de l'accueillir et de le servir avec amour. Au jour dernier, il nous dira :  "J'ai eu faim, et vous m'avez donné à manger... (cf. *Mt* 25, 35), et il nous demandera si nous avons annoncé, vécu et témoigné de l'Evangile de la charité et de la vie.
+
+7. Seigneur de la vie et de l'espérance, comme tes paroles sont éloquentes pour nous aujourd'hui ! En Toi, chaque limite humaine est rachetée et délivrée. Grâce à Toi, le handicap n'est pas le dernier mot de l'existence. C'est l'amour qui est le dernier mot, c'est ton amour qui donne un sens à la vie.
+
+Aide-nous à orienter notre coeur vers Toi ; aide-nous à reconnaître ton visage qui resplendit en chaque créature humaine lorsqu'elle est éprouvée par les épreuves, par les difficultés et par la souffrance.
+
+Fais-nous comprendre que « *la gloire de Dieu est l'homme vivant* » (Irénée de Lyon, Adv. haer., 4, 20, 7), et fais qu'un jour, nous puissions goûter, dans la vision divine, avec Marie Mère de l'humanité, la plénitude de la vie que Tu as rachetée. Amen !

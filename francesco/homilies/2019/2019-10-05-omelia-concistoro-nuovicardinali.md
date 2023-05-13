@@ -1,0 +1,37 @@
+[CONSISTOIRE ORDINAIRE PUBLIC POUR LA CRÉATION DE NOUVEAUX CARDINAUX](http://www.vatican.va/news_services/liturgy/libretti/2019/20191005-libretto-concistoro-creazione.pdf)
+
+**CHAPELLE PAPALE**
+
+***HOMÉLIE DU SAINT-PÈRE FRANÇOIS***
+
+*Basilique vaticane*
+
+*Samedi 5 octobre 2019*
+
+[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/10/5/concistoro-nuovicardinali.html)**]
+
+* * *
+
+Au centre du récit évangélique que nous avons écouté ( *Mc* 6, 30-37a), il y a la « compassion » de Jésus (cf. v. 34). *Compassion*, mot-clé de l’Évangile ; il est écrit dans le cœur du Christ, il est écrit depuis toujours dans le cœur de Dieu.
+
+Dans les Évangiles, nous voyons plusieurs fois Jésus éprouver de la compassion pour les personnes souffrantes. Et plus nous lisons, plus nous contemplons, et plus nous comprenons que la compassion du Seigneur n’est pas une attitude occasionnelle, sporadique, mais elle est constante, mieux, elle semble être *la disposition de son cœur*, dans lequel s’est incarnée la miséricorde de Dieu.
+
+Marc, par exemple, rapporte que, quand Jésus a commencé à aller à travers la Galilée en prêchant et en chassant les démons, « un lépreux vient auprès de lui ; il le supplie et, tombant à ses genoux, lui dit : “Si tu le veux, tu peux me purifier”. Saisi de compassion, Jésus étendit la main, le toucha et lui dit : “Je le veux, sois purifié”. À l’instant même, la lèpre le quitta et il fut purifié » (1, 40-42). Dans ce geste et dans ces paroles, il y a la mission de Jésus Rédempteur de l’homme : *Rédempteur dans la compassion*. Il incarne la volonté de Dieu de purifier l’être humain malade de la lèpre du péché ; il est “la main tendue de Dieu” qui touche notre chair malade et accomplit cette œuvre en comblant l’abîme de la séparation.
+
+Jésus *va à la recherche des personnes rejetées*, celles qui n’ont plus d’espérance. Comme cet homme paralytique de trente-huit ans qui gît à côté de la piscine de Bethzatha, attendant en vain que quelqu’un l’aide à descendre dans l’eau (cf. *Jn* 5, 1-9).
+
+Cette compassion n’a pas émergé seulement à un certain moment de l’histoire du salut, non, *elle a toujours été en Dieu*, gravée dans son cœur de Père. Pensons, par exemple, au récit de la vocation de Moïse, quand Dieu lui parle du buisson ardent et lui dit : « J’ai vu, oui, j’ai vu la misère de mon peuple qui est en Égypte, et j’ai entendu ses cris […]. Oui, je connais ses souffrances » ( *Ex* 3, 7). Voilà la compassion du Père !
+
+L’amour de Dieu pour son peuple est tout imprégné de compassion, au point que, dans cette relation d’alliance, ce qui est divin est compatissant, tandis que malheureusement il semble que ce qui est humain en soit si dénué, si loin. C’est Dieu même qui le dit : « Vais-je t’abandonner, Éphraïm, et te livrer, Israël ? […] Mon cœur se retourne contre moi ; en même temps, mes entrailles frémissent. […]. Car moi, je suis Dieu, et non pas homme : au milieu de vous je suis le Dieu saint, et je ne viens pas pour exterminer » ( *Os* 11, 8-9).
+
+Les disciples de Jésus montrent souvent qu’ils sont *sans compassion*, comme dans ce cas, devant le problème des foules à nourrir. En substance ils disent : “Qu’ils se débrouillent…”. C’est une attitude commune à nous les humains, même quand nous sommes des personnes religieuses ou voire responsables de culte. Nous nous en lavons les mains. Le poste que nous occupons ne suffit pas à nous faire devenir compatissants comme le démontre l’attitude du prêtre et du lévite qui, en voyant un homme moribond au bord de la route, passèrent de l’autre côté (cf. *Lc* 10, 31-32). En eux-mêmes ils se seraient dit : “Ce n’est pas mon affaire”. Il y a toujours un prétexte, une justification pour regarder d’un autre côté. Et quand un homme d’Église devient un fonctionnaire, c’est plus déplorable. Il y a toujours des justifications ; parfois elles sont codifiées et donnent lieu à des “rejets institutionnels”, comme dans le cas des lépreux : “Bien sûr, ils doivent rester dehors, c’est juste comme cela”. C’est ainsi qu’on pensait et c’est ainsi qu’on pense. De cette attitude très, trop humaine dérivent aussi des *structures de non-compassion*.
+
+A ce stade, nous pouvons nous demander : sommes-nous conscients, d’avoir été, nous en premier, *objet de la compassion de Dieu*? Je m’adresse en particulier à vous, frères Cardinaux ou sur le point de le devenir : cette conscience est-elle vivante en vous ? D’avoir été et d’être toujours précédés et accompagnés par sa miséricorde ? Cette conscience était la disposition permanente du cœur immaculé de la Vierge Marie qui loue Dieu comme “son sauveur” qui « s’est penché sur son humble servante » ( *Lc* 1, 48).
+
+Ça me fait me beaucoup de bien de me refléter dans la page d’Ézéchiel 16 : l’histoire d’amour de Dieu avec Jérusalem ; dans cette conclusion : « Moi, je rétablirai mon alliance avec toi. Alors tu sauras que Je suis le Seigneur. Ainsi tu te souviendras, tu seras couverte de honte. Dans ton déshonneur, tu n’oseras pas ouvrir la bouche quand je te pardonnerai tout ce que tu as fait » ( *Ez* 16, 62-63). Ou bien dans cet autre oracle d’Osée : « Je vais l’entraîner jusqu’au désert, et je lui parlerai cœur à cœur […] Là, elle me répondra comme au temps de sa jeunesse, au jour où elle est sortie du pays d’Égypte » (2, 16-17). Nous pouvons nous demander : est-ce que je sens en moi la compassion de Dieu ? Est-ce que je sens en moi la certitude d’être un enfant de la compassion ?
+
+La conscience de cette compassion de Dieu pour nous est-elle vivante en nous ? Il ne s’agit pas d’une chose facultative, et non plus, je dirais, d’un “conseil évangélique”. Non ! Il s’agit d’une exigence essentielle. Si je ne me sens pas objet de la compassion de Dieu, je ne comprends pas son amour. Ce n’est pas une réalité qui peut s’expliquer. Soit je la sens, soit je ne la sens pas.  Et si je ne la sens pas, comment puis-je la communiquer, en témoigner, la donner ?  Au contraire, je ne pourrai pas le faire. Concrètement : ai-je de la compassion pour ce frère, cet évêque, ce prêtre ?... Ou bien je détruis toujours par mon attitude de condamnation, d’indifférence, en regardant d’un autre côté, en réalité pour m’en laver les mains ?
+
+Pour nous tous aussi, de cette conscience vivante dépend *la capacité d’être loyal* dans son ministère, y compris pour vous frères Cardinaux. Le mot ‘‘compassion’’ m’est venu à l’esprit juste quand j’allais commencer à rédiger la lettre du 1er septembre que je vous ai adressée. La disponibilité d’un Cardinal à verser son sang – signifiée par la couleur rouge de son habit – est sûre quand elle est enracinée dans cette conscience d’avoir reçu de la compassion et dans la capacité d’avoir de la compassion. Autrement, on ne peut pas être loyal. De nombreuses attitudes déloyales des hommes d’Église dépendent du manque de ce sens de la compassion reçue, et de l’habitude de regarder de l’autre côté, de l’habitude de l’indifférence.
+
+Demandons aujourd’hui, par l’intercession de l’Apôtre Pierre, la grâce d’un cœur compatissant, pour être témoins de Celui qui nous a aimés et nous aime, qui nous a regardés avec miséricorde, et qui nous a choisis, nous a consacrés et nous a envoyés porter à tous son Évangile de salut.

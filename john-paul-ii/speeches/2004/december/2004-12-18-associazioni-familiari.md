@@ -1,0 +1,23 @@
+***DISCOURS DU PAPE JEAN-PAUL II******AUX PARTICIPANTS À L'ASSEMBLÉE***
+
+***DU « *FORUM DES ASSOCIATIONS FAMILIALES* »***
+
+*Samedi 18 décembre 2004*
+
+1. Je salue avec affection le *Forum des Associations familiales* et je remercie des paroles que m'a adressées Mme Luisa Santolini, en votre nom à tous. Cette rencontre avec vous, qui représentez des millions de familles italiennes, a lieu à l'approche de Noël. C'est justement en contemplant le mystère de Dieu qui se fait homme et qui est accueilli dans une famille humaine que nous pouvons pleinement comprendre la valeur et la beauté de la famille.
+
+La famille n'est pas seulement au coeur de la vie chrétienne ; elle est également le fondement de la vie sociale et civile, c'est pourquoi elle représente un chapitre central de l'enseignement social chrétien, comme le souligne bien le *Compendium de la Doctrine sociale de l'Eglise* (cf. nn. 209-254). Il faut approfondir sans cesse l'intime portée personnelle et, dans le même temps, la valeur sociale, originelle et inaliénable de cette union entre l'homme et la femme qui se réalise à travers le mariage et donne naissance à la communauté familiale. Ceux qui détruisent ce tissu fondamental de la coexistence humaine provoquent une profonde blessure à la société ainsi que des dommages souvent irréparables.
+
+2. Malheureusement, les attaques contre le mariage et la famille deviennent chaque jour plus fortes et radicales, tant du point de vue idéologique que sur le front législatif (cf. *[Ecclesia in Europa](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_20030628_ecclesia-in-europa.html)*, n. 90). La tentative de réduire la famille à une expérience affective privée, sans importance sociale ; de confondre les droits individuels avec les droits  propres  à  la cellule familiale constituée par les liens du mariage ; d'assimiler le concubinage aux unions matrimoniales ; d'accepter, et dans certains cas de favoriser, la suppression de vies humaines innocentes à travers l'avortement volontaire ; de dénaturer les processus naturels de la procréation des enfants en introduisant des formes artificielles de procréation, voici quelques-uns des domaines où apparaît avec évidence la subversion qui est en acte dans la société.
+
+Aucun progrès civil ne peut dériver de la dévalorisation sociale du mariage et de la perte du respect dû à la dignité inviolable de la vie humaine. Ce qui est présenté comme un progrès de civilisation ou une conquête scientifique, dans de nombreux cas est en réalité une défaite pour la dignité humaine et pour la société.
+
+3. La vérité de l'homme, sa vocation, dès sa conception, à être accueilli avec amour et dans l'amour, ne peut être sacrifiée  à  la  domination  de la technologie et à la prévarication des désirs sur les droits authentiques. Le désir légitime d'avoir un enfant ou d'être en bonne santé ne peut pas être transformé en un droit inconditionnel au point de justifier la suppression d'autres  vies humaines. La science et les technologies ne sont vraiment au service de l'homme que si elles protègent et promeuvent tous les sujets humains impliqués dans le processus de procréation.
+
+Les associations catholiques, avec tous les hommes de bonne volonté qui croient dans les valeurs de la famille et de la vie, ne peuvent pas céder aux pressions d'une culture qui menace les fondements mêmes du respect de la vie et de la promotion de la famille.
+
+Parmi les « *formes de mobilisation* » que nous appelions déjà de nos voeux dans *[Familiaris consortio](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_19811122_familiaris-consortio.html)*, qui explique que les familles doivent être les « protagonistes » de la « *politique familiale* » et assumer la responsabilité de transformer la société (cf. n. 44), la voix prophétique pour l'Italie et pour l'Europe du Forum des Associations familiales apparaît plus que jamais importante.
+
+4. Le Forum, en effet, assume la tâche importante, et sous certains aspects inédite, d'être la voix de ceux qui n'ont pas de voix, d'être le porte-parole des droits de la famille, à partir des droits rappelés dans la *[Charte des droits de la Famille](http://localhost/roman_curia/pontifical_councils/family/documents/rc_pc_family_doc_19831022_family-rights_fr.html)*, qui fait partie intégrante de votre Pacte associatif, en agissant ainsi de manière tout à fait nouvelle et originale dans la société italienne.
+
+Merci de ce que vous avez accompli au cours de ces dix ans et de ce que vous êtes. Tout en vous exhortant à poursuivre votre engagement au service de la famille et de la vie, je donne à tous avec affection la Bénédiction apostolique.

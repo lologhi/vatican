@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AUX ŒUVRES PONTIFICALES MISSIONNAIRES***
+
+*28 juin 1979*
+
+*Bien-aimés frères de l'Episcopat,*
+
+*Très chers fils et filles,*
+
+C'est avec des sentiments particulièrement chaleureux que je vous accueille aujourd'hui, vous remerciant également pour avoir exprimé le désir de cette rencontre. Je vous adresse à tous mon salut le plus cordial, voyant en vous et dans les nombreux adhérents aux Œuvres Missionnaires Pontificales, des membres particulièrement actifs de l'Eglise italienne, qui ont mûri leur propre sens de responsabilité à l'égard des exigences missionnaires du Peuple de Dieu.
+
+En ce soixantième anniversaire de l'Encyclique *Maximum illud*, promulguée par mon Prédécesseur [Benoît XV](http://www.vatican.va/holy_father/benedict_xv/encyclicals/index_fr.htm) de vénérée mémoire, votre Congrès a opportunément choisi comme thème d'étude : "La mission au cœur de l'Eglise".
+
+L'Eglise est, en effet, née missionnaire. Le jour même de la première Pentecôte, comme le racontent les Actes des Apôtres (chap. 2), des peuples de provenance diverse furent les spectateurs et en même temps les destinataires et les premiers bénéficiaires de ce que l'Esprit de Dieu opéra puissamment dans les disciples réunis dans le Cénacle de Jérusalem. Irrésistiblement investis de cet Esprit, ils ne purent s'empêcher de proclamer en différentes langues « *les merveilles de Dieu* » ( *Ac* 2, 11). A ces premiers hérauts, fit écho l'Apôtre des Gentils quand il affirma : « *Prêcher l'Evangile ... est une nécessité qui m'incombe... oui, malheur à moi si je ne prêchais pas l'Evangile !* » (1 *Co* 9, 16). Tout cela vaut en premier lieu et personnellement pour les missionnaires en vertu de leur vocation spécifique. Mais par extension ceci est également valable pour toute la communauté chrétienne dont les membres, déjà du seul fait de leur vocation baptismale, doivent « *briller comme des foyers de lumière en présentant au monde la Parole de vie* » ( *Ph* 2, 15-16), c'est-à-dire faire rayonner et partager ce trésor de foi et de communion que possède chaque chrétien.
+
+C'est donc à juste titre que le [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) a pu s'exprimer ainsi : "l'Activité missionnaire découle profondément de la nature même de l'Eglise ; elle en propage la foi qui sauve, elle en réalise l'imité catholique en la répandant, l'apostolicité de l'Eglise lui donne sa vigueur, elle met en œuvre le sens collégial de sa hiérarchie, elle en atteste, répand et procure la sainteté" ( *[Ad gentes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651207_ad-gentes_fr.html)*, n. 6). C'est dans le sens de cette participation commune qu'il faut lire l'Encyclique du Pape Benoît XV quand, en avance sur les temps, il invitait les Evêques à offrir quelques vocations sacerdotales diocésaines pour les besoins plus amples et urgents de l'Eglise universelle (cf. *AAS* 11, 1919, p. 452).
+
+La mission donc n'est pas un engagement secondaire et, moins encore, superflu. Dire qu'elle est au cœur de l'Eglise, c'est souligner qu'il s'agit d'une question vitale pour la communauté chrétienne. Ce n'est pas sans raison que saint Paul compare l'annonce de l'Evangile à l'action de planter (cf. 1 *Co* 3, 6), de jeter les fondations ( *ibid*. 3, 10), d'engendrer ( *ib*. 4, 15). Ce sont là des images qui décrivent toutes des activités de première importance, et qui concourent toutes à mettre en évidence la valeur fondamentale de la mission d'évangélisation. Et ce ne sont pas des tâches qui s'accomplissent une fois pour toutes, car il s'agit de cultiver le grain répandu, d'édifier la construction entreprise, d'éduquer ce qui est né « *jusqu'à ce que le Christ soit formé en vous* » ( *Ga* 4, 19). Ceci impose une attention constante et prévenante ; en effet, selon la parabole de Jésus, il n'est pas permis de s'endormir et de permettre ainsi l'intervention de « *l'ennemi* », semeur d'ivraie (cf. *Mt* 13, 24 et sv.).
+
+Quant à vous, les membres des Œuvres Pontificales Missionnaires, vous êtes certainement de ceux qui veillent avec diligence et sollicitude afin que l'activité missionnaire de l'Eglise soit vraiment féconde et permanente et pour que jamais ne s'affaiblisse dans l'Eglise la vive conscience de sa responsabilité en la matière. C'est pourquoi je vous adresse mes éloges, mes encouragements les plus cordiaux et mes vœux les plus sincères confiés aux mains du Seigneur pour que votre action prévoyante ait une influence toujours croissante.
+
+En gage de ces vœux, je suis heureux de vous donner à tous la bénédiction apostolique la plus large et de l'étendre en particulier à tous les missionnaires, si pleins de mérites, qui opèrent partout dans le monde.
+
+© Copyright 1979 - Libreria Editrice Vaticana

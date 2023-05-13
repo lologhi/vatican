@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***À UNE DÉLÉGATION DE LA FÉDÉRATION LUHÉRIENNE MONDIALE***
+
+***ET AUX REPRÉSENTANTS DE LA COMMISSION***
+
+***POUR L'UNITÉLUTHÉRIENNE-CATHOLIQUE***
+
+*Lundi 21 octobre 2013*
+
+*Chers frères et sœurs luthériens, et chers frères catholiques,*
+
+Je souhaite volontiers la bienvenue à vous tous, délégation de la Fédération luthérienne mondiale et représentants de la Commission pour l’unité luthérienne-catholique. Cette rencontre fait suite à celle, très cordiale et appréciée, que j’ai eue avec vous, éminent évêque Younan, et avec le secrétaire de la Fédération luthérienne mondiale, le révérend Junge, à l’occasion de la célébration du début de mon ministère comme Évêque de Rome.
+
+Je constate avec un sentiment de profonde gratitude pour le Seigneur Jésus Christ les nombreux pas que les relations entre luthériens et catholiques ont accomplis au cours des dernières décennies, et non seulement à travers le dialogue théologique, mais également à travers la collaboration fraternelle dans de multiples domaines pastoraux, et surtout, dans l’engagement en vue de progresser dans l’œcuménisme spirituel. Ce dernier constitue, dans un certain sens, l’âme de notre chemin vers la pleine communion, et nous permet d’en goûter déjà certains fruits, même imparfaits. Dans la mesure où nous nous approchons avec humilité d’esprit de Notre Seigneur Jésus Christ, nous sommes certains de nous rapprocher également les uns des autres, et dans la mesure où nous invoquerons du Seigneur le don de l’unité, nous sommes certains qu’Il nous prendra par la main et que ce sera Lui notre guide. Il faut laisser le Seigneur Jésus Christ nous prendre par la main.
+
+Cette année, comme résultat du dialogue théologique, qui célèbre désormais cinquante ans, et en vue de la commémoration du cinquième centenaire de la Réforme, a été publié le texte de la Commission pour l’unité luthérienne-catholique, qui porte un titre significatif : « Du conflit à la communion. L’interprétation luthérienne-catholique de la Réforme en 2017 ». L’effort de se confronter dans le dialogue sur la réalité historique de la Réforme, sur ses conséquences et sur les réponses qui y furent apportées, me semble véritablement important pour tous. Catholiques et luthériens peuvent demander pardon pour le mal causé les uns aux autres et pour les fautes commises devant Dieu, et se réjouir ensemble pour la nostalgie d’unité que le Seigneur a réveillée dans nos cœurs, et qui nous fait nous tourner vers l’avenir avec un regard d’espérance.
+
+À la lumière du chemin de ces décennies, et des nombreux exemples de communion fraternelle entre luthériens et catholiques dont nous sommes témoins, réconfortés par la confiance dans la grâce qui nous est donnée dans le Seigneur Jésus Christ, je suis certain que nous saurons poursuivre notre chemin de dialogue et de communion, en affrontant également les questions fondamentales, ainsi que les divergences qui apparaissent dans le domaine anthropologique et éthique. Certes, les difficultés ne manquent pas et ne manqueront pas, elles exigeront encore patience, dialogue et compréhension réciproque, mais n’ayons pas peur ! Nous savons bien — comme nous l’a rappelé à plusieurs reprises [Benoît XVI](http://www.vatican.va/holy_father/benedict_xvi/index_fr.htm) — que l’unité n’est pas avant tout le fruit de notre effort, mais de l’action de l’Esprit Saint auquel il faut ouvrir nos cœurs avec confiance afin qu’il nous conduise sur les voies de la réconciliation et de la communion.
+
+Le bienheureux [Jean-Paul II](http://www.vatican.va/holy_father/john_paul_ii/index_fr.htm) se demandait : « Comment annoncer l’Évangile de la réconciliation sans s’engager en même temps à travailler pour la réconciliation des chrétiens ? » (Lett. enc. *[Ut unum sint](http://www.vatican.va/holy_father/john_paul_ii/encyclicals/documents/hf_jp-ii_enc_25051995_ut-unum-sint_fr.html),* n. 98). Que la prière fidèle et constante dans nos communautés puisse soutenir le dialogue théologique, le renouveau de la vie et la conversion des cœurs, afin que, avec l’aide de Dieu Un et Trine, nous puissions marcher vers l’accomplissement du désir du Fils, Jésus Christ, afin que nous soyons tous un. Merci.

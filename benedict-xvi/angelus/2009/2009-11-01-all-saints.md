@@ -1,0 +1,31 @@
+SOLENNITÉ DE LA TOUSSAINT
+
+**BENOÎT XVI**
+
+***ANGÉLUS***
+
+*Place Saint-Pierre*
+
+*Dimanche 1er novembre 2009*
+
+**[ [Vidéo](http://youtu.be/kvsykMO4Dwo)]**
+
+*Chers frères et sœurs !*
+
+Ce dimanche coïncide aujourd'hui avec la solennité de la Toussaint, qui invite l'Église pèlerine sur la terre à goûter de manière anticipée la fête sans fin de la Communauté céleste, et à raviver l'espérance dans la vie éternelle. Il y a cette année 14 siècles que le Panthéon ― l'un des plus anciens et des plus célèbres monuments romains ― fut destiné au culte chrétien et consacré à la Vierge Marie et à tous les Martyrs : « *Sancta Maria ad Martyres* ». Le temple de toutes les divinités païennes était ainsi converti à la mémoire de ceux qui, comme le dit le *Livre de l'Apocalypse*, « viennent de la grande épreuve : ils ont lavé leurs robes et les ont blanchies dans le sang de l'Agneau » ( *Ap* 7, 14). Par la suite, la célébration de tous les martyrs a été étendue à tous les saints, « une foule immense que nul ne pouvait dénombrer, de toute nation, race, peuple et langue » ( *Ap* 7, 9) comme le dit encore saint Jean. En cette [Année sacerdotale](http://www.vatican.va/special/anno_sac/index_fr.html), je suis heureux de rappeler avec une vénération particulière les saints prêtres, tant ceux que l'Église a canonisé, en les proposant toujours comme exemples de vertus spirituelles et pastorales ; que ceux ― bien plus nombreux ― qui sont connus du Seigneur. Chacun de nous conserve le souvenir reconnaissant de l'un d'entre eux, qui nous a aidés à grandir dans la foi et nous a fait ressentir la bonté et la proximité de Dieu.
+
+Demain aura lieu la commémoration de tous les fidèles défunts. Je voudrais inviter à vivre ce jour selon l'authentique esprit chrétien, c'est-à-dire dans la lumière qui vient du Mystère pascal. Le Christ est mort et ressuscité et il nous a ouvert le passage à la maison du Père, le Royaume de la vie et de la paix. Celui qui suit Jésus dans cette vie est accueilli où Il nous a précédés. Au cours de nos visites dans les cimetières, par conséquent, rappelons-nous que là, dans les tombes, ne reposent que les dépouilles mortelles de nos proches dans l'attente de la résurrection finale. Leurs âmes ― comme le dit l'Écriture ― sont déjà « dans la main de Dieu » ( *Sg* 3, 1). Aussi le moyen le plus approprié et efficace de leur rendre hommage est-il de prier pour eux, en offrant des actes de foi, d'espérance et de charité. En union au Sacrifice eucharistique, nous pouvons intercéder pour leur salut éternel, et faire l'expérience de la communion la plus profonde, dans l'attente de nous retrouver ensemble, pour jouir à jamais de l'Amour qui nous a créés et rachetés.
+
+Chers amis, comme est belle et réconfortante la communion des saints ! C'est une réalité qui confère une dimension différente à toute notre vie. Nous ne sommes jamais seuls ! Nous appartenons à une « compagnie » spirituelle au sein de laquelle règne une profonde solidarité : le bien de chacun est au bénéfice de tous et, inversement, le bonheur commun rayonne sur chaque individu. Dans une certaine mesure, c'est un mystère dont nous pouvons déjà faire l'expérience dans ce monde, dans la famille, dans l'amitié, en particulier dans la communauté spirituelle de l'Église. Puisse la Très Sainte Vierge Marie nous aider à marcher d'un pas alerte sur le chemin de la sainteté et être une Mère de miséricorde pour les âmes des défunts.
+
+* * *
+
+**À l'issue de l'Angélus**
+
+Dix ans exactement se sont écoulés depuis que de hauts représentants de la Fédération luthérienne mondiale et de l'Église catholique, le 31 octobre 1999, à Augsbourg, ont signé la Déclaration conjointe sur la doctrine de la justification. En 2006, le Conseil méthodiste mondial a ensuite adhéré à celle-ci. Ce document marqua un consensus entre luthériens et catholiques sur des vérités fondamentales de la doctrine de la justification, des vérités qui nous conduisent au cœur même de l'Évangile et à des questions existentielles de notre vie. Nous avons été accueillis et rachetés par Dieu ; notre existence s'inscrit dans l'horizon de la grâce, elle est guidée par un Dieu miséricordieux, qui pardonne nos péchés et nous appelle à une nouvelle vie à la suite de son Fils ; nous vivons dans la grâce de Dieu et nous sommes appelés à répondre à son don ; tout cela nous libère de la peur et nous procure espérance et courage dans un monde rempli d'incertitude, d'inquiétude, de souffrance. Le jour de la signature de la *Déclaration conjointe*, le Serviteur de Dieu [Jean-Paul II](http://w2.vatican.va/content/john-paul-ii/fr.html) la définit comme une « pierre milliaire sur la route difficile de la recomposition de la pleine unité entre les chrétiens » ( [Angélus, 31 octobre 1999](http://w2.vatican.va/content/john-paul-ii/fr/angelus/1999/documents/hf_jp-ii_ang_19991031.html)). Cet anniversaire est donc une occasion de rappeler la vérité sur la justification de l'homme, témoignée ensemble, pour nous réunir dans des célébrations œcuméniques et pour approfondir ultérieurement cette thématique et les autres qui sont objet du dialogue œcuménique. J'espère de tout cœur que cette anniversaire important puisse contribuer à faire progresser le chemin vers l'unité pleine et visible de tous les disciples du Christ.
+
+Je salue avec joie les pèlerins de langue française, et tout particulièrement le groupe des enfants de chœur de Metz. Aujourd'hui nous célébrons la multitude des saints qui intercèdent pour nous auprès de Dieu. Dans cette multitude, il y a aussi tous ceux et toutes celles qui se sont efforcés d'accomplir la volonté divine en œuvrant pour le Royaume. Aujourd'hui comme hier Jésus appelle au bonheur les hommes et les femmes qui, dans leur cœur et dans leur vie, acceptent l'action de Dieu. Que l'exemple des saints soit pour nous un encouragement et que la Vierge Marie nous guide sur les chemins du bonheur éternel ! Bonne fête de la Toussaint !
+
+Je souhaite à tous un bon dimanche, dans la joie de faire partie de la grande famille des saints.
+
+© Copyright 2009 - Libreria Editrice Vaticana

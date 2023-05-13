@@ -1,0 +1,53 @@
+LITTERAE ENCYCLICAE
+
+SS. D. N. PII DIV. PROV. PP. X
+
+***TRIBUS CIRCITER****
+
+**QUIBUS CONSOCIATIO « MARIAVITARUM »**
+
+**SEU SACERDOTUM MYSTICORUM REPROBATUR AC SUPPRIMITUR**
+
+VENERABILIBUS FRATRIBUS ARCHIEPISCOPO VARSAVIENSI
+
+ATQUE EPISCOPIS PLOCKNSI ET LUBLINENSI
+
+APUD POLONOS
+
+*Venerabiles Fratres, salutem et Apostolicam benedictionem.*
+
+Tribus circiter abhinc annis huic Apostolicae Sedi rite delatum est nonnullos dioecesium vestrarum, praesertim e iuniori clero, sacerdotes, consociationem quamdam pseudomonasticam, sub nomine *Mariavitarum* seu *sacerdotum mysticorum* absque ulla legitimorum Praesulum licentia, instituisse, cuius sodales sensim a recta via debitaque Episcopis subiectione « quos Spiritus Sanctus posuit regere Ecclesiam Dei » deflectere et in suas evanescere cogitationes visi sunt.
+
+Hi enim cuidam mulieri, quam sanctissimam, supernis donis mire cumulatam, plura divino lumine edoctam ac novissimis temporibus in perituri mundi salutem divinitus datam dictitabant, sese totos tanquam pietatis et conscientiae magistrae committere ab eiusque nutibus pendere haud veriti sunt.
+
+Hinc, de praetenso Dei mandato, creberrima devotionis inter plebem exercitia (ceteroquin, si rite fiant, maxime commendanda) praecipue SSmi Sacramenti adorationem ac frequentissimas Communiones, proprio marte et indiscriminatim promovere ; quotquot autem e sacerdotibus aut Praesulibus de eiusdem feminae sanctitate divinaque electione tantisper dubios existimarent, vel *Mariavitarum*, quam vocant, consociationi minus amicos, eos criminationibus gravissimis impetere non dubitarunt, ita ut metus esset ne fideles haud pauci, misere decepti, a legitimis pastoribus recessuri forent.
+
+Quapropter, de consilio Venerabilium Fratrum Nostrorum S. R. E. Cardinalium Generalium Inquisitorum, decretum de memorata sacerdotum sodalitate omnino supprimenda, ac de communicatione quavis cum supra dicta muliere penitus abrumpenda, die 4 mensis Sept., an. 1904, prout Vobis notum est, edi mandavimus. At vero memorati sacerdotes, etsi documentum scripto dederint de sua erga Episcoporum auctoritatem subiectione, etsi forte cum eadem muliere necessitudines partim, ut asserunt, abruperint ; nihilominus ab incoepto molimine haudquaquam destiterunt, nec reprobatae suae consociationi sincero animo renuntiarunt ; adeo ut non solum adhortationes et inhibitiones vestras despexerint ; non solum, effronti quadam declaratione a pluribus ipsorum subscripta, communionem cum suis Episcopis respuerint ; non solum seductam plebem haud uno loco concitarmi ut legitimos propellerei pastores ; sed etiam, perduellium more, Ecclesiam asseruerint a veritate iustitiaque defecisse, ac proinde a Spiritu Sancto esse derelictam, sibique solis, sacerdotibus *Mariavitis*, divinitus datum esse populum fidelem veram pietatem edocere.
+
+Nec satis. Paucis abhinc hebdomadibus, in Urbem venerunt duo ex huiusmodi sacerdotibus, alter Romanus Próchniewski, alter Ioannes Kowalski quem Praepositum suum, vi cuiusdam delegationis memoratae mulieris, sodales omnes agnoscunt. Hi ambo, supplici libello, de expresso Domini Nostri Iesu Christi mandato, ut aiebant, conscripto, requirebant ut Supremus Ecclesiae Pastor, vel, ipsius nomine, Congregatio S. Officii documentum traderet his verbis expressum : « Mariam Franciscam (id est praedictam mulierem) factam a Deo sanctissimam, esse matrem misericordiae pro omnibus hominibus a Deo ad salutem vocatis et electis hisce ultimis temporibus mundi ; omnibus vero sacerdotibus Mariavitis esse a Deo praeceptum cultum SSmi Sacramenti et Beatissimae Virginis Mariae de Perpetuo Succursu, in toto orbe terrarum, propagare, sine ullis limitationibus neque a iure ecclesiastico, neque a legibus humanis, neque a consuetudinibus, neque a quacumque potestate ecclesiastica vel humana.... ».
+
+Quibus ex verbis coniicere voluimus sacerdotes illos, non tam forte conscia superbia quam inscitia et fallaci rerum specie obcoecatos, sicut falsi illi prophetae de quibus Ezechiel ; « Vident vana et divinant mendacium dicentes : Ait Dominus, cum Dominus non miserit eos ; et perseveraverunt confirmare sermonem. Numquid non visionem cassam vidistis, et divinationem mendacem locuti estis ? Et dicitis : Ait Dominus ; cum ego non sim locutus » (Ezechiel, XIII, 6, 7). Hos igitur misericorditer exceptos adhortari sumus ut, posthabitis vanarum revelationum fallaciis, seipsos suaque opera salutifero Praesulum suorum regimini sincere subderent, et Christifideles ad tutam obedientiae ac reverentiae erga pastores suos viam reducere festinarent ; ac denique Sedis Apostolicae aliorumque, ad quos pertinet, vigilantiae curam remitterent eas confirmandi devotionis consuetudines quae, pluribus in paroeciis dioecesium vestrarum, Venerabiles Fratres, vitae christianae plenius fovendae viderentur aptiores, et vicissim eos, si qui forte essent, sacerdotes corrigendi, qui pietatis exercitia et devotionis formas in Ecclesia probatas detrectare vel parvipendere reperti forent. Haud sine animi solatio conspeximus eos, paterna Nostra benignitate commotos, ad pedes procumbere obtestarique firmam voluntatem votis Nostris filiorum devotione obsequendi. Deinde iidem scripto (Die 20 Febr. an. curr.) declarationem Nobis porrigendam curarunt, quae spem augebat fore ut decepti hi filii sincero animo praeteritas ludificationes abiicere ad Tectumque tramitem vellent redire :
+
+« Nos semper (en verba) ad voluntatem Dei adimplendam, quae modo per Vicarium Eius tam clare nobis patuit, parati, sincerrime et laetissimo animo revocamus hanc nostram epistolam, quam die I Febr. a. c. ad Archiepiscopum Varsavien, dedimus, et in qua declaravimus nos separari ab eo. Insuper sincerrime et cum gaudio maximo profitemur nos semper cum Episcopis nostris, in specie autem cum Episcopo Varsaviensi, unitos esse volumus, quoadusque Sanctitas Vestra id nobis iubebit. Praeterea, cum nos nomine omnium Mariavitarum modo agamus, hanc nostram professionem omnimodae obedientiae et subiectionis, nomine omnium non solum Mariavitarum sed universi coetus Adoratorum SSmi Sacramenti, facimus. Specialiter autem facimus hanc professionem nomine Mariavitarum Plocensium qui propter causam eamdem, uti Mariavitae Varsavienses, suo Episcopo declarationem porrexerunt se ab eo separari. Ideo omnes sine exceptione ad pedes Sanctitatis Vestrae provoluti, iterum iterumque amorem nostrum et obedientiam erga Sanctam Sedem et specialissimo modo erga Vestram Sanctitatem profitentes, humillime veniam petimus, si quid a nobis vel propter nos paterno cordi Vestro dolorem attulerit. Denique declaramus nos statim omnibus viribus adlaboraturos ut pax populi cum Episcopis quamprimum restituatur. Immo affirmare etiam possumus pacem hanc revera brevi secuturam ».
+
+Quapropter periucundum Nobis erat sperare hosce filios Nostros benigne condonalos, vix in Poloniam reversos, operam daturos, ut ea quae promiserant, re quamprimum praestarent. Atque idcirco Vos, Venerabiles Fratres, festine voluimus admonitos, ut eosdem eorumque socios, plenam auctoritati vestrae subiectionem profitentes, pari misericordia exciperetis et in pristinam, si facta promissis convenirent, conditionem pro muneribus sacerdotalibus exercendis, ad iuris tramitem, restitueretis.
+
+At spem fefellit eventus ; nuperis enim documentis rescivimus eos mentem suam mendacibus revelationibus rursus aperuisse, et in Poloniam receptos non solum obsequii ac subiectionis testimonium quod polliciti fuerant, nondum Vobis, Venerabiles Fratres, exhibuisse, sed etiam ad socios et plebem quamdam dedisse epistolam, veritati ac genuinae obedientiae minime consentaneam.
+
+Verumtamen inanis est asseveratio fidelitatis erga Christi Vicarium ab iis edita, qui re non desistunt suorum Antistitum auctoritatem infringere. Etenim « ex Episcopis constat pars Ecclesiae longe augustissima, (prout legitur in epistola diei 17 mensis Decembris 1888 s. m. Leonis XIII Decessoris Nostri ad Turonensem Archiepiscopum) quae nimirum docet ac regit homines iure divino ; ob eamque rem quicumque eis resistat, vel dicto audiens esse pertinaciter recuset, ille ab Ecclesia longius recedit.... Contra, inquirere in acta Episcoporum, eaque redarguere, nullo modo attinet ad privatos ; verum ad eos dumtaxat attinet, qui sacro in ordine illis potestate antecedunt, praecipue ad Pontificem Maximum, quippe cui Christus non agnos modo sed oves, quotquot ubique sunt, ad pascendum commiserit. Ut summum, in gravi aliqua conquerendi materia, concessum est rem totam ad Pontificem Romanum deferre ; id tamen caute moderateque, quemadmodum studium suadet communis boni, non clamitando aut obiurgando, quibus modis dissidia verius offensionesque gignuntur, aut certe augentur ».
+
+Inanis pariter et subdola sacerdotis Ioannis Kowalski ad socios erroris adhortatio de pace restituenda, si contra legitimos pastores blaterationes ac rebellionum fomenta perdurent atque audaces mandatorum episcopalium violationes.
+
+Quamobrem, ne Christifideles et quotquot ex sic dictis Mariavitis sacerdotibus in bona fide perstiterunt, ludificationibus memoratae mulieris ac sacerdotis Ioannis Kowalski diutius decipiantur, decretum iterum confirmamus, quo Mariavitarum consociatio, illegitimo irritoque consilio inita, omnino supprimitur, eamque suppressam reprobatamque declaramus, firma manente prohibitione, ne qui e sacerdotibus, eo tantum excepto quem Plocensis Episcopus, pro sua prudentia, confessarium deputaverit, ad mulierem quam diximus, quovis praetextu accedere aut eam excipere audeant.
+
+Vos autem, Venerabiles Fratres, vehementer hortamur, ut sacerdotes errantes, statim ac sincere resipuerint, paterna charitate amplectamini, eosque rite probatos ad munia sacerdotalia, ductu vestro, denuo obeunda vocare non renuatis. Quod si, spretis adhortationibus vestris in sua contumacia perseveraverint, — quod Deus avertat — muneris erit Nostri severius in eos animadvertendi. Christi vero fideles, nunc ignoscenda ludificatione deceptos, in rectam reducere viam studeatis ; atque in dioecesibus vestris christianae pietatis exercitia, multiplicibus Sedis Apostolicae documentis iamdiu recenterque comprobata, eo alacrius foveatis quo liberius nunc, Deo dante, apud vos ministerium suum sacerdotes exercere fidelesque antiquae pietatis exempla aemulari valent.
+
+Interea, caelestium beneficiorum auspicem, paternaeque Nostrae benevolentiae testem, vobis, Venerabiles Fratres, et clero populoque universo, vestrae fidei vigilantiaeque commisso, Apostolicam Benedictionem peramanter in Domino impertimur.
+
+*Datum Romae apud S. Petrum, die V Aprilis MDCCCCVI, Pontificatus Nostri anno tertio.*
+
+**PIUS PP. X**
+
+* * *
+
+* *AAS*, vol. XXXIX (1906), pp. 129-134.

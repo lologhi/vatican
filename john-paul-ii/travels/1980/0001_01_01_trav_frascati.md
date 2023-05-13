@@ -1,6 +1,0 @@
-|     |
-| --- |
-|  |
-| ***Visite Pastorale à Frascati (Italie)***<br>***(7-8 septembre 1980)***<br>**Salutations au cours de la visite pastorale (8 septembre 1980)**<br> \[ [Espagnol](/content/john-paul-ii/es/speeches/1980/september/documents/hf_jp-ii_spe_19800908_frascati.html)\]<br>- **Messe à Frascati (8 septembre 1980)**\[ [Espagnol](/content/john-paul-ii/es/homilies/1980/documents/hf_jp-ii_hom_19800908_frascati.html), [Italien](/content/john-paul-ii/it/homilies/1980/documents/hf_jp-ii_hom_19800908_frascati.html), [Portugais](/content/john-paul-ii/pt/homilies/1980/documents/hf_jp-ii_hom_19800908_frascati.html)\]<br>  <br>- **Aux jeunes de Frascati à l'Oratoire de Capocroce (Frascati, 8 septembre 1980)**\[ [Espagnol](/content/john-paul-ii/es/speeches/1980/september/documents/hf_jp-ii_spe_19800908_giovani-frascati.html), [Italien](/content/john-paul-ii/it/speeches/1980/september/documents/hf_jp-ii_spe_19800908_giovani-frascati.html), [Portugais](/content/john-paul-ii/pt/speeches/1980/september/documents/hf_jp-ii_spe_19800908_giovani-frascati.html)\] |
-|  |
-|  |

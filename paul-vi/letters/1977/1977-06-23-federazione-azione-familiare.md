@@ -1,0 +1,25 @@
+***MESSAGE DU PAPE PAUL VI***
+
+***À LA FÉDÉRATION INTERNATIONALE***
+
+***D’ACTION FAMILIALE***
+
+*Madame la Présidente,*
+
+Sa sainteté le Pape Paul VI a appris avec satisfaction que la Fédération internationale d’Action Familiale allait tenir tout prochainement son premier Congrès international à Cali, en Colombie. II m’a chargé d’exprimer aux participants la confiance qu’il met dans cette initiative et les encouragements qu’il apporte à la poursuite de ses buts et à la réalisation de ses activités.
+
+La FIDAF a en effet le mérite de surmonter un courant, même largement répandu, qui estime inévitable le recours aux procédés artificiels pour faire face à un problème engageant l’homme au plus profond de son être. Elle entend, elle, promouvoir toute une éducation à une procréation responsable, par les différentes méthodes naturelles de régulation des naissances. En peu de temps, votre Fédération a sollicité et obtenu le concours d’hommes de science, d’éducateurs, de foyers, pour une confrontation des recherches scientifiques et médicales et l’appui d’initiatives qui commencent à faire leurs preuves. On ne peut que se réjouir également des rapports qui s’établissent entre la FIDAF et l’Organisation mondiale de la Santé.
+
+Les travaux auxquels vous vous consacrez touchent directement les graves questions de la démographie mondiale, qui ne peuvent laisser personne indifférent, mais ils s’attachent surtout à la façon humaine de les résoudre, dans le plein respect de la dignité de l’acte conjugal et dans le souci d’accueillir généreusement le don de la vie. Car, derrière ces problèmes, se profile l’enjeu du développement intégral de la personne et du couple, de la plénitude de l’amour conjugal, capable de maîtriser la fécondité. Il y va aussi de la dignité du mariage, de la valorisation de l’enfant dès sa conception, de la mission de la famille. A cette œuvre capitale, beaucoup sont appelés à contribuer selon leur compétence, et il dépend d’eux, de leur conviction, de leur ferme engagement et de leur persévérance, qu’elle se réalise concrètement et qu’elle progresse.
+
+Le Saint-Père renouvelle d’abord ses encouragements aux chercheurs et aux médecins, comme aux responsables de la promotion de la santé, aux plans national et international. L’importance de la connaissance des lois biologiques de la fécondité humaine, qui favoriserait une saine régulation des naissances par des méthodes naturelles, exige que les recherches scientifiques s’intensifient en ce domaine, qu’elles soient coordonnées et que ce travail soit soutenu par des investissements proportionnels à l’enjeu en question et au service rendu.
+
+Le Pape Paul VI estime également que les époux eux-mêmes peuvent beaucoup pour aider d’autres foyers à entrevoir, à accepter, à expérimenter la sainteté et la douceur de la loi qui unit l’amour mutuel des conjoints à la coopération à l’amour de Dieu, auteur de la vie humaine. En communiquant leurs expériences, ils sont particulièrement bien placés pour acquérir la confiance et se faire les guides d’autres couples.
+
+Cette œuvre requiert enfin le concours de nombreux éducateurs spécialisés, de conseillers conjugaux avisés, de guides spirituels - laïcs, religieuses et prêtres - qui aident les époux à faire face aux exigences complémentaires de leur amour et de leur paternité responsable.
+
+Le Saint-Père a souvent eu l’occasion d’exposer ou de rappeler ces principes et ces objectifs à l’ensemble des catholiques ou aux hommes de bonne volonté, parce qu’il y va de la construction d’un monde qui respecte l’amour et la vie comme des dons de Dieu. Il a confié à son Comité pour la Famille le soin de suivre et d’encourager en son nom les efforts qui en assurent la promotion. Aussi est-il particulièrement heureux de voir la FIDAF prendre, sur un plan international et ouvert à tous, des initiatives courageuses et efficaces qui rejoignent ses appels.
+
+Il voudrait affermir vos résolutions, dans l’espérance que suscitent la foi en Dieu et le service profond de l’humanité. Car devant l’échec ou la réussite précaire et partielle de tant de plans mis en œuvre pour résoudre les questions cruciales de l’humanité d’aujourd’hui, vos travaux, confrontés, coordonnés, finiront par s’imposer, parce qu’ils s’appuient sur ce qu’il y a de plus profond dans la nature et dans le cœur de l’homme, et qui vient de Dieu. Puisse votre fidélité à scruter les réalités encore inconnues de la Création vous enraciner dans la certitude que le champ du possible peut toujours grandir quand on marche vers Dieu ! De grand cœur, Sa Sainteté implore sur vos tr<avaux les Bénédictions de notre Créateur et Sauveur.
+
+Heureux de vous transmettre ce message, je vous prie d’agréer, Madame la Présidente, avec mes propres vœux pour le succès du Congrès de Cali, l’assurance de mon respectueux dévouement.

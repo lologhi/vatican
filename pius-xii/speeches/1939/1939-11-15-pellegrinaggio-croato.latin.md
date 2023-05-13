@@ -1,0 +1,29 @@
+***ALLOCUTIO SANCTISSIMI DOMINI NOSTRI PII PP. XII***
+
+***AD CROATARUM POPULI PEREGRINATIONEM****
+
+*Die XV mensis Novembris, anno Domini MCMXXXIX*
+
+Venerabiles Fratres, dilecti filii,
+
+Plusquam decem saecula elapsa sunt, ex quo Decessor Noster, Ioannes VIII, anno octingentesimo septuagesimo nono, his quae sequuntur verbis Croatarum gentem per epistulam affatus est : « . . .brachiis extensis vos complectimur paternoque amore recipimus et apostolica volumus semper benignitate fovere »( *Mon. Germ. Hist*., Ep. VII, 165-167). Iamvero, dum hodie summo gaudio Nobis licet, carissimi in Christo filii ac filiae, vos heic in paterna domo accipere coram, nullo alio modo vos consalutare possumus, qui aptius animi Nostri sensus exprimat ; vos dicimus, qui, antiquissimae illius stirpis progenies, Croatarum populi, plenis viribus virtuteque validi, quodammodo personam geritis.
+
+Ducibus Venerabilibus Fratribus Metropolitanis et Episcopis vestris, apostolico studio animatis, huc vos convenistis ut vestram testemini fidelitatem — ex tempore Ioannis Papae IV f. r., natione dalmatae, per tredecim saecula numquam deficientem, — in Beati Petri Sedem et in Romanam Ecclesiam, quam quidem hisce laudibus praedicatis « aeternae veritatis interpretem infallibilem, iustitiae socialis patronam potentem, concordiae inter gentes adiutricem indefessam »; atque ita profecto dignos vos praeconio exhibuistis, quod immortalis Decessor Noster Leo X genti vestrae attribuit, cum eam « antemurale christianitatis » iure meritoque appellavit. Etenim paulo postquam Summus ille Pontifex amplissimum eiusmodi praeconium edidit, ingruentibus magno impetu Islamitarum exercitibus, cum vestra, tum Hungarorum catholica fides in difficillimum gravissimumque discrimen vocata fuit. Ac novimus vos per temporis decursum, cum nempe Turcarum imperium in vos dominaretur, cumque postea vos in libertatem dimicando vindicaretis, hoc idem discrimen egregie et feliciter superasse. Id igitur firmam in Nobis certamque spem alit vos itidem dum in praesens acerrimae de religione deque naturalibus honestatis normis disceptationes, simulque invalescens concertatio de christiana fide deque supernae vitae divitiis, quae in sempiternam confluent beatitatem, universos populos omnesque civium ordines tantopere exagitant — vos inquimus, pro vestra fidelitate animorumque constantia, non a doctrina catholica a christianisque praeceptis, non ab Ecclesia ab eiusque supremo Moderatore unquam esse discessuros. Quamobrem praeclara in vobis reviviscent Beati Nicolai Tavilicensis exempla, in quo catholica fides veluti sacra flamma exarsit, cuiusque sanctitatis consecratio, si ex arcano Dei consilio obvenerit, non minore Nos, quam vos, laetitia afficiet.
+
+Indoles ingeniumque vestrum arduam quodammodo sapit ac refert fortissimamque vestrorum montium firmitatem. Haec igitur indoles, indomita prorsus tenacitate, avitae fidei retinentissimos vos efficiat. Firma eadem fides ac sibi, constans esto ; ac sicut Velebitensia culmina vestra, non imbribus, non tempestatibus commoveatur.
+
+Christiana fides et arctissima cum Jesu Christi Vicario coniunctio quasi fundamentum ac veluti alma tellus habenda sunt, ex quibus vita efflorescat, quae et socialem actionem et caritatis opera et suam denique cuiusque sanctitatem alat atque conformet. Ecclesiasticis institutis ac sodaliciis vestris, ac peculiari modo Actione Catholica eo consilio utimini, ut christianae fidei beneficia in omnes publicae rei partes profluant. Ad quod quidem exsequendum propositum eo vel magis hodie vobis addimus animum, quod spes affulget fore ut in posterum Ecclesiae civitatisque res in patria vestra concordi actione communique cum utilitate aptius componi possint.
+
+At hisce positis fundamentis, quae supra diximus, id imprimis vos enixe hortamur ut interioris vitae sanctimonia in omnibus floreat ac vigeat. Cotidianis ad Deum admotis precibus, ac communibus habitis inter domesticos parietes ante Jesu Christi cruci affixi imaginem supplicationibus, pervios divinis praeceptis christianaeque perfectioni facilioresque in animos vestros reddite aditus, idque etiam efficite cum per ingenuae vitae simplicitatem « in omni pietate et castitate » ( *Tim*., II, 2), tum per arctiorem cum divino Redemptore in Eucharistia praesertim coniunctionem, ad quem quidem cogitationes, unaque simul verba et opera vestra conformentur, tum denique per incensam pietatem erga Deiparam Virginem, studioso filiorum animo alendam.
+
+Iuventutem vestram ita instituite atque educate, ut bene morata Deique ornata verecundia succrescat ; atque eidem nominatim catholicos litterarum disciplinarumque ludos servate incolumes ! Tum enim solummodo pacem, quae ex Deo oritur, in domestica societate intervolitare videbitis, ac patriae vestrae iubar affulgere verae mansuraeque felicitatis.
+
+Interea vero nullo Nos posse aptiore modo putamus Nostris hisce verbis finem facere, quam si salutationem benedictionemque iteremus, quibus idem Decessor Noster Ioannes VIII in epistula supra memorata usus est : « Sacris orationibus Nostris memoriam vestri coram Domino assidue facientes, manibus sursum ad Dominum elevatis omnipotenti Deo vos commendamus et omni benedictione spirituali vobis benedicimus in Christo Jesu Domino Nostro, ut hic et in aeternum corpore simul et anima benedicti exsistatis ; et in perpetuum coram Domino gaudeatis ». Quibus permoti sensibus, cum vobis familiisque vestris, tum cunctae Croatarum genti ac iuventuti praesertim vestrae, ex paterni animi Nostri praecordiis Apostolicam Benedictionem impertimus.
+
+* * *
+
+**Discorsi e Radiomessaggi di Sua Santità Pio XII*, I,
+
+Primo anno di Pontificato, 2 marzo 1939 - 1° marzo 1940, pp. 385-387
+
+Tipografia Poliglotta Vaticana

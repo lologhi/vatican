@@ -1,0 +1,35 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Place Saint-Pierre*
+
+*Mercredi 16 décembre 2015*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/12/16/udienzagenerale.html)]**
+
+* * *
+
+*Chers frères et sœurs, bonjour !*
+
+Dimanche dernier [a été ouverte la porte sainte dans la cathédrale de Rome](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/12/13/portasantalaterano.html), la basilique Saint-Jean-de-Latran, et a été ouverte une *porte de la miséricorde* dans la cathédrale de chaque diocèse du monde, également dans les sanctuaires et dans les églises indiquées par les évêques. Le jubilé est célébré dans le monde entier, pas seulement à Rome. J’ai désiré que ce signe de la porte sainte soit présent dans chaque Eglise particulière, afin que le [jubilé de la miséricorde](http://www.iubilaeummisericordiae.va/content/gdm/fr.html) puisse devenir une expérience partagée par chaque personne. De cette façon, l’année sainte a commencé dans toute l’Eglise et est célébrée dans chaque diocèse comme à Rome. D’ailleurs, la première porte sainte [a été ouverte précisément au cœur de l’Afrique](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/11/29/repcentrafricanamessa.html). Et Rome est le signe visible de la communion universelle. Puisse cette communion ecclésiale devenir toujours plus intense, afin que l’Eglise soit dans le monde le signe vivant de l’amour et de la miséricorde du Père.
+
+La date du 8 décembre a également voulu souligner cette exigence en reliant, à 50 ans de distance, le début du jubilé avec la conclusion du Concile œcuménique Vatican II. En effet, le Concile a contemplé et présenté l’Eglise à la lumière du mystère de la communion. Présente dans le monde entier et organisée dans de nombreuses Eglises particulières, elle est toutefois toujours et uniquement l’unique Eglise de Jésus Christ, celle qu’Il a voulu et pour laquelle il s’est offert Lui-même. L’Eglise « une » qui vit de la communion même de Dieu.
+
+Ce mystère de communion, qui fait de l’Eglise le signe de l’amour du Père, croît et mûrit dans notre cœur, quand l’amour, que nous reconnaissons dans la Croix du Christ et dans lequel nous nous plongeons, nous fait aimer comme nous sommes nous-mêmes aimés par Lui. Il s’agit d’un Amour sans fin, qui a le visage du pardon et de la miséricorde.
+
+Toutefois, la miséricorde et le pardon ne doivent pas demeurer de vaines paroles, mais se réaliser dans la vie quotidienne. *Aimer et pardonner sont le signe concret et visible que la foi a transformé nos cœurs* et nous permet d’exprimer en nous la vie même de Dieu. Aimer et pardonner comme Dieu aime et pardonne. C’est un programme de vie qui ne peut connaître d’interruptions ou d’exceptions, mais qui nous pousse à aller toujours au-delà, sans jamais nous lasser, avec la certitude d’être soutenus par la présence paternelle de Dieu.
+
+Ce grand signe de la vie chrétienne se transforme ensuite en de nombreux autres signes qui sont caractéristiques du jubilé. Je pense à ceux qui franchiront l’une des portes saintes qui, au cours de cette année, sont de véritables portes de la miséricorde. La porte indique Jésus lui-même qui a dit : « Je suis la porte. Si quelqu’un entre par moi, il sera sauvé; il entrera et sortira, et trouvera un pâturage » (Jn 10, 9). *Traverser la porte sainte est le signe de notre confiance dans le Seigneur Jésus* qui n’est pas venu pour juger, mais pour sauver (cf. Jn 12, 47). Prenez garde que quelqu’un d’un peu malhonnête ou de trop rusé ne vous dise qu’il faut payer : non ! le salut ne se paie pas. Le salut ne s’achète pas. La porte est Jésus, et Jésus est gratuit ! Lui-même parle de ceux qui ne font pas entrer comme il se doit, et il dit simplement que ce sont des voleurs et des brigands. Alors faites attention : le salut est gratuit. Traverser la porte sainte est signe d’une véritable conversion de notre cœur. Quand nous traversons cette porte, il est bon de rappeler que nous devons maintenir grande ouverte également la porte de notre cœur. Je suis devant la porte sainte et je demande : « Seigneur, aide-moi à ouvrir toute grande la porte de mon cœur !». L’année sainte ne serait pas très efficace si la porte de notre cœur ne laissait pas passer le Christ, qui nous pousse à aller vers les autres, pour l’apporter, lui et son amour. Donc, de même que la porte sainte reste ouverte, parce qu’elle est le signe de l’accueil que Dieu lui-même nous réserve, ainsi, que notre porte également, celle de notre cœur, soit toujours grande ouverte pour n’exclure personne. Pas même celui ou celle qui me dérange : personne.
+
+Un signe important du jubilé est également *la Confession.* S’approcher du sacrement avec lequel nous sommes réconciliés avec Dieu équivaut à faire l’expérience directe de sa miséricorde. C’est trouver le Père qui pardonne : Dieu pardonne tout. Dieu nous comprend également dans nos limites, il nous comprend également dans nos contradictions. Pas seulement, avec son amour, il nous dit que c’est précisément quand nous reconnaissons nos péchés qu’il est encore plus proche et qu’il nous pousse à regarder de l’avant. Il dit plus : que lorsque nous reconnaissons nos péchés et que nous demandons pardon, le Ciel est en fête. Jésus fait la fête ! C’est Sa miséricorde : ne nous décourageons pas. Allons de l’avant, de l’avant avec cela !
+
+Combien de fois ai-je entendu : « Père, je n’arrive pas à pardonner mon voisin, mon collègue de travail, ma voisine, ma belle-mère, ma belle-sœur ». Nous avons tous entendu cela : « Je n’arrive pas à pardonner ». Mais comment peut-on demander à Dieu de nous pardonner, si ensuite nous ne sommes pas capables de pardonner ? Et pardonner est une grande chose, pourtant, ce n’est pas facile, de pardonner, parce que notre cœur est pauvre et qu’il ne peut pas y réussir avec ses seules forces. Mais si nous nous ouvrons pour accueillir la miséricorde de Dieu pour nous, nous devenons à notre tour capables de pardon. Tant de fois, j’ai entendu dire : « Mais, cette personne, je ne pouvais pas la voir : je la détestais. Mais un jour, je me suis approché du Seigneur et je lui ai demandé pardon pour mes péchés, et j’ai aussi pardonné cette personne ». Ce sont des choses de tous les jours. Et nous avons cette possibilité près de nous.
+
+Donc, courage ! Vivons le jubilé en commençant par ces signes qui comportent une grande force d’amour. Le Seigneur nous conduira à faire l’expérience d’autres signes importants pour notre vie. Courage et allons de l’avant !
+
+* * *
+
+Je salue cordialement les pèlerins de langue française, en particulier les personnes venues de Nouvelle Calédonie. Alors que Noël se fait proche, je vous confie à l’intercession de la Mère de Jésus et je vous invite, en recevant le sacrement de réconciliation, à préparer votre cœur pour recevoir le Seigneur dans votre vie.
+
+Que Dieu vous bénisse.

@@ -1,0 +1,67 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS \
+\
+AU KENYA, EN OUGANDA ET EN RÉPUBLIQUE CENTRAFRICAINE](http://w2.vatican.va/content/francesco/fr/travels/2015/outside/documents/papa-francesco-africa-2015.html)
+
+(25-30 NOVEMBRE 2015)
+
+**RE** **NCONTRE AVEC LES JEUNES**
+
+***DISCOURS DU SAINT-PÈRE***
+
+*Kololo Air Strip, Kampala (Ouganda)*
+
+*Samedi 28 novembre 2015*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/11/28/ugandagiovani.html)]**
+
+* * *
+
+[En anglais, le Pape annonce qu’il parlera dans sa langue]
+
+J’ai écouté avec beaucoup de douleur dans le cœur le témoignage de Winnie et d’Emmanuel. Mais, à mesure que j’écoutais, je me suis posé une question : une expérience négative peut-elle servir à quelque chose dans la vie ? Oui ! Emmanuel comme Winnie ont souffert des expériences négatives. Winnie pensait qu’il n’y avait pas d’avenir pour elle, et que, pour elle, la vie était un mur qui était devant. Mais Jésus lui a fait comprendre que, dans la vie, on peut faire un grand miracle : transformer un mur en un horizon, un horizon qui m’ouvre l’avenir. Devant une expérience négative – et beaucoup, beaucoup d’entre nous qui nous trouvons ici avons eu des expériences négatives – il y a toujours la possibilité d’ouvrir un horizon, de l’ouvrir avec la force de Jésus. Aujourd’hui Winnie a transformé sa dépression, son amertume, en espérance. Et ce n’est pas de la magie : c’est l’œuvre de Jésus, parce que Jésus est le Seigneur. Jésus peut tout. Et Jésus a souffert l’expérience la plus négative de l’histoire : il a été insulté, il a été rejeté et il a été assassiné. Et Jésus, par la puissance de Dieu, est ressuscité. Il peut faire en chacun de nous la même chose, avec n’importe quelle expérience négative ; parce que Jésus est le Seigneur.
+
+J’imagine – et tous ensemble nous pouvons imaginer – la souffrance d’Emmanuel, quand il voyait que ses compagnons étaient torturés, quand il voyait que ses compagnons étaient assassinés. Emmanuel a été courageux, il s’est donné du courage. Il savait que s’ils le trouvaient le jour où il s’échappait, ils l’auraient tué. Il a risqué, il s’est confié à Jésus et il s’est échappé. Et aujourd’hui nous l’avons ici, 14 ans après, diplômé en Sciences Administratives. On peut toujours ! Notre vie est comme une semence : pour vivre il faut mourir ; et parfois mourir physiquement, comme cela est arrivé aux compagnons d’Emmanuel ; mourir comme sont morts Charles Lwanga et les martyrs de l’Ouganda. Mais à travers cette mort il y a une vie, une vie pour tous. Si je transforme le négatif en positif, je triomphe. Mais cela ne peut se faire qu’avec la grâce de Jésus. Etes-vous sûrs de cela ? … Je n’entends rien… Etes-vous sûrs de cela ? [les jeunes : Oui !] Etes-vous prêts à transformer dans la vie toutes les choses négatives en choses positives ? [les jeunes : Oui !] Etes-vous prêts à transformer la haine en amour ? [les jeunes : Oui !] Etes-vous prêts à transformer la guerre en paix ? [les jeunes : Oui !] Ayez conscience que vous êtes un peuple de martyrs. Dans vos veines coule le sang des martyrs ! C’est pourquoi vous avez la foi et la vie que vous avez aujourd’hui [les jeunes : Oui !] Et cette foi, cette vie, elle est si belle qu’elle s’appelle la « Perle de l’Afrique ».
+
+Il semble que le micro ne fonctionne pas bien. Parfois, nous aussi, nous ne fonctionnons pas bien. Oui ou non ? Et quand nous ne fonctionnons pas bien, à qui devons nous aller demander qu’il nous aide ? Je ne vous entends pas !…Plus fort !… [les jeunes : Jésus] A Jésus ! Jésus peut changer ta vie. Jésus peut abattre tous les murs que tu as devant toi. Jésus peut faire que ta vie soit un service pour les autres.
+
+L’un de vous pourrait me demander : Et pour cela, il y a une baguette magique ? Si tu veux que Jésus change ta vie, demande lui de l’aide. Et cela s’appelle prier. Vous avez bien compris ? Prier ! Je vous demande : est-ce que vous priez ? [les jeunes : Oui !] Vraiment ? [les jeunes : Oui !] Priez Jésus parce qu’il est le Sauveur. N’oubliez jamais de prier ! La prière est l’arme la plus forte que possède un jeune. Jésus nous aime. Je vous demande : Jésus aime-t-il les uns, et pas les autres ? [Non !] Jésus aime tout le monde ? [Oui !] Jésus veut-il tous nous aider ? [Oui !] Alors ouvre la porte de ton cœur et laisse-le entrer. Laisser entrer Jésus dans ma vie. Et quand Jésus entre dans ta vie, il t’aide à lutter, à lutter contre tous les problèmes dont a parlé Winnie. Lutter contre la dépression, lutter contre le SIDA. Demander de l’aide pour surmonter ces situations, mais lutter toujours. Lutter avec mon désir et lutter avec ma prière. Etes-vous prêts à lutter ? Etes-vous prêts à désirer le meilleur pour vous ? [Oui !] Etes-vous prêts à prier, à demander à Jésus qu’il vous aide dans la lutte ? [Oui !]
+
+Et je veux vous dire une troisième chose. Nous sommes tous dans l’Église, nous appartenons à l’Église. C’est vrai ? [Oui !] Et l’Église a une Mère. Comment s’appelle-t-elle ? Je n’ai pas compris ! [Marie !] Prier la Mère ! Quand un enfant tombe, il se fait mal, il se met à pleurer et va chercher la maman. Quand nous avons un problème, la meilleure chose que nous pouvons faire c’est d’aller où se trouve notre Mère ; et prier Marie, notre Mère. Vous êtes d’accord ? [Oui !] Et vous, est-ce que vous prier la Vierge, notre Mère ? [Oui !] Et vous ici [s’adressant à un groupe de jeunes] , est-ce que vous priez Jésus et la Vierge, notre Mère ? [Oui !]
+
+Trois choses. Surmonter les difficultés. La seconde : transformer le négatif en positif. La troisième : la prière. La prière à Jésus qui peut tout. Jésus qui entre dans notre cœur et change notre vie. Jésus qui est venu pour me sauver et qui a donné sa vie pour moi. Priez Jésus parce qu’il est l’unique Seigneur. Et comme dans l’Église nous ne sommes pas orphelins, et que nous avons une Mère, priez notre Mère. Et comment s’appelle notre Mère ? [Marie !] Plus fort ! [Marie !]
+
+Je vous remercie beaucoup de m’avoir écouté. Je vous remercie de vouloir changer le négatif en positif ; de vouloir combattre le mal, avec Jésus à vos côtés. Et surtout, je vous remercie de vouloir ne jamais cesser de prier. Et maintenant, je vous invite à prier ensemble notre Mère, pour qu’elle nous protège. Vous êtes d’accord ? [Oui !] Tous ensemble ? [Oui !]
+
+[Ave Maria et Bénédiction en anglais]
+
+Et, s’il vous plait, s’il vous plait, une dernière demande : priez pour moi. Priez pour moi ! J’en ai besoin. N’oubliez pas. Au revoir !
+
+* * *
+
+**Discours préparé par le Saint-Père**
+
+*Saint Père : Omukama Mulungi !*[Dieu est bon !]
+
+*Les Jeunes : Obudde Bwoona !*[Maintenant et toujours]
+
+*Chers jeunes, chers amis,*
+
+je suis heureux d’être ici et de partager ces moments avec vous. Je désire saluer les frères Évêques et les Autorités civiles présents. Je remercie Monseigneur Paul Ssemogerere pour ses paroles de bienvenue. Les témoignages de Winnie et d’Emmanuel renforcent mon impression que l’Église en Ouganda est riche de jeunes qui désirent un avenir meilleur. Aujourd’hui, si vous me le permettez, je voudrais vous confirmez dans la foi, vous encourager dans l’amour et d’une manière spéciale, vous fortifier dans l’espérance.
+
+L’espérance chrétienne n’est pas simplement de l’optimisme ; c’est beaucoup plus. Elle enfonce ses racines dans la vie nouvelle que nous avons reçue en Jésus Christ. Saint Paul dit que l’espérance ne nous déçoit pas, parce que dans le Baptême l’amour de Dieu a été répandu dans nos cœurs par l’Esprit Saint (cf. *Rm* 5, 5). L’espérance nous rend capables de compter sur les promesses du Christ, sur la force de son pardon, de son amitié, de son amour, qui ouvre les portes à une vie nouvelle. Vraiment quand vous vous heurtez à un problème, à un échec, quand vous avez un temps d’arrêt, ancrez votre cœur dans cet amour parce qu’il a le pouvoir de changer la mort en vie et de repousser tout mal.
+
+Aussi cet après-midi, je voudrais vous inviter, avant tout, à prier pour que ce don grandisse en vous et que vous puissiez recevoir la grâce de devenir des messagers d’espérance. Il y a beaucoup de personnes autour de nous qui éprouvent une profonde inquiétude et même du désespoir. Jésus dissipe ces nuages, si nous le lui permettons.
+
+J’aimerais aussi partager avec vous quelques pensées au sujet de certains obstacles que vous pourriez rencontrer sur la route de l’espérance. Vous tous, vous désirez un avenir meilleur, un travail, la santé et le bien –être, et c’est une bonne chose. Pour le bien du peuple et de l’Église, vous désirez partager avec les autres vos dons, les aspirations et l’enthousiasme, et c’est une chose très bonne. Mais parfois, quand vous voyez la pauvreté, quand vous rencontrez l’absence d’opportunité, quand vous faites l’expérience des échecs de la vie, un sentiment de désespoir peut surgir et grandir. Vous pouvez être tentés de perdre l’espérance.
+
+Ne vous est-il jamais arrivé de voir un enfant qui dans la rue doive s’arrêter face à une flaque d’eau qui se trouve devant lui, et qu’il n’est pas en mesure de sauter ou de contourner ? Il peut essayer de le faire, mais ensuite il tombe et se mouille. Alors, après diverses tentatives, il appelle à l’aide son papa, qui le prend par la main et le fait passer rapidement de l’autre côté. Nous sommes comme cet enfant. La vie nous réserve beaucoup de flaques d’eau. Mais nous ne devons pas surmonter tous les problèmes et les obstacles avec nos seules forces. Dieu est là pour saisir notre main, si seulement nous l’invoquons.
+
+Ce que je voudrais vous dire, c’est que nous tous, même le Pape, nous devrions ressembler à cet enfant ! Parce que c’est seulement lorsque nous sommes petits et humbles que nous n’avons pas peur d’appeler à l’aide notre Père. Si vous avez fait l’expérience de ce secours, vous savez de quoi je suis en train de parler. Nous avons besoin d’apprendre à replacer notre espérance en Lui, conscients qu’il est toujours là présent, pour nous. Il nous infuse confiance et courage. Mais – et c’est important – ce serait une erreur de ne pas partager cette belle expérience avec les autres. Nous nous tromperions si nous ne devenions pas des messagers d’espérance pour les autres.
+
+Une “flaque d’eau” particulière peut faire peur aux jeunes qui souhaitent grandir dans l’amitié avec le Christ. C’est la peur d’échouer dans l’engagement pris à aimer, surtout dans ce grand et sublime idéal qu’est le mariage chrétien. On peut avoir peur de ne pas réussir à être une bonne épouse et une bonne mère, un bon époux et un bon père. Si on continue à regarder la flaque, on peut même voir ses propres faiblesses et ses peurs se refléter sur soi. S’il vous plaît, ne vous rendez pas face à elles ! Parfois ces peurs proviennent du diable, qui ne veut pas que vous soyez heureux. Non ! Appelez Dieu à l’aide, ouvrez-lui votre cœur et il vous soulèvera, il vous prendra entre ses bras, et il vous montrera comment aimer. Je demande en particulier aux jeunes couples de cultiver la confiance que Dieu veut bénir votre amour et vos vies par sa grâce, dans le sacrement du Mariage. Au cœur du mariage chrétien, il y a le don de l’amour de Dieu, non l’organisation de fêtes somptueuses qui obscurcissent souvent la profonde signification spirituelle d’une joyeuse célébration avec les proches et les amis.
+
+Enfin, une “flaque d’eau” que nous devons tous affronter est la peur d’être différents, d’aller à contre-courant dans une société qui nous pousse constamment à embrasser des modèles de satisfaction et de consommation étrangers aux valeurs profondes de la culture africaine. Pensez : que diraient les Martyrs de l’Ouganda au sujet de la mauvaise utilisation des moyens modernes de communication, où les jeunes sont exposés à des images et à des visions déformées de la sexualité, qui dégradent la dignité humaine, conduisant à la tristesse et au vide intérieur ? Quelles seraient les réactions des Martyrs ougandais devant la croissance de l’avidité et de la corruption dans la société ? Certainement, ils vous demanderaient d’être des modèles de vie chrétienne, confiants que l’amour du Christ, la fidélité à l’Évangile et la sage utilisation des dons que Dieu vous a donnés ne puissent qu’enrichir, purifier et élever la vie de ce pays. Ils continuent à vous montrer la route. N’ayez pas peur de faire en sorte que la lumière de la foi resplendisse dans vos familles, dans les écoles et dans les lieux de travail. N’ayez pas peur d’entrer humblement en dialogue avec les autres, qui peuvent voir les choses de façons différentes.
+
+Chers jeunes, chers amis, regardant vos visages je suis plein d’espérance : espérance pour vous, pour votre pays et pour l’Église. Je vous demande de prier pour que l’espérance que vous avez reçue de l’Esprit Saint continue d’inspirer vos efforts pour grandir en sagesse, en générosité et en bonté. N’oubliez pas d’être des messagers de cette espérance ! Et n’oubliez pas que Dieu vous aidera à traverser toutes les flaques d’eau que vous rencontrerez le long du chemin !
+
+Mettez votre espérance dans le Christ et il vous rendra capables de trouver le véritable bonheur. Et s’il vous est difficile de prier et d’espérer, n’ayez pas peur de vous tourner vers Marie, parce qu’elle est notre Mère, la Mère de l’espérance. Enfin, s’il vous plaît, n’oubliez pas de prier pour moi. Que Dieu vous bénisse !

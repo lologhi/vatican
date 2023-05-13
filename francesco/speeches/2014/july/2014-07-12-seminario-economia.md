@@ -1,0 +1,15 @@
+**PAROLES DU SAINT-PÈRE**
+
+**AU TERME DU DÉJEUNER AVEC LES PARTICIPANTS AU SÉMINAIRE INTERNATIONAL**
+
+**SUR LA PROPOSITION DU PAPE FRANÇOIS DANS SON EXHORTATION APOSTOLIQUE**
+
+***EVANGELII GAUDIUM* « POUR UNE ÉCONOMIE TOUJOURS PLUS INCLUSIVE »**
+
+*Casina Pio IV au Vatican*
+
+*Samedi 12 juillet 2014*
+
+Je remercie Monsieur le cardinal-président pour ses paroles, je vous remercie pour votre compagnie, pour votre invitation, pour votre travail. Ce que vous faites est si important : réfléchir sur la réalité, mais réfléchir sans peur, réfléchir avec intelligence. Sans peur et avec intelligence. Et cela est un service.
+
+L’un de vous me parlait des trois réductionnismes, mais je ne parlerai que du premier : le réductionnisme anthropologique. Je crois que ce moment est le temps le plus fort du réductionnisme anthropologique. Il arrive à l’homme ce qui arrive au vin lorsqu’il devient eau-de-vie : il passe par un alambic d’organisation. Ce n’est plus du vin, c’est une autre chose : sans doute plus utile, plus qualifié, mais ce n’est pas du vin ! Pour l’homme, c’est la même chose : l’homme passe par cet alambic et finit — et cela je le dis sérieusement ! — par perdre son humanité et devient un instrument du système, système social, économique, système où dominent les déséquilibres. Lorsque l’homme perd son humanité, qu’est-ce qui nous attend ? Il arrive ce que j’ai envie de dire dans un langage courant : une politique, une sociologie, une attitude « du déchet »: on met au rebut ce qui ne sert pas, parce que l’homme n’est pas au centre. Et lorsque l’homme n’est pas au centre, il y a une autre chose au centre et l’homme est au service de cette autre chose. L’idée est donc de sauver l’homme, pour qu’il retourne au centre : au centre de la société, au centre des pensées, au centre de la réflexion. Apporter l’homme, une nouvelle fois, au centre. Et cela est un beau travail, et vous le faites. Je vous remercie pour ce travail. Vous étudiez, vous réfléchissez, vous faites ces congrès pour cela, afin que l’homme ne soit pas mis au rebut. On met au rebut les enfants, parce que le taux de natalité — tout au moins ici, en Europe — nous le connaissons tous ; on met au rebut les personnes âgées, parce qu’elles ne servent pas. Et à présent ? On met au rebut toute une génération de jeunes, et cela est très grave ! J’ai vu des statistiques : 75 millions de jeunes, de moins de 25 ans, sans travail. Les jeunes « ni-ni »: ni ils n’étudient, ni ils ne travaillent. Ils n’étudient pas parce qu’ils n’en ont pas la possibilité, ils ne travaillent pas parce qu’il n’y a pas de travail. C’est un autre rebut ! Quel sera le prochain déchet ? Arrêtons-nous à temps, s’il vous plaît ! Je vous remercie. Je vous remercie pour l’aide que vous apportez par votre travail, par votre ré flexion pour rétablir cette situation déséquilibrée et pour retrouver l’homme et le ramener au centre de la réflexion et au centre de la vie. Il est le roi de l’univers ! Et cela n’est pas de la théologie, ce n’est pas de la philosophie — c’est une réalité humaine. Avec cela, nous irons de l’avant. Merci, merci vraiment beaucoup. Merci !

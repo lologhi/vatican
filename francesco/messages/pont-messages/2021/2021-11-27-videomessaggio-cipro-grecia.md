@@ -1,0 +1,19 @@
+***MESSAGE VIDÉO DU PAPE FRANÇOIS***
+
+***À LA VEILLE DE SON [VOYAGE APOSTOLIQUE À CHYPRE ET EN GRÈCE](https://www.vatican.va/content/francesco/it/travels/2021/outside/documents/cipro-grecia-2021.html)***
+
+[2-6 décembre 2021]
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/11/27/videomessaggio-cipro-grecia.html)]**
+
+* * *
+
+Quelques jours nous séparent de notre rencontre et je me prépare à venir en pèlerinage sur vos terres magnifiques, bénies par l’histoire, par la culture et par l’Evangile ! Je viens avec joie, précisément au nom de l’Evangile, sur les traces des premiers grands missionnaires, en particulier des apôtres Paul et Barnabé. Il est beau de revenir à l’origine et c’est important pour l’Eglise, pour retrouver la joie de l’Evangile. C’est dans cet esprit que je me prépare à ce *pèlerinage aux sources*, que je demande à chacun de m’aider à préparer par la prière.
+
+En vous rencontrant, je pourrai étancher ma soif aux *sources de la fraternité*, si précieuses alors que nous venons d’entamer un chemin synodal universel. Il y a « une grâce synodale », une fraternité apostolique que je désire tant et avec un grand respect : c’est l’attente de rendre visite aux chères béatitudes Chrysostome et Hiéronyme, chefs des Eglises orthodoxes locales. En tant que frère dans la foi, j’aurai la grâce d’être reçu par vous et de vous rencontrer au nom du Seigneur de la paix. Et je viens à vous, chers frères et sœurs catholiques, rassemblés dans ces terres en petits troupeaux que le Père aime si tendrement et auxquels Jésus le Bon Pasteur répète : « Sois sans crainte, petit troupeau » (Lc 12, 32). Je viens avec affection vous apporter les encouragements de toute l’Eglise catholique.
+
+Vous rendre visite me donnera aussi l’occasion de boire aux *sources antiques de l’Europe*: Chypre, rejeton de la Terre Sainte sur le continent ; la Grèce, patrie de la culture classique. Mais aujourd’hui encore, l’Europe ne peut ignorer la Méditerranée, mer qui a vu se répandre l’Evangile et se développer de grandes civilisations. La *mare nostrum*, qui relie tant de terres, nous invite à naviguer ensemble, à ne pas se diviser en allant chacun sur son propre chemin, surtout en cette période où la lutte contre la pandémie exige encore beaucoup d’efforts et où la crise climatique menace l’horizon.
+
+La mer, qui embrasse de nombreux peuples, nous rappelle, par ses ports ouverts, que les sources de la coexistence résident dans l’accueil réciproque. Dès maintenant, je me sens accueilli par votre affection et je remercie tous ceux qui préparent ma visite depuis un certain temps. Mais je pense aussi à ceux qui, ces dernières années et encore aujourd’hui, fuient les guerres et la misère, débarquent sur les côtes du continent et d’ailleurs, et ne trouvent pas d’hospitalité, mais de l’hostilité et sont aussi instrumentalisés. Ce sont nos frères et sœurs. Combien ont perdu la vie en mer ! Aujourd’hui « notre mer », la Méditerranée, est un grand cimetière. Pèlerin aux *sources de l’humanité*, je me rendrai une nouvelle fois à Lesbos, convaincu que les sources de la vie en commun ne refleuriront que dans la fraternité et l’intégration : ensemble. Il n’y a pas d’autre voie, et c’est avec cette « illusion » [désir] que je viens chez vous.
+
+Chers frères et sœurs, c’est avec ces sentiments que j’ai hâte de vous rencontrer tous, tous ! Pas seulement les catholiques, tous ! Et sur tous, j’invoque la bénédiction du Très-Haut, alors que je porte déjà devant Lui vos visages et vos attentes, vos préoccupations et vos espérances. *Na íste pánda kalá! [Puissiez-vous toujours aller bien !]*

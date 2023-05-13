@@ -1,0 +1,33 @@
+VOYAGE APOSTOLIQUE À SAINT-DOMINGUE
+
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AUX ÉVÊQUES ET AUX FIDÈLES DE LA RÉPUBLIQUE DE HAÏTI***
+
+*Mardi 13 octobre 1992*
+
+*Chers Frères dans l’épiscopat,*
+
+*Chers Frères et Sœurs,*
+
+1. Les célébrations du Vème centenaire de l’évangélisation de votre continent ont dirigé une fois encore mes pas vers le nouveau monde et j’en ressens une sincère émotion.
+
+Je suis très touché que vous soyez venus à ma rencontre : votre geste constitue un témoignage éloquent de la vivacité des liens d’affection qui unissent l’Église en Haïti au Successeur de Pierre. Je vous remercie vivement de m’avoir apporté le salut du peuple haïtien.
+
+À plusieurs reprises déjà, et dans un passé récent, je n’ai pas manqué de vous faire savoir combien je demeure proche de vous, alors que votre pays n’en finit pas d’aller de période douloureuse en période douloureuse, vous jetant dans l’inquiétude et dans l’angoisse. Comme le Bon Samaritain de l’Évangile, m’arrêtant sur le chemin, je voudrais vous exprimer une fois encore ma profonde compassion et vous apporter du réconfort, à vous qui êtes atteints par de cruelles épreuves que, de mon côté, avec mes collaborateurs, je cherche à adoucir.
+
+Devant Dieu, je porte les souffrances des uns et des autres : je prie pour ceux qui sont poussés à fuir vers d’autres cieux, pour ceux qui se sentent persécutés, pour ceux qui sont dans le désarroi, sans travail ou sans sécurité, et pour toutes les personnes dont les droits sont bafoués. Je demande au Seigneur de soutenir l’action de ceux qui, restant sur place, s’efforcent, avec les moyens dont ils disposent, de renoncer à la logique de la violence et d’établir un climat de tolérance et de paix, pour plus de justice. Je souhaite que, loin de vous sentir abandonnés, vous soyez assurés de la sollicitude du Pape qui voudrait tant que vous ne perdiez pas le goût de vivre, mais que vous poursuiviez votre engagement pour sauvegarder votre sol, pour procurer à vos enfants l’indispensable scolarité qui les aidera à faire face à la vie et à devenir eux–mêmes les artisans de leur développement.
+
+2. En cette année 1992, qui marque les 500 ans de l’arrivée chez vous de la Bonne Nouvelle du Christ, vous êtes invités, avec vos frères et sœurs d’Amérique latine, à porter un regard neuf sur la personne de notre Rédempteur, Sauveur des hommes et Source de vie. Comme l’exprime le thème de la IVème conférence générale de l’épiscopat latino-américain, que j’ai eu la joie d’inaugurer hier, « Jésus-Christ est le même hier, aujourd’hui et toujours » ( *Hebr.* 13, 8). Il vous aime et il dirige vos vies dans son mystérieux dessein.
+
+Sous la conduite de vos pasteurs, vous êtes encouragés à faire preuve d’un élan nouveau pour mieux accueillir et mieux connaître la Parole de Dieu, afin qu’elle soit votre règle de vie. Ainsi, vous consoliderez l’œuvre d’évangélisation commencée voici cinq siècles par les premiers missionnaires. Vous êtes appelés à mettre vos pas dans les pas du Christ pour répandre la lumière de la foi dans vos diocèses d’Haïti et pour la faire rayonner au-delà.
+
+3. Vous le savez : c’est le Christ qui libère l’homme et lui fait atteindre sa pleine stature et sa maturité. Je souhaite qu’en Haïti, à l’instar des autres pays latino-américains, se déploient une grande impulsion apostolique et une vaste créativité catéchétique afin que les baptisés connaissent mieux la foi chrétienne et donnent de réels fruits de sainteté. Je souhaite aussi que se développe un souci profond de l’homme, que l’on s’applique à incarner l’Évangile dans la culture populaire, notamment que l’on s’aide mutuellement à établir et à entretenir des relations vraiment humaines. Dieu veut que ses enfants vivent dans la paix et qu’ils obtiennent ce dont ils ont besoin pour mener leur existence dans le respect et dans la dignité. Il veut que nous changions notre regard sur les autres, que nous reconnaissions dans nos frères et sœurs des personnes créées à l’image de Dieu, appelées à vivre avec le Père. En définitive, il s’agit d’obtenir que les fils et les filles de cette terre haïtienne témoignent activement de l’Évangile et sachent rendre compte de l’espérance qui est en eux (cfr. *1 Petr.* 3, 15).
+
+4. Vous avez, vous chrétiens, le désir de travailler en commun, dans le dialogue. Pourquoi ne pas en finir avec les divisions stériles ? Pourquoi ne pas rassembler vos énergies en vue de poursuivre l’édification d’une Église qui, par sa cohésion, sème l’espoir autour d’elle ? En vivant la communion ecclésiale, vous contribuerez, par voie de conséquence, à la construction d’une société de solidarité, de vérité, de justice, de fraternité et d’amour, dont Haïti a besoin. Dans le sillage des évangélisateurs du passé, vous serez alors vous-mêmes les messagers de la Bonne Nouvelle pour le monde d’aujourd’hui.
+
+D’une manière qui se voudrait pressante, je vous exhorte à rester unis autour de vos évêques ; je partage avec eux le souci de votre Église et ils ont toute ma confiance. Je laisse à votre méditation ces fortes recommandations de saint Ignace d’Antioche : « De même donc que le Seigneur n’a rien fait, ni par lui-même, ni par ses Apôtres, sans son Père, avec qui il ne fait qu’un, ainsi vous-mêmes ne faites rien sans l’évêque et les presbytres. N’essayez pas de donner une apparence de raison à vos activités privées, mais faites tout en commun : une seule prière, une seule supplication, un seul esprit, une seule espérance dans la charité, dans la joie irréprochable ; cela, c’est Jésus-Christ, qui est au-dessus de tout » (S. Ignatii Antiocheni *Ad Magnesios*, VIII, 1).
+
+5. L’année 1992 marque également pour vous le 50ème anniversaire de la consécration de votre cher pays à Notre-Dame du Perpétuel Secours. Puissiez-vous renouveler à Marie votre offrande en tant que peuple, avec son histoire, sa culture, ses talents, ainsi que ses durs labeurs et ses espérances ! Que Marie continue à être présente dans vos vies et qu’elle vous aide à cheminer dans la foi vers Jésus son Fils !
+
+En concluant, je forme le vœu que l’Église en Haïti soit plus que jamais une force spirituelle à l’influence grandissante, et cela grâce à son inébranlable unité. Pour vous encourager dans cet important dessein, de grand cœur je vous donne ainsi qu’à tous vos frères et sœurs du pays, et très particulièrement à ceux et à celles qui souffrent dans leur chair ou dans leur esprit, ma Bénédiction Apostolique.

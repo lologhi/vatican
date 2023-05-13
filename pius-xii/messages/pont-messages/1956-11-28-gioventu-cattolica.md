@@ -1,0 +1,27 @@
+***MESSAGE DE SA SAINTETÉ PIE XII*** ***À L'OCCASION DE LA IIIe ASSEMBLÉE DE***
+
+***LA FÉDÉRATION INTERNATIONALE DE LA JEUNESSE CATHOLIQUE****
+
+La troisième Assemblée Générale de la Fédération Internationale de la Jeunesse Catholique, qui se tient prochainement à Rome, Nous offre une occasion que Nous saisissons avec joie d'adresser à ses dirigeants et aux délégués de divers pays qui doivent y participer Nos encouragements et Nos vœux paternels.
+
+Nous le faisons d'autant plus volontiers que vous représentez à Nos yeux, chers jeunes, la foule innombrable de Nos fils de toutes nations qui, animés d'une même foi et d'un même zèle pour la cause de Dieu, militent au sein des organisations catholiques de jeunesse ou portent dans le silence le témoignage, parfois héroïque, de leur fidélité au Seigneur. Les uns et les autres sont la fierté de l'Eglise ; mais ils sont aussi, dans le monde, l'espoir de la génération nouvelle. Rarement, en effet, génération fut atteinte par d'aussi profonds et vastes remous qui soulèvent les peuples, ébranlent les civilisations ; déchainent les passions et sapent les valeurs les plus sacrées de la morale et de la religion. Comment ne serions-Nous pas saisi de compassion à la pensée de tant de jeunes d'aujourd'hui, qui, « comme des brebis sans berger », grandissent dans l'inquiétude et le doute ou sont livrés sans défense à l'emprise des propagandes mensongères ?
+
+Comme cadre de votre activité, les Statuts de votre Fédération prévoient à juste titre que chaque Organisation nationale et les divers Mouvements spécialisés jouissent, pour leur apostolat, d'une réelle liberté d'action sous l'autorité des Pasteurs responsables. Mais, plus encore que ces légitimes et nécessaires franchises, aimez, chers fils, les liens fraternels qui vous rassemblent, au sein de la grande famille catholique, pour un même service de l'Eglise. Ravivez en vos âmes la conscience de votre commune appartenance au Corps du Christ, dont vous êtes les membres ; ayez ensemble le sens de l'honneur catholique, fait d'amour et d'admiration pour notre Mère, la sainte Eglise, et appliquez-vous d'un cœur unanime à étendre dans le monde son action salvatrice ; nourrissez et développez en vos esprits, par une généreuse application à l'étude de la foi, l'intelligence du mystère chrétien, tel que vous aimez le proclamer par le chant du Credo ; en un mot, gardez, comme la perle précieuse de l'Evangile, le « sentire cum Ecclesia », qui vous unit tous autour du Vicaire du Christ et vous met à l'abri d'une périlleuse dispersion de forces.
+
+En un temps où les nationalismes s'exacerbent dangereusement, cette union fraternelle des jeunes catholiques, — dans le respect de l'attachement de chacun à sa patrie, à sa race, à sa culture, — est pour Notre cœur de Père un précieux réconfort. N'est-on pas en droit d'y voir un puissant moyen de guérir les plaies des guerres, de réconcilier et de pacifier les peuples ? En un siècle, surtout, si cruellement marqué par une lutte gigantesque contre la religion, quelle lumineuse espérance fait luire cette volonté commune de jeunes gens de toutes nations, qui entendent proclamer, par leur vie et leur action, les droits souverains de Dieu : « car c'est de lui, par lui et pour Lui que toutes choses existent ! » ( *Rom*. 2, 36).
+
+Telles sont les perspectives qui orienteront les travaux de votre prochaine Assemblée, et notamment l'examen du thème principal d'étude : l'éducation à la vie spirituelle et ses relations avec la vie professionnelle et la culture moderne. Déjà, dans Notre allocution aux jeunes filles de la Fédération mondiale catholique, Nous leur avions donné sur ce point, il y a peu de mois, de paternelles directives qui peuvent aujourd'hui encore guider vos propres recherches. Nul doute que l'exacte fidélité aux devoirs de la vie spirituelle, que Nous ne saurions trop vous recommander, ne vous engage sur la voie d'un apostolat fécond au service de vos frères dans le milieu où la Providence vous aura placé: « N'est-ce pas, disions-Nous récemment, le Seigneur qui se rend alors présent en chacun de ses membres ?... Jeter sur le monde un regard identique au sien, partager les intentions qui l'animaient, son désir immense de rédemption, telle est la démarche spontanée de qui vit en lui et par lui ». ( *Discours à « Rinascita Cristian* a », O. R. 8 novembre 1956).
+
+Dieu veuille enfin exaucer l'instante prière qui monte de Nos lèvres, tandis que Nous vous adressons ce Message, chers fils. Qu'il daigne appeler à ce plus haut service, qu'est le sacerdoce, un nombre toujours plus grand d'entre vous, car, en tous lieux, la moisson est immense, qui attend les ouvriers apostoliques ! Et comment des fils aimants de l'Eglise, ouverts aux besoins du monde, formés dès l'adolescence à la vie spirituelle, ne répondraient-ils pas généreusement à l'appel d'En-Haut ? C'est en formulant ce vœu que, d'un cœur paternel, Nous vous accordons à tous, dirigeants, aumôniers et membres de la Fédération Internationale de la Jeunesse Catholique, Notre Bénédiction Apostolique.
+
+*Du Vatican, le 8 Décembre 1956.*
+
+**PIUS PP. XII**
+
+* * *
+
+**Discours et Radiomessages de Sa Sainteté Pie XII*, XVIII,
+
+Dix-huitième année de Pontificat, 2 mars 1956 - 1er mars 1957, pp. 895 - 897
+
+Typographie Polyglotte Vaticane

@@ -1,0 +1,31 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Place Saint-Pierre*
+
+*Mercredi 4 décembre 2013*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_5E79CKUQ)**
+
+*Chers frères et sœurs, bonjour !*
+
+Aujourd’hui, je reviens encore sur l’affirmation : « Je crois en la résurrection de la chair ». Il s’agit d’une vérité qui n’est pas simple et certainement pas évidente car, en vivant plongés dans ce monde, il n’est pas facile de comprendre les réalités futures. Mais l’Évangile nous illumine : notre résurrection est étroitement liée à la résurrection de Jésus ; le fait qu’Il est ressuscité est la preuve que la résurrection des morts existe. Je voudrais alors présenter certains aspects qui concernent le rapport entre la résurrection du Christ et notre résurrection. Il est ressuscité, et parce qu’il est ressuscité, nous aussi, nous ressusciterons.
+
+Avant tout, l’Écriture Sainte elle-même contient *un chemin vers la pleine foi en la résurrection des morts*. Celle-ci s’exprime comme foi en Dieu créateur de tout l’homme — âme et corps — et comme foi en Dieu libérateur, le Dieu fidèle à l’alliance avec son peuple. Le prophète Ezéchiel, dans une vision, contemple les sépulcres des déportés qui sont rouverts et les os desséchés qui revivent grâce à l’infusion d’un esprit vivifiant. Cette vision exprime l’espérance dans la future « résurrection d’Israël », c’est-à-dire dans la renaissance du peuple vaincu et humilié (cf. *Ez* 37, 1-14).
+
+Jésus, dans le Nouveau Testament, porte à son accomplissement cette révélation et lie la foi en la résurrection à sa propre personne, en disant : « Je suis la résurrection et la vie » ( *Jn* 11, 25). En effet, c’est le Seigneur Jésus qui ressuscitera le dernier jour ceux qui auront cru en Lui. Jésus est venu parmi nous, il s’est fait homme comme nous en tout, à l’exception du péché; de cette façon, il nous a pris avec lui sur son chemin de retour au Père. Lui, le Verbe incarné, mort pour nous et ressuscité, donne à ses disciples l’Esprit Saint comme acompte de la pleine communion dans son Royaume glorieux, que nous attendons vigilants. Cette attente est la source et la raison de notre espérance : une espérance qui, si elle est cultivée et gardée — notre espérance, si nous la cultivons et la gardons — devient lumière pour illuminer notre histoire personnelle et également l’histoire communautaire. Souvenons-nous en toujours : nous sommes disciples de Celui qui est venu, qui vient chaque jour et qui viendra à la fin. Si nous réussissons à garder cette réalité plus présente à l’esprit, nous serons moins fatigués par le quotidien, moins prisonniers de l’éphémère et plus disposés à marcher avec un cœur miséricordieux sur la voie du salut.
+
+Un autre aspect : *que signifie ressusciter ?* Notre résurrection à tous aura lieu le dernier jour, à la fin du monde, par l’œuvre de la toute-puissance de Dieu, qui restituera la vie à notre corps en le réunissant à l’âme, en vertu de la résurrection de Jésus. Telle est l’explication fondamentale : parce que Jésus est ressuscité, nous ressusciterons, nous avons l’espérance dans la résurrection parce qu’Il nous a ouvert la porte à cette résurrection. Et cette transformation, cette transfiguration de notre corps est préparée dans cette vie par la relation avec Jésus dans les Sacrements, en particulier l’Eucharistie. Nous qui dans cette vie sommes nourris par son Corps et par son Sang, nous ressusciterons comme Lui, avec Lui et à travers Lui. Comme Jésus est ressuscité avec son corps, mais n’est pas retourné à une vie terrestre, ainsi, nous ressusciterons avec nos corps qui seront transfigurés en corps glorieux. Mais ce n’est pas un mensonge ! Cela est vrai. Nous croyons que Jésus est ressuscité, que Jésus est vivant en cet instant. Mais vous, vous croyez que Jésus est vivant ? Et si Jésus est vivant, pensez-vous qu’il nous laissera mourir et qu’il ne nous ressuscitera pas ? Non ! Il nous attend, et parce qu’Il est ressuscité, la force de sa résurrection nous ressuscitera tous.
+
+Un dernier élément : *dans cette vie déjà, nous avons en nous une participation à la Résurrection du Christ*. S’il est vrai que Jésus nous ressuscitera à la fin des temps, il est également vrai que, sous un certain aspect, nous sommes déjà ressuscités avec Lui. La vie éternelle commence déjà en ce moment, elle commence tout au long de la vie, qui est orientée vers ce moment de la résurrection finale. Et nous sommes déjà ressuscités, en effet, à travers le Baptême, nous sommes insérés dans la mort et la résurrection du Christ et nous participons à la vie nouvelle, qui est sa vie. C’est pourquoi, en attendant le dernier jour, nous avons en nous-mêmes une semence de résurrection, comme anticipation de la résurrection pleine que nous recevrons en héritage. C’est pour cela également que le corps de chacun de nous est un écho d’éternité, et doit donc toujours être respecté ; et surtout, la vie de tous ceux qui souffrent doit être respectée et aimée, afin qu’ils sentent la proximité du Royaume de Dieu, de cette condition de vie éternelle vers laquelle nous nous acheminons. Cette pensée nous donne espérance : nous sommes en chemin vers la résurrection. Voir Jésus, rencontrer Jésus : telle est notre joie ! Nous serons tous ensemble — pas ici sur la place, ailleurs — mais joyeux avec Jésus. Tel est notre destin !
+
+* * *
+
+Je salue cordialement les pèlerins de langue française, en particulier les religieuses en formation au Centre International d’Animation Missionnaire. Que votre pèlerinage au tombeau des Apôtres vous aide à faire grandir votre foi en la résurrection ! Bon pèlerinage à Rome.
+
+* * *
+
+APPEL
+
+Je désire à présent inviter chacun à prier pour les religieuses du monastère grec-orthodoxe de Sainte-Thècle, à Maaloula, en Syrie, qui ont été enlevées de force il y a deux jours par des hommes armés. Prions pour ces sœurs et pour toutes les personnes séquestrées à cause du conflit en cours. Continuons à prier et à œuvrer ensemble pour la paix. Prions la Vierge (Je vous salue Marie...).

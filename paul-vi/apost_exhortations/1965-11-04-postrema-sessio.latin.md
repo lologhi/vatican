@@ -1,0 +1,63 @@
+PAULUS PP. VI
+
+ADHORTATIO APOSTOLICA
+
+***POSTREMA SESSIO****
+
+AD UNIVERSOS EPISCOPOS PACEM ET COMMUNIONEM CUM APOSTOLICA SEDE HABENTES :
+
+SUPPLICATIONES INDICUNTUR INSTANTE EXITU
+
+CONCILII OECUMENICI VATICANI SECUNDI
+
+*Venerabiles fratres, salutem et apostolicam benedictionem.*
+
+Postrema Sessio Concilii Oecumenici Vaticani II iam ad exitum properat. Mox amplissimus huiusmodi dimittetur Consessus, qui quattuor ante annos apud Sancti Petri Apostoli sepulcrum congregatus est, ut exspectationi, optatis et gravioribus urgentioribusque christiani populi necessitatibus consuleret. Ac vos, Venerabiles Fratres, ad vestras tandem redibitis sedes, post diuturnum frugiferumque laborem, gaudio iure merito exsultantes, quod, vestra opera, salutaria instrumenta apparata sunt, ad veram Ecclesiae renovationem et christianorum omnium unitatem promovendam, atque ad pacem humanarumque rerum ordinem digniore ratione componenda.
+
+Dum Oecumenica Synodus, laboribus fere absolutis, in eo est ut novam quandam uberem spiritualis vitae effusionem Ecclesiae et mundo afferre videatur, facere non possumus, quin christifideles ad crebriores instantioresque supplicationes Deo admovendas paterno animo adhortemur. Cupimus, Venerabiles Fratres, ut flagrantissimum illud precationis studium, ad quod Ecclesiae filios per Concilii decursuin iterum iterumque compulimus, nedum deferveat, hoc potissimum tempore, quo Concilii opus concluditur, impensius exardescat ; ita quidem, ut, hisce diebus, tota Ecclesia per universum terrarum orbem in unum collecta, sicut olim Apostoli una cum Maria Matre Iesu et nostra in Cenaculo (1),  cum Petri Apostolorumque successoribus ferventibus precibus consocietur, ad novam impetrandam Pentecosten, qua Christi Sponsae vultus hominumque societas Spiritus Sancti gratia salutariter renovetur.
+
+Ac primum dignae Omnipotenti Deo gratiae referantur, qui toto Concilii celebrationis tempore, superna ope sua caelestiumque luminum copia numquam destitit Oecumenicae Synodo praesens adesse. Revera, si spectamus immensam laboris molem, quam Concilium hucusque absolvit, admiratione sane percellimur, sive ob complura doctrinae capita a Magisterio Ecclesiae extraordinario proposita, sive ob disciplinae normas sapienter impertitas, quae quidem, ecclesiastica traditione fideliter servata, actioni Ecclesiae nova patere iubent itinera, et ad animorum bonum procul dubio summopere conferent.
+
+Si vero animum intendimus ad communem existimationem, qua profani homines Concilii celebrationem prosecuti sunt, non minore laetitia afficimur, cum animadvertamus Oecumenicam Synodum tantopere hominum studia et cogitationes ad se convertisse, adeo ut Ecclesiae quaestiones et praecepta nostris temporibus maximi momenti esse videantur apud omnes egregiae voluntatis viros, qui sincero animo veritatem anquirant et germanae hominum prosperitati prodesse studeant ; quod quidem Ecclesiae opportunitatem praebet frugiferi colloquii cum mundo ineundi, scilicet cum cuiusvis religionis et cuiusvis civilis cultus populis atque hominibus, ut sociam conferre possit operam ad tuenda vera hominum bona et ad humanas quaestiones secundum evangelicam doctrinam aptius dissolvendas.
+
+Profecto Catholica Ecclesia coram omnibus gentibus clarissimo lumine fulgere visa est, veluti civitas supra montem posita (2), veritatum divinarum humanaeque dignitatis custos invicta. Neque ardua res est, animo iam praecipere futura religiosae rei incrementa, quae inde secutura sunt, cum nempe populus Dei sacro illo spiritualis renovationis afflatu, quem Concilium in Ecclesia excitavit, magis magisque imbutus fuerit.
+
+Haec omnia, dum suavissimo solacio eos omnes afficiunt, quorum opera « multiformis gratia Dei » (3) ad christifidelium animos ubertim affluxit, simul tamen nos iubent omni ope contendere, ne ullo impedimento remoretur illud quasi exundans caelestium gratiarum flumen, quod in praesens « laetificat civitatem Dei » (4), neve vitales spiritus ; quibus hodie fervet Ecclesia, ullo modo remittant. Quod sane contingere possit, si, post transactum disceptationum condendarumque legum tempus, remissius subinde evadat apostolicum sacrorum Pastorum studium, iidemque non satis attendant, ut oportet, ad munera illius temporis propria, quod Concilii celebrationem subsequetur. Nam felix Concilii exitus eiusque saluberrimi in Ecclesiae vita fructus, potius quam a multiplicitate legum, a studio et industria verius pendebunt, quibus in posterum opera dabitur iisdem legibus ad effectum deducendis. Scilicet opus erit praesertim christifidelium prudenter componere animos ad novas excipiendas normas ; eorum inertiam excitare, qui novo rerum cursui se accommodare renuant ; compescere aliorum intemperantiam, qui plus aequo privatis novitatibus indulgeant, atque adeo incepto renovationis operi haud parum nocere possint ; disciplinae immutationem intra fines continere a legitima auctoritate praescriptos ; in omnium denique animis fiduciam erga sacros Pastores inculcare plenamque suadere oboedientiam, quae veri amoris erga Ecclesiam testimonium est, ac simul unitatis felicisque exitus tutissimum pignus.
+
+Satis est haec breviter attingere, Venerabiles Fratres, ut pateat officiorum gravitas et momentum, quae vos posthac manent. Immensae sane molis opus iam est aggrediendum, quod prudentiam, perseverantiam, consiliorum sagacitatem al vobis quidem postulat ; at non minus postulat coniunctam operam, eamque promptam atque magnanimam, universi gregis qui unicuique vestrum concreditus est. Concilium Oecumenicum, enim, utpote quod ad omnium Ecclesiae filiorum spio, ritualem vitam pertineat, communi omnium opera carere nequaquam potest.
+
+In huiusmodi coniunctissimo nisu dubium non est, prae ceteris dilectissimos sacerdotes Pastoribus suis auxilio fore, eos praesertim qui animorum curationi sunt addicti. Concilium Oecumenicum, cum providas ediderit normas ad eos pertinentes, incomparabile ipsis instrumentum praebuit ad sacerdotii munera dignius et efficacius exercenda ; illud igitur volentes excipiant eodemque utantur, firmioribus usque animati propositis sanctitudinem assequendi et sacrum ministerium sollerti generosoque animo obeundi. E pastorali experientia Nostra probe compertum habemus, quot Christi operarii, sane dignissimi, naviter in excolendo Dominico agro desudent ; neque difficultates ac dolores ignoramus, quibus multorum vita est obnoxia, in solitudine, in paupertate atque inter infensos hominum animos tam saepe traducta. Noverint hi carissimi filii Nostri, Christi Vicarium ad eos cogitationes convertere ac pro iis assidue Deum orare ; eorum aerumnas, plerumque occultas, homines latere quidem posse, Deum autem non posse, qui ipsis dignam suorum laborum mercedem in caelis parat.
+
+Peculiari etiam fiducia pervolat mens Nostra ad magni pretii operam, quam universae religiosorum familiae in id ipsum conferent. A fiorenti enim vitae religiosae condicione Ecclesia magnam repetit partem vigoris sui, studii apostolici, ardoris sanctitatis adipiscendae. Ac si alias umquam, nunc cum maxime, Ecclesiae opus est testimonium publicum et sociale, quod religiosa vita impertitur, necnon auxilium dioecesano clero in apostolatu ferendum. Magis magisque igitur exempla praefulgeant eorum, qui mundo revera renuntiaverunt, atque adeo aperte demonstrant regnum Dei non esse de hoc mundo (5); neque apostolicum studium, quo ipsi incensi sunt, intra fines suae sodalitatis circumscribatur, sed ad omnes pateat spirituales necessitates, quibus aetas nostra misere laborat.
+
+Denique spem multam reponimus in christifidelibus e laicorum ordine apostolatui addictis, quos paterna benevolentia complectimur. Quod Concilium Oecumenicum de iis data opera agere voluit, eorumque locum et munera in Ecclesia fuse descripsit, id satis manifesto ostendit, quas magni momenti partes laicis hominibus iam tribuere oporteat. Ac revera pastoralis sacrorum administrorum navitas fines suos consequi nequit, nisi comitem habeat actionem laicorum hominum, quorum est Ecclesiae in sacro obeundo ministerio auxilium ferre, sacerdotes pro viribus supplere in iis locis qui cleri paucitate laborant, itemque novas vias rationesque reperire, quibus Ecclesia aptius atque efficacius nostrorum temporum hominibus salutis nuntium tradere valeat. Hos igitur filios Nostros paterno animo adhortamur, ut grandi huic Concilii Oecumenici horae pares se exhibeant, atque Ecclesiae spem et exspectationem in se collocatam alacriter adimpleant.
+
+Venerabiles Fratres, Nobis spes bona affulget, fore ut filii vestri in Christo, quemadmodum sollicitudines vestras de Concilii exitu hucusque precando, trepidando, sperando, gaudendo participarunt, ita, cum ad vestras redieritis sedes, generosis suae adiutricis operae propositis vos abunde laetificare velint. Immo vehementer optamus ut vobis in patriam redeuntibus minime desint publica honoris testimonia debitaeque grati animi significationes, ut sane postulat grande opus, quod cum prudentia, sapientia, sollertiaque maxima una Nobiscum absolvistis, utque eos addecet, qui Ecclesiae novas patefecerunt assequendas metas, ac simul dignitatis humanae, fraterni amoris, unitatis pacisque rectam semitam tanta cum auctoritate hominibus ostenderunt. Per vos spes magna in Ecclesia atque in mundo excitata est ; beati, qui ad eam alendam, roborandam, perficiendam vobis auxiliatricem operam praestabunt.
+
+Ad arduum autem summaeque gravitatis officium, quod post Concilium explendum vobis iniungitur, nostis, Venerabiles Fratres, quam impares sint hominis vires. Quare hoc tantummodo pacto exsecutio legum Concilii exoptatos afferet Ecclesiae fructus, si nempe Divini Redemptoris auxilium vestris nisibus accedat, qui dixit « Sine me nihil potestis facere » (6), et si actio Spiritus Sancti in posterum quoque sacrorum Pastorum animos penitus afficere, illustrare et corroborare pergat. Preces igitur — in quibus veluti vitalis Ecclesiae affiatus consistit — peculiari modo preces Spiritui Sancto adhibitae, cuius est sectatorum Christi gressus dirigere, officium declarant quod primum omnium hoc postremo Concilii tempore praecipitur. Hinc christifideles supernas hauriant vires ut terere valeant iter, quod spei plenum iam coram panditur ; ut omni cum obsequio Ecclesiae monitis pareant, quae filios suos nunc praesertim vult dociles in oboediendo, promptos in agendo, atque in rebus asperis perferendis, quae forte occurrant, magnanimos ; ut denique impetrent a Deo confertum sanctorum virorum agmen, qui instar Sancti Caroli Borromei, christiano populo exemplo et incitamento sint ad Concilii decreta fideliter exsequenda, quandoquidem ex his viris potissimum vera Ecclesiae renovatio, quam Concilium Oecumenicum vehementer cupit, tandem erit exspectanda.
+
+Quam ad rem statuimus, Venerabiles Fratres, ut antequam Concilio Oecumenico finis imponatur, in universis catholici orbis dioecesibus, paroeciis religiosisque communitatibus sollemnes supplicationes in triduum indicantur. Hae autem supplicationes, quae inter proxima novendialia in honorem Beatae Mariae Immaculatae habendae erunt, non modo spectare debent ad debitas persolvendas Deo grates atque ad nova poscenda superna munera, sed etiam opportunam occasionem praebere poterunt christifideles de novis suis muneribus monendi, eosque adhortandi, ut, inceptis vestris suas iungendo vires, in actionem christianae vitae sive privatae sive publicae salutaria Concilii Oecumenici praecepta alacriter traducant.
+
+Denique liceat Nobis, Venerabiles Fratres, hoc etiam optatum Nostrum significare vobis, ut scilicet a vobis ex Urbe opportuna monita et hortamenta de huiusmodi supplicationibus habendis vestris gregibus impertiantur ; et quidem ita rebus dispositis, ut cum in Vaticana Basilica sollemnis Concilii Oecumenici conclusio celebrabitur, eodem die eademque hora universa per orbem catholicorum familia cum Christi Vicario et cum suis sacris Pastoribus ferventer precando, una voce unoque animo coniuncta videatur.
+
+Hac spe suffulti, divinorum munerum auspicem ac benevolentiae Nostrae testem, vobis singulis universis, Venerabiles Fratres, et clero populoque vestris curis concreditis Apostolicam Benedictionem peramanter in Domino dilargimur.
+
+*Datum Romae, apud Sanctum Petrum, die IV Novembris, in festo S. Caroli Borromei, anno MCMLXV, Pontificatus Nostri tertio.*
+
+**PAULUS PP. VI**
+
+* * *
+
+*A.A.S., vol. LVII (1965), n.13, pp. 867-871
+
+(1) *Act*. 1, 14.
+
+(2) Cfr. *Matth*. 5, 14.
+
+(3) *1 Petr*. 4, 10.
+
+(4) *Ps*. 45, 5.
+
+(5) Cfr. *Io*. 18, 30.
+
+(6) *Io*. 15, 5.

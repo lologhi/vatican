@@ -1,0 +1,37 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS](http://w2.vatican.va/content/francesco/fr/travels/2016/outside/documents/papa-francesco-messico-2016.html) [EN GÉORGIE ET AZERBAÏDJAN](http://w2.vatican.va/content/francesco/fr/travels/2016/outside/documents/papa-francesco-georgia-azerbaijan-2016.html)
+
+(30 SEPTEMBRE - 2 OCTOBRE 2016)
+
+**RENCONTRE AVEC LES AUTORITÉ, LA SOCIÉTÉ CIVILE ET LE CORPS DIPLOMATIQUE**
+
+***DISCOURS*** ***DU SAINT-PÈRE***
+
+*Cours du Palais Présidentiel - Tbilissi*
+
+*Vendredi, 30 septembre 2016*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/9/30/georgia-autorita.html)]**
+
+* * *
+
+*Monsieur le Président,*
+
+*Distinguées Autorités,*
+
+*Illustres Membres du Corps Diplomatique*
+
+*Mesdames et Messieurs,*
+
+Je remercie le Dieu Tout-Puissant de m’avoir offert l’opportunité de visiter cette terre bénie, lieu de rencontre et d’échange vital entre cultures et civilisations, qui a trouvé dans le christianisme, depuis la prédication de sainte Nino au début du IVème siècle, sa plus profonde identité et le fondement sûr de ses valeurs. Comme l’a affirmé saint Jean-Paul II en visitant votre patrie : « Le christianisme est devenu le germe de la floraison successive de la culture géorgienne » ( *[Discours lors de la cérémonie de bienvenue](http://w2.vatican.va/content/john-paul-ii/fr/speeches/1999/november/documents/hf_jp-ii_spe_19991108_tbilisi-arrival.html)*, 8 novembre 1999 ; *Insegnamenti* XXII, 2 [1999], p. 841) ; et cette semence continue de produire ses fruits. En me rappelant avec gratitude notre rencontre au Vatican l’année dernière et les bonnes relations que la Géorgie a toujours maintenues avec le Saint-Siège, je vous remercie vivement, Monsieur le Président, pour votre aimable invitation et pour les paroles cordiales de bienvenue que vous m’avez adressées au nom des Autorités de l’État et de tout le peuple géorgien.
+
+L’histoire pluriséculaire de votre patrie manifeste son enracinement dans les valeurs exprimées par sa culture, par sa langue et par ses traditions, insérant le pays de plein droit et de manière féconde et spéciale dans l’alvéole de la civilisation européenne ; en même temps, comme le met en évidence sa position géographique, ce pays est presqu’un pont naturel entre l’Europe et l’Asie, une charnière qui facilite les communications et les relations entre les peuples, qui a rendu possibles au cours des siècles aussi bien les commerces que le dialogue et la confrontation des idées et des expériences entre des mondes différents. Comme l’exprime avec fierté votre hymne national : « Mon icône est ma patrie, […] de splendides montagnes et vallées sont partagées avec Dieu ». La patrie est comme une icône qui définit l’identité, trace les principaux traits et l’histoire, tandis que les montagnes, s’élançant libres vers le ciel, loin de constituer une muraille insurmontable, donne de la splendeur aux vallées, les distinguent et les mettent en relation, en les rendant différentes, chacune des autres, et toutes solidaires avec le ciel commun qui les surplombe et les protège.
+
+Monsieur le Président, vingt-cinq ans sont passés depuis la proclamation de l’indépendance de la Géorgie, qui durant cette période, en retrouvant sa pleine liberté, a construit et consolidé ses institutions démocratiques et a cherché les voies pour garantir un développement le plus inclusif et authentique possible. Tout cela non sans de grands sacrifices, que le peuple a courageusement affrontés pour s’assurer la liberté tant désirée. Je souhaite que le chemin de la paix et du développement se poursuive avec l’engagement solidaire de toutes les composantes de la société, de façon à créer les conditions de stabilité, d’équité et du respect de la légalité à même de favoriser la croissance et d’accroître les opportunités pour tous.
+
+Ce progrès authentique et durable a pour condition préliminaire indispensable la coexistence pacifique entre tous les peuples et les États de la région. Cela demande que s’accroissent les sentiments d’estime réciproque et de considération qui ne peuvent pas négliger le respect des prérogatives souveraines de chaque pays dans le cadre du droit international. Afin d’ouvrir des voies qui portent à une paix durable et à une vraie collaboration, il faut être conscient que les principes importants pour une relation juste et stable entre les États sont au service de la cohabitation concrète, ordonnée et pacifique entre les nations. En trop d’endroits de la terre, en effet, semble l’emporter une logique qui rend difficile le maintien des différences légitimes et des différends – qui peuvent toujours surgir – dans un environnement de débat et de dialogue civil où prévalent la raison, la modération et la responsabilité. Cela n’en est que plus nécessaire en ce moment historique, où ne manquent pas non plus les extrémismes violents qui manipulent et déforment des principes de nature civile et religieuse pour les asservir à des projets obscurs de domination et de mort.
+
+Il faut que chacun ait à cœur en premier lieu le sort de l’être humain dans sa dimension concrète et accomplisse avec patience tout effort [possible] pour éviter que les divergences débouchent sur des violences visant à provoquer d’énormes dégâts pour l’homme et la société. Toute distinction de caractère ethnique, linguistique, politique ou religieux, loin d’être utilisée comme prétexte pour transformer les divergences en conflits et les conflits en d’interminables tragédies, peut et doit être pour tous une source d’enrichissement réciproque en faveur du bien commun. Cela exige que chacun puisse mettre pleinement à profit ses spécificités propres, en ayant avant tout la possibilité de vivre en paix sur sa terre ou d’y retourner librement si, pour quelque motif, il a été contraint de l’abandonner. Je souhaite que les responsables publics continuent à avoir à cœur la situation de ces personnes, en s’engageant dans la recherche de solutions concrètes y compris en dehors des questions politiques non résolues. Il faut de la clairvoyance et du courage pour reconnaître le bien authentique des peuples et pour le poursuivre avec détermination et prudence, et il est indispensable d’avoir toujours sous les yeux les souffrances des personnes pour poursuivre avec conviction le chemin, patient et dur mais aussi passionnant et libérateur, de la construction de la paix.
+
+L’Église catholique – présente depuis des siècles dans ce pays et qui s’est distinguée en particulier par son engagement dans la promotion humaine et dans les œuvres caritatives – partage les joies et les inquiétudes du peuple géorgien et entend offrir sa contribution au bien-être et à la paix de la nation, en collaborant activement avec les Autorités et la société civile. Je souhaite vivement qu’elle continue à apporter sa contribution authentique à la croissance de la société géorgienne, grâce au témoignage commun de la tradition chrétienne qui nous unit, grâce à son engagement en faveur des plus démunis et à travers un dialogue renouvelé et accru avec l’antique Église Orthodoxe géorgienne et avec les autres communautés religieuses du pays.
+
+Que Dieu bénisse la Géorgie et lui donne paix et prospérité !

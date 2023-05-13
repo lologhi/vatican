@@ -1,0 +1,45 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***À M. BRUNO BOTTAI, AMBASSADEUR D’ITALIE***
+
+***PRÈS LE SAINT-S*** ***IÈGE****
+
+*Lundi 25 juin 1979*
+
+*Monsieur l’Ambassadeur,*
+
+Je vous suis vraiment reconnaissant des déférentes expressions d’hommage que vous avez voulu m’adresser en des termes si nobles, inspirés par des convictions profondes, au moment où, par les présentes lettres de créance, vous inaugurez votre mission d’ambassadeur extraordinaire et plénipotentiaire de la République italienne auprès du Saint-Siège.
+
+Ces expressions, malgré la brièveté imposée par la circonstance, m’invitent à évoquer, ne serait-ce qu’un fugitif instant, les mystérieuses rencontres historiques et les coïncidences providentielles qui, tout au long de l’ère chrétienne ont conduit à tisser des liens profonds entre la nation italienne et ce Siège apostolique. L’Italie s’est trouvée bénéficier d’une façon privilégiée de cette source de civilisation et d’élévation de la dignité de l’homme qu’est, dans l’esprit de son divin fondateur, l’Église catholique, laquelle à ici à Rome, le fondement visible de son unité dans la personne du vicaire du Christ.
+
+Depuis le moment où saint Pierre a abordé sur les rives du Tibre, ce fleuve chargé d’histoire, et a établi dans cette ville, déjà maîtresse incomparable de civilisation, sa chaire de pasteur « dell’Urbe e dell’Orbe » (de la ville et du monde), on peut bien dire qu’une profonde révolution spirituelle, commencée en Palestine, a rayonné dans le monde entier depuis ce pays.
+
+Comment ne pas souligner avec force et avec une satisfaction reconnaissante les causes et les circonstances qui — ainsi que vous l’avez délicatement rappelé — ont contribué à édifier, dans les limites d’une action conduite par des hommes, les valeurs spirituelles, morales et civiles qui valent au peuple italien d’être honoré, respecté et aimé dans le concert des nations ? Il ne s’agit certes pas de sous-estimer les multiples facteurs humains, qui ont leur incidence propre, mais de rappeler combien ceux-ci également, dans l’esprit de l’homme, ouvert par nature aux exigences et aux objectifs transcendants, sont redevables à la foi chrétienne. Celle-ci, en effet souvent d’une façon non explicite, avec une pédagogie toujours discrète, est tout entière ordonnée, en plus d’élever l’homme à l’ordre surnaturel, à libérer du plus profond de lui les potentialités les plus nobles, les plus riches.
+
+Humble chef de l’Église universelle, choisi de surcroît, par un inscrutable dessein, dans le monde slave, après une série ininterrompue de papes italiens pendant plusieurs siècles, au moment où j’accueille le nouvel ambassadeur d’une nation qui a été l’objet de desseins si particuliers, envahi par une marée de souvenirs, d’émotions, de pensées solennelles et graves, je ne puis, tout en rendant hommage aux vertus des Italiens, ne pas m’arrêter pour considérer les dons que Dieu a répandus à profusion sur ce pays.
+
+En raison de ses trésors de culture, d’art et de travail qui lui ont été généreusement donnés, au milieu des souffrances et des peines qui ont accompagné son histoire et son accession à l’unité, l’Italie est une grande patrie, un pays qui est entré dans les cœurs des hommes. Mais surtout, en raison de son histoire chrétienne, le pays que vous allez représenter a une noblesse de traditions, une richesse de valeurs spirituelles qui lui imposent des responsabilités et des devoirs particuliers. Le christianisme est présent dans son développement culturel, il a animé sa sensibilité sociale, il a imprégné la formation depuis des temps lointains, d’un sentiment national qui a soudé les différentes populations de la péninsule. Il m’est agréable de rappeler en ce moment les grandes figures religieuses de l’Italie comme saint Benoît, saint François, sainte Catherine, Don Bosco et Don Orione. Témoins résolus de l’Évangile, ils ont en même temps travaillé à acheminer leurs contemporains vers la paix, le bienêtre, la prospérité.
+
+S’il est vrai, monsieur l’Ambassadeur, comme vous avez voulu le rappeler, que le pays traverse aujourd’hui des moments difficiles, une nouvelle conscience d’un si riche patrimoine spirituel ne pourra manquer de donner à ses citoyens la force, le courage, l’esprit d’inventivité qui lui feront trouver, serait-ce au prix de sacrifices et de renoncements, les voies d’un progrès digne et durable. Il s’agit certainement pour lui de prendre conscience de ses ressources intérieures et de faire appel à ses idéaux spirituels les plus profonds.
+
+Dans cet effort constant pour développer le patrimoine authentiquement humain de la nation, l’État italien trouvera dans l’Église catholique un soutien loyal, une force d’animation qui, dans une perspective religieuse répondant de plus près aux besoins actuels telle qu’elle s’est dessinée après le [IIe Concile œcuménique du Vatican](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm), se préoccupe aussi d’alimenter chez les fils de chaque peuple les motifs profonds qui justifient les sacrifices nécessaires pour préparer un avenir plus prospère.
+
+La volonté et la capacité d’affronter ces sacrifices présupposent une solide conviction morale pour la formation de laquelle l’Église ne manquera pas de faire tout ce qui est en son pouvoir du moment que cela correspond pleinement a sa mission de rachat, de libération et de salut des consciences. Devant le phénomène de la violence aveugle et du terrorisme destructeur qui perturbent toujours la société italienne et sèment en elle l’alarme, l’angoisse, la peur paralysante, l’Église catholique, tout en dissuadant de l’hallucinante tentation d’une réponse pareillement provocatrice et oppressive, se préoccupe d’ouvrir les cœurs, surtout ceux des jeunes, à des idéaux de liberté, de justice, de solidarité fraternelle, d’amour, de service désintéressé du bien commun.
+
+Telles sont les vertus qui constituent et garantissent la grandeur, la paix intérieure et le progrès social d’un pays ; les vertus auxquelles, aujourd’hui, après un temps influencé par des systèmes agnostiques et matérialistes les consciences sensibles et éclairées aspirent plus intensément.
+
+Les évêques d’Italie, et le Pape en premier lieu qui, à un titre spécial, doit son service pastoral à l’Italie, ne négligeront aucun effort pour inciter les jeunes générations — qui sont de ma part l’objet d’une attention et d’un amour particuliers que je leur ai manifestés dès le début de mon ministère universel — à construire une société plus pacifique et plus juste. L’Église, en effet, comme j’ai eu l’occasion de le souligner à diverses reprises est de par sa nature au service de l’homme, de sa promotion, de son développement, de ses droits, de son progrès, conformément à l’anthropologie libératrice du message de l’Évangile qui met au centre de sa préoccupation la plus vive la libération de l’homme de toutes les formes d’esclavage et d’oppression. Dieu veut un homme libre, conscient de sa dignité spirituelle et responsable du bien de tous.
+
+La sollicitude commune de l’État et de l’Église pour le bien de l’homme et du citoyen requiert une harmonie de rapports et un esprit de respectueuse amitié qui jusqu’à maintenant ont été sauvegardés en Italie par le Concordat du Latran. Je souhaite vivement, et j’en suis certain, qu’ils le seront encore dans l’avenir en vertu de ce même instrument dans lequel comme vous l’avez rappelé, une fois achevées les études et les consultations bilatérales à ce sujet, seront introduites les modifications que les nouvelles conditions des temps, évaluées avec ouverture d’esprit à la lumière du récent Concile œcuménique, et la transformation du cadre constitutionnel de l’Italie, suggèreront comme convenables.
+
+Désirant exprimer mon affection pour l’Italie, que j’ai appris à aimer avec prédilection dès mes années d’études, et en particulier pendant le temps où j’ai résidé à Rome pour compléter ma formation théologique ; aspirant aussi à m’acquitter de mon mieux de mon service pastoral envers un pays si proche, dont je sens chaque jour l’attachement cordial et joyeux qui m’entoure et me charme, je prie le Seigneur qu’il le comble de sa lumière et de sa grâce pour que la vie publique et privée de ses citoyens soit alimentée et ennoblie par un sens religieux profond, par la pratique de solides vertus chrétiennes et humaines, et aussi pour qu’elle bénéficie d’un serein bien-être.
+
+À ces vœux, je joins mes vœux personnels pour le très digne président de la République italienne, que j’assure respectueusement de ma considération pour le prestige et l’autorité avec lesquels il représente et dirige la nation. À vous, monsieur l’Ambassadeur, je souhaite une fructueuse mission et la plus cordiale bienvenue. Et de tout cœur je donne ma bénédiction apostolique à tout le peuple italien et à ses autorités.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n. 27 p.2.
+
+*La Documentation catholique*, n.1768 pp.680-681.
+
+© Copyright 1979 - Libreria Editrice Vaticana

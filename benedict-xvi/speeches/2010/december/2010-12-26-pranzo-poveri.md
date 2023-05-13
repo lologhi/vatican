@@ -1,0 +1,27 @@
+DÉJEUNER OFFERT PAR LE SAINT-PÈRE AUX PAUVRES
+
+ASSISTÉS PAR LES MISSIONNAIRES DE LA CHARITÉ
+
+À L'OCCASION DU 100e ANNIVERSAIRE DE LA NAISSANCE
+
+DE LA BIENHEUREUSE [MÈRE TERESA DE CALCUTTA](http://www.vatican.va/news_services/liturgy/saints/ns_lit_doc_20031019_madre-teresa_fr.html)
+
+DISCOURS DU PAPE BENOÎT XVI
+
+*Atrium de la salle Paul VI*
+
+*D*imanche 26 décembre 2010
+
+*Chers amis,*
+
+Je suis très heureux d’être aujourd’hui avec vous et j’adresse mon salut cordial à la mère générale des missionnaires de la charité, aux prêtres, aux sœurs, aux frères contemplatifs et à vous tous ici présents pour vivre ensemble ce moment fraternel.
+
+La lumière du Noël du Seigneur remplit nos cœurs de la joie et de la paix annoncée par les anges aux pasteurs de Bethléem : « Gloire à Dieu au plus haut des cieux, et paix sur la terre aux hommes qu’il aime » ( *Lc* 2, 14). L’Enfant que nous voyons dans la grotte est Dieu lui-même qui s’est fait homme, pour nous montrer à quel point il nous aime : Dieu est devenu l’un de nous, pour se faire proche de chacun, pour vaincre le mal, pour nous libérer du péché, pour nous donner l’espérance, pour nous dire que nous ne sommes jamais seuls. Nous pouvons toujours nous adresser à Lui, sans peur, en l’appelant Père, assurés qu’en chaque moment, en chaque situation de la vie, même dans les plus difficiles, Il ne nous oublie pas. Nous devons nous dire plus souvent : Oui, Dieu prend précisément soin de moi, il m’aime, Jésus est né pour moi aussi ; je dois toujours avoir confiance en Lui.
+
+Chers frères et sœurs, laissons la lumière de l’Enfant Jésus, du Fils de Dieu fait homme, illuminer notre vie pour la transformer en lumière, comme nous le voyons de manière particulière dans la vie des saints. Je pense au témoignage de la bienheureuse [Teresa de Calcutta](http://www.vatican.va/news_services/liturgy/saints/ns_lit_doc_20031019_madre-teresa_fr.html), un reflet de la lumière de l’amour de Dieu. La célébration des 100 ans de sa naissance est un motif de gratitude et de réflexion pour un engagement renouvelé et joyeux au service du Seigneur et de nos frères, en particulier des plus démunis. Le Seigneur lui-même voulait être dans le besoin, comme nous le savons. Chères sœurs, chers prêtres et frères, chers amis du personnel, la charité est la force qui change le monde, car Dieu est amour (cf. 1 *Jn* 4, 7-9). La bienheureuse [Teresa de Calcutta](http://www.vatican.va/news_services/liturgy/saints/ns_lit_doc_20031019_madre-teresa_fr.html) a vécu la charité envers tous sans distinction, mais avec une préférence pour les plus pauvres et abandonnés : un signe lumineux de la paternité et de la bonté de Dieu. Elle a su reconnaître en chacun le visage du Christ, qu’elle aimait de tout son être : ce Christ qu’elle adorait et recevait dans l’Eucharistie, elle continuait à le rencontrer sur les routes et dans les rues de la ville, devenant « image » vivante de Jésus qui verse sur les blessures de l’homme la grâce de l’amour miséricordieux. A celui qui se demande pourquoi [mère Teresa](http://www.vatican.va/news_services/liturgy/saints/ns_lit_doc_20031019_madre-teresa_fr.html) est devenue aussi célèbre, la réponse est simple : parce qu’elle a vécu de façon humble et cachée, par amour et dans l’amour de Dieu. Elle affirmait elle-même que sa plus grande récompense était d’aimer Jésus et de le servir chez les pauvres. Sa frêle silhouette, avec les mains jointes ou bien lorsqu’elle donnait une caresse à un malade, un lépreux, un mourant, un enfant, est le signe visible d’une existence transformée par Dieu. Dans la nuit de la douleur humaine, elle a fait resplendir la lumière de l’Amour divin et a aidé de nombreux cœurs à trouver cette paix que Dieu seul peut donner.
+
+Nous rendons grâce au Seigneur, car chez la bienheureuse [Teresa de Calcutta](http://www.vatican.va/news_services/liturgy/saints/ns_lit_doc_20031019_madre-teresa_fr.html) nous avons tous vu comment notre existence peut changer quand elle rencontre Jésus ; elle peut devenir pour les autres un reflet de la lumière de Dieu. A tant d’hommes et de femmes, dans des situations de misère et de souffrance, elle a apporté le réconfort et la certitude que Dieu n’abandonne personne, jamais ! Sa mission continue à travers ceux qui, ici comme dans d’autres parties du monde, vivent son charisme d’être des missionnaires, hommes et femmes, de la charité. Notre gratitude est grande, chères sœurs, chers frères, pour votre présence humble, discrète, cachée aux yeux des hommes, mais extraordinaire et précieuse au cœur de Dieu. A l’homme souvent à la recherche de bonheurs illusoires, votre témoignage de vie dit où se trouve la véritable joie : dans le partage, dans le don, dans le fait d’aimer avec la même gratuité que Dieu qui brise la logique de l’égoïsme humain.
+
+Chers amis ! Sachez que le Pape vous aime, il vous porte dans son cœur, il vous embrasse tous dans une étreinte paternelle et prie pour vous. Tous mes vœux ! Merci d’avoir voulu partager la joie de ces jours de fête. J’invoque la protection maternelle de la sainte Famille de Nazareth que nous célébrons aujourd’hui — Jésus, Marie et Joseph — et je vous bénis tous ainsi que vos proches.
+
+© Copyright 2010 - Libreria Editrice Vaticana

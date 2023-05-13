@@ -1,0 +1,15 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX MEMBRES DE LA PRÉSIDENCE***
+
+***DU GRAND CONSEIL CANTONAL DE ZURICH (SUISSE)***
+
+*Samedi 11 mars 1978*
+
+C'est avec joie que nous vous adressons nos plus sincères remerciements pour les aimables paroles que Votre Président a bien voulu nous dédier à l'occasion de cette rencontre. Nous vous souhaitons cordialement la bienvenue et nous saluons en vous les représentants responsables de la bien aimée population suisse du canton de Zurich.
+
+Par votre visite au Vatican, à l'occasion de votre voyage d'étude en Italie, vous mettez en évidence la signification et le prix que vous attribuez à l'action de l'Eglise dans le monde d'aujourd'hui et dans votre pays. Et ainsi, vous exprimez également, de manière visible, les convictions de vos concitoyens qui, tout récemment, se sont prononcés en grande majorité contre la séparation entre l'Eglise et l'Etat dans votre Canton. Nous sommes particulièrement heureux que dans votre pays également les bonnes relations et la collaboration confiante entre l'Eglise et l'Etat se soient, depuis de nombreuses années révélées très fructueuses. C'est le réjouissant résultat d'une heureuse évolution non seulement politique mais aussi œcuménique. Comme l'a affirmé de nouveau le [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) « *Du seul fait qu'ils s'appliquent au soin spirituel de leur troupeau, les Evêques travaillent aussi au progrès et au bonheur social et civil* » (Décret *[Christus Dominus](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651028_christus-dominus_fr.html)*, n. 19). En vertu de sa mission divine, l'Eglise est appelée également à se faire le principe de vie et la conscience de la société humaine. Sa parole d'orientation et d'exhortation, de même que sa mission pastorale et sociale au service de l'homme, sont d'une importance toute particulière à une époque où une dégradation destructrice des valeurs morales tend à miner les fondements de l'Etat et de la Société. Cela explique clairement que tous ces derniers temps l'Eglise n'ait cessé, de manière pressante de confirmer son enseignement en faveur de la défense des valeurs inviolables de la vie humaine, de la valeur fondamentale de la famille et de la morale publique.
+
+Chers Messieurs et Dames, ne manquez jamais, dans l'influente situation qui est la vôtre, d'être conscients du fait que vous avez, comme dirigeants politiques et comme chrétiens, une même et égale responsabilité. Dans votre activité politique, laissez-vous guider toujours par vos convictions fondamentales et votre sens des valeurs chrétiennes, non seulement pour protéger les valeurs dont nous venons de parler mais aussi pour garantir à tout l'homme, dans sa dimension intégrale, et à tout votre peuple, un authentique progrès social.
+
+Pour la réussite de cette difficile, mais très méritoire mission, nous implorons pour vous, pour vos familles et pour tout le Canton de Zurich, en y joignant nos vœux pour un fructueux séjour en la ville éternelle, l'assistance divine et l'abondance des bénédictions célestes.

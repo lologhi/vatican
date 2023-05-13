@@ -1,0 +1,25 @@
+[VISITE PASTORALE DU PAPE FRANÇOIS À CARPI ET MIRANDOLA](http://w2.vatican.va/content/francesco/fr/travels/2017/inside/documents/papa-francesco-carpi-mirandola_2017.html)
+
+**RENCONTRE AVEC LES POPULATIONS FRAPPÉES PAR LE TREMBLEMENT DE TERRE**
+
+***DISCOURS DU SAINT-PÈRE***
+
+*Place de la cathédrale, Mirandola*
+
+*Ve Dimanche de Carême 2 avril 2017*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/4/2/mirandola-terremotati.html)]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Dans votre ville, qui porte encore les traces visibles d’une si dure épreuve, je désire vous embrasser, ainsi que les habitants des autres localités frappées par le tremblement de terre de mai 2012. Mon vénéré prédécesseur [Benoît XVI](http://w2.vatican.va/content/benedict-xvi/fr.html), déjà quelques semaines après cet événement, [vint sur ce territoire](http://w2.vatican.va/content/benedict-xvi/fr/speeches/2012/june/documents/hf_ben-xvi_spe_20120626_emilia-romagna.html) pour apporter sa solidarité et son encouragement personnel et de toute la communauté ecclésiale. Aujourd’hui, je suis parmi vous pour vous confirmer l’affection de toute l’Eglise et pour témoigner à chacun de ma proximité et de mon encouragement pour le chemin qu’il reste encore à faire en vue de la reconstruction. J’adresse un salut cordial au pasteur de ce diocèse, Mgr Francesco Cavina, au curé et aux prêtres, au maire et aux différentes autorités. J’exprime à nouveau mon appréciation à la protection civile, aux bénévoles et à ceux qui se sont engagés, à différents niveaux, dans les activités de restructuration et de reprise de la vie communautaire.
+
+Je sais bien à quel point le tremblement de terre a compromis le patrimoine humain et culturel de votre terre. Je pense aux difficultés que vous avez dû affronter : les blessures causées aux maisons, aux activités productives, aux églises et aux autres monuments, riches d’histoire et d’art, et symbole de la spiritualité et de la civilisation de tout un peuple. Mais je pense surtout aux blessures intérieures : la souffrance de ceux qui ont perdu leurs proches et de ceux qui ont vu s’évanouir les sacrifices d’une vie entière. Les jours qui suivirent le séisme, le témoignage de dignité et l’esprit d’entreprise dont vous avez fait preuve à suscité une grande admiration chez tous. Vous vous êtes efforcés d’affronter la situation précaire causée par le tremblement de terre avec un esprit évangélique, en reconnaissant et en acceptant dans les événements douloureux la présence mystérieuse d’un Père qui est toujours aimant, même dans les épreuves les plus dures. Les blessures ont été guéries, oui, elles ont guéri. Mais les cicatrices restent et resteront tout au long de la vie. Et en regardant ces cicatrices, ayez le courage de grandir et de faire grandir vos enfants dans cette dignité, dans cette force, dans cet esprit d’espérance, dans ce courage que vous avez eu au moment des blessures.
+
+Mon souhait est que la force d’âme, l’espérance et le caractère industrieux qui vous caractérisent ne vous fassent jamais défaut. Que demeure ferme votre intention de ne pas céder au découragement face aux difficultés qui restent encore. En effet, beaucoup a été accompli dans l’œuvre de reconstruction, mais il est plus que jamais important que l’on fasse preuve d’un engagement résolu pour réhabiliter également les centres historiques : ils sont les lieux de la mémoire historique et sont les espaces indispensables de la vie sociale et ecclésiale. Je suis certain que ne manquera pas la bonne volonté de la part de tout les acteurs concernés, afin que soit assurée une réalisation rapide de ces travaux nécessaires, pour le bien commun.
+
+Devant votre cathédrale, lieu symbole de la foi et de la tradition de ce territoire et gravement endommagée par le séisme, j’élève une prière fervente avec vous au Seigneur pour les victimes du tremblement de terre, pour leurs familles et pour ceux qui vivent encore actuellement dans des situations précaires. Que le Seigneur fasse sentir son soutien à chacun ! J’ai voulu déposer une gerbe de fleurs sur l’autel de la cathédrale, en souvenir de ceux qui nous ont quittés lors du tremblement de terre.
+
+Chers frères et sœurs, dans deux semaines nous célébrerons la Pâque de la Résurrection. Que la force du Seigneur ressuscité soutienne votre engagement pour avancer dans la reconstruction et anime votre espérance. Que la Vierge Marie et vos saints protecteurs obtiennent du Seigneur la force pour les personnes encore éprouvées ; qu’ils obtiennent la lumière et la force aux esprits et aux cœurs, afin que l’on puisse au plus tôt réaliser ce que tout le monde attend. Je vous remercie : je vous remercie pour l’exemple que vous avez donné à toute l’humanité, un exemple de courage, de force pour aller de l’avant, de dignité. Je vous donne de tout cœur ma Bénédiction à vous tous ici réunis et à toute la population. [Bénédiction] Et s’il vous plaît, je vous demande de prier pour moi. Merci.

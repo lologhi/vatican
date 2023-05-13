@@ -1,0 +1,53 @@
+***DISCOURS DU SAINT-PÈRE JEAN-PAUL II***
+
+***AUX ADHÉRENTS AU MOUVEMENT « PAX CHRISTI »***
+
+***À L'OCCASION DU 50ème ANNIVERSAIRE DE SA FONDATION***
+
+*Salle Clémentine*
+
+*Lundi 29 mai 1995*
+
+*Monsieur le Cardinal,*
+
+*Chers Frères dans l’épiscopat,*
+
+*Chers amis,*
+
+1. Je suis heureux de vous accueillir à l’occasion du Conseil international du mouvement *Pax Christi*, qui a eu lieu la semaine dernière à Assise, et du rassemblement au cours duquel vous avez célébré le 50ème anniversaire de la fondation de votre mouvement, au lendemain de la IIème guerre mondiale. Je salue en particulier le Cardinal Godfried Danneels, votre Président, et les évêques présents.
+
+*Pax Christi* est né en raison de la prise de conscience de l’incroyable puissance destructrice de la guerre et de l’expérience des grandes souffrances vécues par les populations pendant les années de combat. Le mouvement constitue un signe de la volonté des chrétiens d’éviter que réapparaisse une telle catastrophe. Face à la haine et au manque de respect pour la personne humaine et pour ses droits fondamentaux, votre mouvement n’a pas cessé de militer en faveur de la paix et de la réconciliation. Il est né pour promouvoir les armes de la prière, du dialogue et de la réflexion, qui peuvent seules s’opposer radicalement à la violence et à tous les effets inhumains des idéologies totalitaires.
+
+2. Dans mon récent [message à l’occasion du 50ème anniversaire de la fin de la IIème guerre mondiale](http://www.vatican.va/holy_father/john_paul_ii/speeches/1995/may/documents/hf_jp-ii_mes_08051995_50th-end-war-europe_fr.html), j’ai voulu rappeler le sens de cette guerre pour les hommes d’alors et pour ceux d’aujourd’hui. « L’expérience tragique qui a été vécue entre 1939 et 1945 représente aujourd’hui une sorte de référence nécessaire à qui veut réfléchir sur le présent et sur l’avenir de l’humanité»[ [1](#_ftn1 "")]. Les cris des victimes de cette guerre ne peuvent pas ne pas laisser inquiète l’humanité présente, et spécialement les jeunes. Un examen sérieux des facteurs qui ont conduit à l’éclatement de ce conflit, aux destructions énormes et aux souffrances profondes nous invite à affirmer avec toujours plus de fermeté: plus jamais la guerre, qui blesse de manière durable la fraternité dans le Christ Rédempteur.
+
+3. Notre société doit être vigilante, pour éviter que reviennent les idéologies totalitaires, parce qu’elles offensent la dignité de toute personne, en cultivant le rejet d’une partie de l’humanité au nom d’une appartenance culturelle ou religieuse. Il convient de rappeler sans cesse que tout ce qui s’oppose à la vie humaine ouvre la voie à la culture de mort et que tout crime contre la vie est un attentat contre la paix[ [2](#_ftn2 "")]. En analysant les origines de la IIème guerre mondiale, on découvre que la culture de la haine et de l’intolérance, avec le refus de l’homme différent, avaient préparé le terrain au règne de la violence.
+
+En 1945, au terme de combats meurtriers, une espérance en un avenir de paix et de solidarité pouvait renaître dans les peuples d’Europe, qui désiraient ardemment que tous les hommes enfin se parlent et construisent une société fraternelle. C’est dans cet esprit qu’est né le mouvement *Pax Christi*, comme mouvement de réconciliation entre les personnes et les peuples. Ce nom rappelle avec vigueur l’origine de la véritable paix : le Seigneur, lui qui vient mettre en nos cœurs les grâces nécessaires à la conversion et à la réconciliation, chemins de la véritable humanité. En effet, le monde ne peut se donner à lui-même la paix, qui commence par l’accueil personnel du pardon de Dieu, riche en miséricorde. Réconcilié, pacifié et unifié par le Christ, chacun peut à son tour lutter contre le péché, qui éloigne de ses semblables. Il devient alors un artisan de paix auprès de tous ses frères, non seulement de ses amis mais aussi de ses ennemis ; en effet, aimer ces derniers est « le fait des seuls chrétiens »[ [3](#_ftn3 "")], car c’est un fruit éclatant de la charité divine.
+
+4. Ces dernières années, votre mouvement s’est aussi employé à promouvoir la communion et le dialogue entre les chrétiens et entre les différentes confessions religieuses, patiemment et de manière désintéressée. Partout où cela était possible, vous avez travaillé à édifier la paix, par la compréhension mutuelle des communautés, pour le respect des droits et des cultures spécifiques des personnes et des peuples. Par la voie du dialogue, vous avez fait la preuve que des divisions et des barrières historiques entre des groupes humains pouvaient être dépassées, et que la convivialité était possible si l’on développe la solidarité.
+
+5. Devant vous, je voudrais encore évoquer les appels de mes prédécesseurs et ceux que j’ai moi-même lancés, à maintes reprises, sur les implications morales du recours systématique ou trop facile aux armes et sur la nécessité d’avancer dans la voie du désarmement. Aucune forme de violence ne peut régler les conflits entre des personnes ou entre les nations, car la violence engendre la violence. Il convient de rappeler les pays producteurs d’armes à leur responsabilité morale : en particulier, dans leurs échanges avec les pays en voie de développement, où trop d’importance est donnée à la fourniture d’armements, plaçant ainsi ces pays dans une situation de surendettement, au lieu de les aider à utiliser leurs ressources propres et les aides internationales pour la promotion des personnes. Il existe aujourd’hui de nombreux instruments, dans chaque nation comme sur le plan international, pour favoriser la transparence et le respect de la légalité dans le commerce des armes. ce propos, il faut saluer la récente décision des Nations Unies, adoptée par consensus, en faveur de l’extension indéfinie du Traité sur la non prolifération des armes nucléaires, en souhaitant que tous les pays s’emploient à une meilleure et totale mise en œuvre de ce Traité, en vue de créer un ordre international assurant la sécurité de tous et de parvenir au désarmement. En outre, il est heureux que l’opinion publique, grâce à des mouvements comme le vôtre, soit sensibilisée et reçoive l’éducation nécessaire pour exercer de justes pressions sur les Autorités et sur les différents groupes humains, afin que ne soit pas mis en danger le fragile édifice de la paix, seulement pour des raisons d’intérêts.
+
+6. Les dirigeants des nations et les acteurs de la vie politique et économique ont de graves responsabilités dans la production et l’usage de certaines formes d’armement, aux effets particulièrement traumatisants, qui frappent cruellement et sans discrimination les populations civiles, avec des conséquences durables au-delà des périodes de conflits. Je voudrais de nouveau lancer un vigoureux appel pour qu’on cesse définitivement de fabriquer et d’utiliser ces armes que l’on appelle « les mines anti-personnelles », qui, dans de nombreux pays, compromettent pour longtemps le retour à la paix, parce qu’elles ont été placées sur les routes et dans les champs, avec l’intention de nuire de manière indifférenciée au maximum de personnes. En effet, bien après la fin des hostilités, elles continuent à tuer et à causer des dommages irréparables, en provoquant chez les adultes et surtout chez les enfants de graves mutilations.
+
+7. Mais la diminution des armements, le désarmement ou l’absence de guerre ne conduisent pas immédiatement à la paix. Il faut essentiellement créer une culture de vie et une culture de paix. C’est un apprentissage qui doit commencer très tôt, en famille et dans les différents lieux d’éducation. En effet, les comportements qui édifient la paix nous deviennent familiers lorsque nous apprenons à respecter celui qui est proche, lorsque nous nous exerçons à résoudre par des moyens pacifiques les conflits entre personnes qui vivent ensemble et lorsque nous développons les démarches de pardon, qui désarment les sentiments violents. Les parents ont donc un rôle inestimable, pour créer un climat familial harmonieux, propice à aider à la maturation des jeunes et à mettre en leurs cœurs le désir de rechercher la paix, envers et contre tout.
+
+Les mouvements comme le vôtre sont précieux. Ils rendent les personnes attentives à toute violence qui brise l’harmonie entre les personnes, au sein de la création. Ils participent à la formation des consciences, pour que, dans les relations entre les personnes et entre les peuples, triomphent la justice et la recherche du bien commun, fondements d’une paix durable[ [4](#_ftn4 "")].
+
+8. Dans ces jours qui précèdent la fête de la Pentecôte, nous contemplons la première communauté chrétienne, rassemblée avec la Vierge Marie. Dans la prière, elle reçoit le don de la paix, qui fait partie de la mission évangélisatrice de l’Eglise[ [5](#_ftn5 "")]. Avec saint Paul, je vous exhorte : « Tenez-vous donc debout, avec la vérité pour ceinture, la justice pour cuirasse, et pour chaussures le zèle à propager l’Evangile de la paix »[ [6](#_ftn6 "")]. C’est dans ces sentiments que je vous bénis de grand cœur, vous-mêmes et tous les membres du mouvement Pax Christi dont vous êtes les représentants, pour qu’à travers votre parole et votre vie le monde reconnaisse que la paix est un don de Dieu et que la paix est possible pour le monde, dans le Christ, notre Pâque et notre paix définitives.
+
+* * *
+
+[ [1](#_ftnref1 "")] Ioannis Pauli PP. II [*Message à l'occasion du 50ème anniversaire de la fin de la IIème guerre mondiale*, 2, die 8 maii 1995](http://www.vatican.va/holy_father/john_paul_ii/speeches/1995/may/documents/hf_jp-ii_mes_08051995_50th-end-war-europe_fr.html): vide *supra*, p. 1236 ss.
+
+[ [2](#_ftnref2 "")] Cfr. Pauli VI [*Nuntius ob diem ad pacem fovendam dicatum pro a.D. 1977*, die 8 dec. 1976](http://www.vatican.va/holy_father/paul_vi/messages/peace/documents/hf_p-vi_mes_19761208_x-world-day-for-peace_fr.html): *Insegnamenti di Paolo VI*, XIV (1976) 1021 ss.
+
+[ [3](#_ftnref3 "")] Tertulliani *Ad Scapulam*, I, 3.
+
+[ [4](#_ftnref4 "")] Cfr. Ioannis Pauli PP. II [*Centismus Annus*, 5](http://www.vatican.va/edocs/FRA0072/__P3.HTM); S. Thomae *Summa Theologiae*, IIa-IIae, 29, a. 2, ad 3 ; [*Catechismus Catholicae Ecclesiae*, nn. 2302-2317](http://www.vatican.va/archive/FRA0013/__P7W.HTM).
+
+[ [5](#_ftnref5 "")] Cfr. Ioannis Pauli PP. II [*Nuntius ob diem ad pacem fovendam dicatum pro a.D. 1990*, die 8 dec. 1989](http://www.vatican.va/holy_father/john_paul_ii/messages/peace/documents/hf_jp-ii_mes_19891208_xxiii-world-day-for-peace_fr.html): *Insegnamenti di Giovanni Paolo II*, XII, 2 (1989) 1463 ss.
+
+[ [6](#_ftnref6 "")] *Eph*. 6, 14-15.
+
+© Copyright 1995 - Libreria Editrice Vaticana

@@ -1,0 +1,27 @@
+***Discurso al Embajador de SINGAPOUR,***
+
+***Excma. Sra. Doña Jayalekshimi MOHIDEEN****
+
+*24 de enero de 1991*
+
+Madame l'Ambassadeur,
+
+1. Je suis heureux de vous souhaiter la bienvenue au Vatican et d'accepter les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de la République de Singapour près le Saint-Siège. A cette occasion je voudrais vous prier de transmettre mes salutations et mes vœux au Président Wee Kim Wee et aux membres de votre gouvernement. J'espère vivement qu'après la célébration du premier quart de siècle d'indépendance de Singapour, vous et vos concitoyens continuerez à adhérer aux valeurs démocratiques de liberté, de justice et de recherche du bien commun qui sont essentielles au développement sain et intégral de la société.
+
+Votre Excellence a aimablement mentionné ma visite pastorale à Singapour en 1986. A cette occasion j'ai été frappé par la grande diversité de peuples et de cultures qui forment votre nation. Un tel pluralisme, par sa nature même, requiert de chaque individu et groupe social un profond et constant respect pour les croyances, les traditions et les aspirations légitimes des autres, ainsi qu'une disponibilité à engager un dialogue sincère et une coopération généreuse susceptibles de sauvegarder l'harmonie de la société. Une véritable harmonie, en tout cas, nécessite que les droits et la dignité fondamentaux de chaque individu soient effectivement reconnus et protégés. Dans le grand projet de consolidation de l'unité nationale les croyants de toutes les traditions ont une contribution spéciale à apporter, car « en puisant aux sources intarissables de la conscience droite », ils peuvent trouver « des motivations supérieures pour s'engager à construire une société plus juste et plus humaine » (Message pour la Journée mondiale de la Paix 1988, N. 3).
+
+2. Une conscience religieuse bien formée en effet, aide grandement les hommes à « percevoir avec une plus grande clarté la plénitude de leur vocation, à rendre le monde plus conforme à l'éminente dignité de l'homme, à rechercher une fraternité universelle, appuyée sur des fondements plus profonds, et, sous l'impulsion de l'amour, à répondre généreusement et d'un commun effort aux appels les plus pressants de notre époque » (Gaudium et Spes, 91). Pour atteindre ces buts, la communauté politique et la hiérarchie ecclésiastique sont indépendants l'une de l'autre et autonomes, bien qu'elles soient constituées par les mêmes personnes et soient au service de la même réalité sociale « une étroite collaboration et à la solidarité en excluant des rivalités ou des soupçons sans fondements. En ce qui la concerne, l'Église catholique souhaite que ses membres « portent sur les choses un jugement personnel, agissent en esprit de responsabilité et aspirent à tout ce qui est vrai et juste en collaborant volontiers avec d'autres » (Dignitatis Humanae, 2). Elle encourage donc un dialogue respectueux et constructif avec tous ceux qui ont à cœur le bien de la société.
+
+3. L'Église est persuadée que dans une société authentiquement pluraliste et démocratique il ne devrait pas y avoir de conflit entre la profession de foi religieuse libre et publique et le devoir qui incombe à tous les citoyens de promouvoir le bien commun. Cette conviction guide l'activité diplomatique du Saint-Siège au sein de la communauté internationale. Elle inspire de même les efforts des membres le la communauté catholique à Singapour pour maintenir des relations amicales avec tous les secteurs de la société, tout en appliquant fidèlement et régulièrement les enseignements de l'Évangile dans leur vie, dans toutes ses dimensions, personnelles et sociales.
+
+A ce propos, je voudrais rappeler que « la liberté religieuse ne saurait être limitée à une simple tolérance » (Discours au Corps diplomatique, 13 janvier 1990, n. 16) de chaque croyant ou des groupes religieux. Elle n'est pas non plus compatible avec la réduction de leur témoignage à la sphère purement privée. Le droit de professer des croyances religieuses et de promouvoir, dans les limites du bien commun, la conception de la vérité que ces croyances entraînent, est plutôt contrebalancé par l'obligation qu'ont les autorités civiles de permettre aux croyants et à leurs communautés de témoigner de leur foi publiquement et sans crainte et de respecter toutes les exigences qu'elle impose, y compris les exigences éthiques et sociales.
+
+Madame l'Ambassadeur, dans un moment de grave anxiété et de souffrance engendrées par le tragique conflit de la région du Golfe, j'exprime l'espoir que des pays tels que le vôtre, qui ne sont pas impliqués dans les hostilités, s'unissent à nous dans la recherche de moyens créatifs et nouveaux qui encouragent un retour au dialogue et aux négociations, comme le seul chemin véritable pour restaurer l'ordre international et la justice.
+
+En vous renouvelant mes meilleurs vœux au début de votre mission, je vous assure de la disponibilité de tous les services du Saint-Siège à votre égard. J'invoque sur vous et sur tous les citoyens de la République de Singapour la bénédiction de Dieu Tout-puissant.
+
+* * *
+
+**L'Osservatore Romano. Edition hebdomadaire en langue française* n.9 p.4.
+
+© Copyright 1991 - Libreria Editrice Vaticana

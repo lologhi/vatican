@@ -1,0 +1,71 @@
+***EPISTULA IOANNIS PAULI PP. II***
+
+***IX EXPLETO SAECULO AB ORTU SANCTI BERNARDI,***
+
+***ABBATIS ET ECCLESIAE DOCTORIS***
+
+**DILECTIS FILIIS**
+
+**POLYCARPO ZAKAR, ABBATI GENERALI ORDINIS CISTERCIENSIS, ET AMBROSIO SOUTHEY, ABBATI GENERALI ORDINIS CISTERCIENSIUM STRICTIORIS OBSERVANTIAE**
+
+*Dilecti filii,*
+
+*salutem et Apostolicam Benedictionem.*
+
+1. Schola caritatis, studio pastorali, doctrinae ubertate, eloquentia melliflua aliisque egregiis dotibus, quibus ornabatur, sanctus Bernardus, abbas Claravallensis, Ecclesiam singularem in modum illustravit et homines cuiusvis temporis ad se allexit et allicit. Nono igitur saeculo expleto, ex quo hic suavissimus Burgundiae flos est editus, celebrationes ad eius memoriam recolendam merito fiunt, conventus aguntur, scripta vulgantur : tot inter laudabilia incepta nolumus vocem Nostram deesse, qua hunc virum eximium praedicemus et, quaedam attingendo, proferamus, quid etiam aetati nostrae ille valeat nuntiare.
+
+2. Temporibus quidem nostris multi homines, progressionis fructibus praepollentes, simul tot iactati procellis, late diffusum materialismum, quem dicunt, experientes, sectarum illecebris expositi, vera fundamenta spiritualia inquirunt.
+
+Sanctus Bernardus, acri et certa iudicandi praeditus facultate, paene animi oculis altissimas veritates perspexit, quas potissimum e Scripturarum thesauro et Patrum operibus hausit lingua cor penetrante, utpote spiritu orationis perfusa, proposuit.
+
+Traditioni antiquae sancti Benedicti fideliter inhaerens, abbas Claravallensis aperte docuit oboedientiam et humilitatem viam esse redeundi ad Deum, a quo per inoboedientiam et superbiam recessimus (Cf. *Regula S. Benedicti*, Prol. 1). Quam doctrinam magis explicare conatus est nexum intimum inter quaerendam veritatem et humilitatem exercendam demonstrans. Iterum iterumque professus est reditum ad Deum fieri non posse sine vera cognitione sui ipsius Deumque vere non cognosci, nisi cognitioni sui ipsius addatur cognitio veritatis de proximo ; scilicet homo imprimis ad se debet redire ut, secundum veram suam condicionem, ut peccator stet ante Deum ; eamque condicionem omnibus hominibus esse communem perspiciens, iam nullam habet causam cur superbiat in se sive in aliis. Dum autem veritatem seu miseriam sui et proximi agnoscit, et verbum Dei fide complectitur, etiam misericordiam et benignitatem Dei percipit et recipit, quia in hac triplici cognitione veritatis ei via patet ad triplicem amorem : Dei, sui ipsius et proximi.
+
+Sanctus Bernardus docet cognitionem veritatis de se, de proximo ac de Deo eodem gradu procedere, quo amor triplex in corde oritur et crescit. Nam homo, in se revertens et paenitentiam agens, officium percipit redamandi Deum, qui eum per Christum quaesivit et redemit, eiusque dilectionem erga omnes homines imitandi. Homo gratiam Dei misericordis accipere nequit, nisi et erga se misericordiam exercens a peccatis abstinet, et, erga proximum misericordia motus, Creatorem et Redemptorem imitatur, qui tanta dignatione ad genus humanum se inclinat. Hic est quasi nucleus doctrinae spiritualis Bernardinae, qui pariter ostendit « scholam caritatis » monasticam, quam ipse instituit, etiam aetati nostrae aptissime convenire.
+
+Si enim reditum ad Deum hoc modo intellegimus, facile percipere possumus restaurationem dignitatis humanae, purificationem vitae personalis atque obligationem diligendi se et proximum ex uno fonte amoris erga Deum oriri.
+
+3. Sanctus abbas Claravallensis, etsi vitam a saeculo re motam ducebat, tamen in itinere suo ad Deum nullo modo secutus est viam « individualismi », quem dicunt, vel propositum a societate humana secedendi. Semper enim sibi conscius erat consilii Dei, qui redemptionem hominis in sinu communitatis et per eius mediationem paravit et omnes, quos vult salvare, secum et inter se coniungit.
+
+Quapropter Sanctus Bernardus neque verbo neque agendi modo contemptum mundi, in peccaturn et vanitatem mersi, idem esse voluit ac relictum vel neglectionem conscientiae officii circa proximum ac solidam coniunctionem cum eo. Nam cum periculum aliquod Matri Ecclesiae imminebat, libenter pacem monasterii sui reliquit, arduos suscepturus labores, ut eidem Ecclesiae subveniret. Itaque vita abbatis Claravallensis exemplum fuit illius unitatis, ad quam christiani, quaecumque est eorum vocatio vel condicio, contendere debent, scilicet unitatis inter vitam interiorem, quae est praecipua, et curam et operositatem externam, quam in servitio Christi pro bono communi Ecclesiae universae et localis assumere debent.
+
+Quod nominatim ad religiosos attinet, sanctus Bernardus iam multo tempore ante quodammodo annuntiavit praeceptionem Concilii Vaticani II : « cuiuslibet instituti sodales, Deum prae omnibus et unite quaerentes, contemplationem, qua Ei mente et corte adhaereant, cum amore apostolico quo operi Redemptionis adsociari Regnumque Dei dilatare nitantur, coniungant oportet » ( *[Perf. car.](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651028_perfectae-caritatis_lt.html)*, 5).
+
+De hac re hic doctor mellifluus, uti solet appellari, in opere, quod de consideratione inscripsit quodque ad Eugenium Pp. III, olim disciplinae suae alumnum, misit, egregie agit : « Si ... totus vis esse omnium, instar illius qui omnia omnibus factus est, laudo humanitatem, sed si plena sit. Quomodo autem plena, te excluso ?... Omnes pariter participant te, omnes de fonte publico hauriunt pectore tuo, et tu seorsum sitiens stabis ?... inter ceteros bibe et tu de fonte putei tui ... Memento proinde, non dico semper, non dico saepe, sed vel interdum reddere te ipsum tibi » (V, 6 ; ed. Cisterc. 3, p. 400). Docuit ergo e « consideratione », id est de oratione, meditatione, contemplatione proficisci debere zelum animarum et servitium hominum.
+
+4. Aetas nostra haud raro « saeculum laicorum » appellatur, quatenus in lumine ponuntur multiplices conatus laicis in Ecclesia munera conferendi, quae eorum statui sunt consentanea. Non multo minore iure, tempus, quo sanctus Bernardus vitam degit, eo nomine potest nuncupari. Etenim, dum Ecclesia se a vinculis institutorum feudalium eximere nititur, motus exstitit laicorum, qui sacral expeditiones sub crucis signo suscipiebant, saeculo XII laici in praedicatione verbi Dei atque etiam, ut notum est, in poesi ac doctrinae disciplinis vocem suam, ut aiunt, emittere coeperunt ; motus religiosus aedificatorum, qui mirandas ecclesias exstruxerunt, primus motus opificum Europae potest haberi.
+
+Abbas Claravallensis, ut iam est significatum, saepe silentium monasterii relinquere debuit ut vitae laicorum se insereret, rationem rei publicae tractaret, praesertim vero pacem inter reges et principes, inter reges et urbes conciliaret. Ut est in Vita eius Prima, « Litteratus apud eruditos, apud simplices simplex, apud spirituales viros perfectionis et sapientiae affluens documentis ; omnibus se coaptabat, omnes cupiens lucrifacere Christo » ( *Bernardi vita prima auctore Gaufrido*, 3 ; *PL* 185, 306).
+
+Clericos et laicos in unum redigi corpus is apertis verbis docet : « Cum Dominus ita praecipiat : Vigilate et orate, ne intretis in tentationem, liquet quod absque duplici hoc exercitio fidelium (laicorum) studioque custodum (clericorum), non potest esse secura civitas, non sponsa, non oves. Horum differentiam quaeris ? Unum sunt » ( *Super cantica*, s. 74, 8 ; ed. Cisterc. 2, p. 259).
+
+Secundum eius sententiam laicorum est, una cum clericis, Ecclesiam aedificare, quod faciunt maxime oboedientia se exercendo et patrando opera caritatis, praesertim corporalia. Ait enim ad laicos se convertens : Oboedite Episcopo ceterisque praepositis vestris, magistris Ecclesiae. Habete diligentiam hospitalitatis, quia per hanc multi placuerunt Deo ... Dominum angelorum suscipite in peregrinis, pascite in egenis, operite in nudis, visitate in languentibus, redimite in captivis » ( *Ep. 242 ad Tolosanos*; ed. Cisterc. 8, p. 129).
+
+Abbas ergo Claravallensis, quamquam ordinem monasticum plurimi faciebat – eum ordinibus clericorum et laicorum ut tertium addidit – tamen ut pater animarum aequam existimationem laicorum in Ecclesia habuit, persuasum sibi habens omnes, cuiusvis ordinis, ad eandem metam aeternitatis contendere.
+
+5. Aetate, qua sanctus Bernardus degit in terra, vita intellectualis Europae mutari coepta est et innovari. Cum enim in hominem ipsum, quasi in centro positum, magis magisque inquireretur, ille motus mentium initium sumpsit, qui postmodum humanismus est appellatus quique vim habet etiam ad tempora nostra. Doctor Claravallensis, qui appetitiones et studia aevi sui optime noverat, hanc circa hominem novam veluti cupiditatem penitus intellexit nec simpliciter reiecit ac damnavit.
+
+Hominem vero, ad imaginem et similitudinem Dei creatum, esse « egregiam creaturam » ( *Ad clericos de conv.*, 8, 15 ; ed. Cisterc. 4, p. 89), « capacem Dei » ( *Super cant.* 27, 10 ; ed. Cisterc. 1, p. 189) ideoque ipsius divinae magnitudinis capacem (Cf. *In ps. Qui habitat*, 17, 6 ; ed. Cisterc. 4, pp. 490-491) declarat, simul vero eum miserum, pauperem, debilem, parvum esse ostendit. Totum vero hominem Christus salvum fecit, quippe qui non solum animam sed etiam corpus ad aeternam vitam vocaret.
+
+Dignitatem igitur condicionis humanae aperte asserens, sanctus Bernardus exclamavit : « Mira quaerentis Dei dignatio, magna dignitas hominis sic quaesiti !» ( *In Adventu* s. 1, 7 ; 4, p. 166). Itaque e consideratione dignitatis hominis, quae et in creatione et in redemptione patefit, quasi e duplici fonte verum humanismum christianum manare demonstrat. Affirmans enim imaginem Dei etiam post peccatum in nobis mansisse ac Deum, ut hominem salvaret, hominem factum esse, sanctus Bernardus in doctrina theologica dignitatem simul et egestatem hominis respicit et sic periculum falsi « anthropocentrismi », quem dicunt, devitat.
+
+Cui quidem humanismo christiano aptum fundamentum praebetur christologia Bernardiana, qua cum vehementia quadam docetur totum hominem in Christo esse assumptum. Namque, donec in hac terra vivimus, secundum condicionem humanam, accessus nobis ad Deum solum secundum legem Incarnationis patet. Hic « doctor optimus », cum affirmat se Christum nondum in forma, quae Patri est aequalis, videre, ideoque non « Deum apud Deum » contueri, nihilominus addit : « ipsum saltem hominem homo hominibus loquor » ( *Super cant.* 22, 3 ; ed. Cisterc. 1, p. 131). Quibus verbis tota quidem ratio humanismi veri nominis continetur : agnitio videlicet tum limitum tum eximiae facultatis ac dignitatis hominis, qui in Paradiso, amicitia Deo iunctus, est conditus, ad unionem multo arctiorem vocatur ex dignatione Dei ac quidem talem, quae omnem cogitationem et exspectationem humanam exsuperat.
+
+6. Ex iis quae supra sunt dicta, facile eruitur doctrinam christologicam in operibus sancti Bernardi principem locum obtinere nostrisque etiam temporibus magni esse momenti. Infinita Sapientia et aeternum Dei Verbum ad nos descendit uti « Verbum infans ». Ideo se nobis natum ac datum esse voluit, in forma pueri parvuli, quia et nos non nisi ut parvuli in Dei regnum possumus intrare. Sic iam a primo vitae momento in terra Christus Dominus hominem ad humilitatem vocat, et oboediens factus usque ad mortem, ante nos progreditur ut etiam nos omnes conatus superbiendi deponamus.
+
+Spiritualis doctrina sancti Bernardi pietate erga humanitatem Christi peculiari modo perfunditur. Quacum doctrinae ratione semper fides in Christum glorificatum componitur, qui, a mortuis surgens, non moritur amplius et, gloriae Patris cum sua humanitate particeps, nobis iugiter praesens adest. Ideo in schola spirituali sancti Bernardi investigatio vitae terrestris Iesu numquam a fide seiungitur Verbi aeterni, incarnati, praesentis apud Patrem in gloria, apud nos autem per gratiam tamquam Sponsus Ecclesiae et sponsus animae, qui sponsam ad unitatem quam maxime intimam vocat ac perducit. Itaque abbas Claravallensis merito praedicatur magister amoris mystici et sponsalis in Christum.
+
+7. Nihil mirum ergo quod sanctus Bernardus, qui hoc modo de Christo sensit atque disseruit, etiam eius Matrem Mariam ardentissima dilectione est prosecutes eiusque laudes summo studio cecinit. Etsi scripta eius de sancta Maria non sunt ita ampla, tamen doctrina, quae iis continetur, nullatenus est parvipendenda, siquidem doctor mellifiuus munus singulare Dei Genetricis in oeconomia salutis summa cum perspicuitate exponit. Mediatio gratiarum, quae Mariae propter divinam maternitatem est tributa, etiam postmodum in ea numquam cessavit, sed ut singulare munus ad omnium nostrum salutem permanet. Merito ergo sanctus Bernardus Mariam ut concham supereffluentem, ideoque semper repletam et abundanter fluentem, describit, unde gratiae ad nos continuo fluxu derivantur.
+
+Ecclesia singulari modo respicit Mariam hoc tempore, angustiis, difficultatibus, sollicitudinibus pleno, quo tertio millennio propinquamus (Cf. Encycl. Litteras *[Redemptoris Mater](/content/john-paul-ii/la/encyclicals/documents/hf_jp-ii_enc_25031987_redemptoris-mater.html)*: AAS 79 (1987), pp. 361-433, n. 3). Impensis precibus est ea exoranda ut populis et singulis hominibus clementer succurrat. Ad eam laudandam et implorandam dux nobis esse potest « fidelis Bernardus », qui secundum poeticam cogitationem Dantis Alagherii, cui in « Paradiso » se adiunxit ut eum ductaret, sanctam Mariam obstupefactus ita alloquitur :
+
+« O Virgo mater, filia / tui beati / sublimis et humillima / prae creaturis omnibus » (Liturgia Horarum, memoria S. Mariae in Sabbato, ad Officium lectionis. Cf. DANTE ALIGHIERI, *Paradiso*, cant. 33, 1-2 : « Vergine Madre, figlia del tuo figlio / umile e alta più che creatura »).
+
+Speramus autem fore ut e celebrationibus, quae ob memoriam natalis piissimi huius Mariae praeconis fiunt, Christifidelibus, praesertim vero vobis, qui tanti parentis vestigia sequimini, uberes fructus spirituales accrescant.
+
+Sincera demum caritate vos, dilecti filii, monachos monialesque utriusque moderationi creditos, complectentes, Benedictionem Apostolicam, caelestium munerum auspicem, vobis libentissime in Domino impertimus.
+
+*Datum Romae, spud Sanctum Petrum, die XX mensis Augusti, anno MCMXC, Pontificatus Nostri duodecimo.*
+
+**IOANNES PAULUS PP. II**
+
+© Copyright 1990 - Libreria Editrice Vaticana

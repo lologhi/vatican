@@ -1,0 +1,37 @@
+IOANNES PAULUS PP. II
+
+***EPISTULA QUA AUGUSTINUS S.R.E.***
+
+***CARDINALIS CASAROLI***
+
+***AD EUCHARISTICUM CONGRESSUM ARGENTINUM LEGATUS RENUNTIATUR***
+
+*Venerabili Fratri Nostro*
+
+*Augustino S.R.E. Cardinali Casaroli*
+
+*a Publicis Ecclesiae Negotiis*
+
+Pluribus quidem luculentisque documentis cognovisti tu, Venerabilis Frater Noster, praesertim cum duos abhinc annos Bonaeropoli in Argentina adessemus permagna acti sollicitudine pastorali, quanto Nos patris amore dilectam Nationem illam complecteremur, quanto animi studio mediis in discriminibus paci eius ac tutelae prospiceremus, quanta voluntatis firmitudine prosperitatem ipsius et salutem cum causa Christi Evangeliique observantia coniungeremus. Facile idcirco nunc intelleges quibuscum mentis sensibus quamque laetis omnino affectibus has tibi inscribamus Litteras et haec quae sequuntur de te capiamus consilia.
+
+Iter enim illud apostolicum simul et pacificum fidenter Nos sub Sollemnitatem Corporis Christi suscepimus et primis verbis Nostris sententiisque sermonis in cathedrali templo Sanctissimae Trinitatis habiti celebravimus studiose ipsum Dominum Iesum Eucharisticum veluti unitatis verae auctorem, pacis perennis largitorem, reconciliationis altae suasorem.
+
+Nunc vero eadem amata communitas Argentinae catholicae, praeeuntibus optimis eius pastoribus, omni contentione sese comparat ad Eucharisticum totius Nationis agendum Congressum Bonaeropoli, undecimum inter et decimum quartum diem proximi mensis Octobris, magnosque simul fructus fidei et caritatis, renovationis et spei nimirum eodem ex eventu sibi exoptat posterisque etiam Christifidelibus.
+
+Illud videlicet Corporis et Sanguinis Christi mysterium celebrabitur frequentissimo catholicorum concursu ; quo quidem mysterio non tantum totius Ecclesiae vita alitur confirmatur augetur, dum tempus eius peregrinationis consummetur, sed etiam cuiusque familiae christianae unitas nititur et significatur. Eucharistia namque ex molitis frumenti granis et uvae racemis constans indicat natura sua illam unitatem eundemque panem et potum quo familia enutritur. Ceterum, quoniam ab exordio christianae religionis in domibus privatis Eucharistia conficiebatur, monet quodammodo iam tum hoc sacramentum familiaris communitatis peculiare momentum denuntiare, utpote “primae et vitalis cellulae societatis” ( *[Apostolicam Actuositatem](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651118_apostolicam-actuositatem_lt.html)*, 11). Equidem, si per Eucharistiam Christus fidelibus dat vitam, quia eius caro verus est cibus et sanguis eius verus potus ( *Io*. 6, 53), fieri non potest quin haec vita ad illum “locum” pertineat, in quo “nascuntur novi societatis cives, qui per Spiritus Sancti gratiam, ad Populum Dei saeculorum decursu perpetuandum, baptismo in filios Dei constituuntur” ( *[Lumen Gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_lt.html)*, 11). Eucharistia est igitur panis qui eandem gratiam infundit in familiae membra, mutuum amorem parit et roborat, eosdem sensus inspirat, eadem proposita profert, coniugium solidat ; brevi, efficit ut omnes christianae et humanae virtutes floreant, quibus christiani sunt in hoc mundo id quod est in corpore anima ( *Epist. ad Diognetum*, 5).
+
+Hinc fit ut Eucharistia sit etiam civilis societatis fundamentum. Qui enim dixit : “Ab ortu solis usque ad occasum magnum est nomen meum in gentibus, et in omni loco sacrificatur nomini meo oblatio munda, quia magnum est nomen meum in gentibus” ( *Mal*. 1, 11), ipsos eos hoc sacrificium offerentes facturus erat animam mundi, fermentum quo tota societas fermentatur ( *Matth*. 13, 33). Ut enim societas stet, progressus faciat, tranquilla sit, pace vera coniuncta iusta parata indiget ad necessitates pauperum et aegrotorum levandas et si fieri possit tollendas ; non vero inanibus verbis indiget sed exemplis indiget factis, hominibus nempe qui ipsa vita sua viam ostendant ad difficultatum nodos expediendos. Eiusmodi sunt christiani Eucharistia sustentati, qui vitae socialis ceteris sunt exemplo. Hi etenim “neque regione neque sermone neque vitae institutis distincti a ceteris sunt hominibus . . . Patrias habitant proprias, sed tamquam inquilini ; omnia cum aliis habent communia tamquam cives, et omnia patiuntur tamquam peregrini ; omnis peregrina regio eorum est patria, et omnis patria peregrina ; uxores ducunt ut omnes, liberos procreant, sed non abiciunt fetus. Mensam communem habent, non lectum. In carne sunt, sed non secundum carnem vivunt. In terra degunt, sed in caelo civitatem suam habent. Obsequuntur legibus constitutis, et suo vitae genere superant leges. Amant omnes, et omnes eos persequuntur . . . Fama eorum laceratur, et iustitiae eorum testimonium perhibetur. Obiurgantur et benedicunt ; contumeliose tractantur, et honorem deferunt. Cum bonum faciant, tamquam improbi puniuntur ; dum puniuntur gaudent, tamquam vivificentur” ( *Epist. ad Diognetum*, 5).
+
+Sed aliis quidem modis Eucharistia est societatis fundamentum. Ea etenim, acta a Christo redemptione et novo rerum ordine instituto, est gratiarum actio, sacrificium, deprecatio, quasi Iesu gemitus continuus ad Patrem pro omnibus : non solum pro iis, qui oves eius sunt eiusque audiunt vocem, verum etiam pro iis qui eum aut nondum cognoscunt aut cognitum scienter negant oppugnant, in eius membris persequuntur. Quoniam autem et hi sunt ex iis, de quibus ipse dixit : “Et alias oves habeo, quae non sunt ex hoc ovili ; et illas oportet me adducere ; et vocem meam audient et fiet unum ovile et unus pastor” ( *Io*. 10, 16), actio Christi eucharistica, qui sub speciebus panis et vini vivit inter homines Deus et homo, non desinit hunc consequi finem infinita caritate.
+
+Querimur quod mundus est malus, quod cotidie innumera videmus nefanda, quibus homo nequit per suas vires mederi ; sed mentibus fingere non possumus quanto deterior et intolerabilior esset idem mundus, si Eucharistia deesset, aut si omnia secundum divinum consilium — quod est consilium salutis — non regeret.
+
+Ne ullum autem desit signum clarum ac documentum coniunctionis Nostrae arctissimae cum Ecclesia Argentina circa Dominicam sic mensam eucharistico fervore congregata, proximum adiutorem Nostrum -— temet ipsum scilicet, Venerabilis Frater Noster — adstare ibi pro Nobis volumus pro Nobisque praesidere ac precari, hortari ac docere ea omnia quae breviter supra perstrinximus. Hisce propterea Litteris propensaque prorsus voluntate peculiarem Nostrum Legatum destinamus nominamus ad memoratum Congressum Eucharisticum Argentinae mense Octobri dum cunctas libenter tibi tribuimus facultates cum munere illo iunctas.
+
+Per te igitur consalutamus singulos Congressus participes, nominatim Episcopos Fratres et sacerdotes, religiosos ac religiosas, laicos et laicas fideles, quibus omnibus mysterium Eucharisticum proponimus vere omnis christianae vitae omnisque familiae culmen medium punctum, omnis pietatis actionisque christianae fontem, et quibus Benedictionem Apostolicam pariter quasi praesentes dilargimur uberrimorum ex Congressu emolumentorum spiritalium pignus.
+
+*Ex Aedibus Vaticanis, die XXVI mensis Septembris, anno MCMLXXXIV, Pontificatus Nostri sexto.*
+
+**IOANNES PAULUS PP. II**
+
+© Copyright 1984 -  Libreria Editrice Vaticana

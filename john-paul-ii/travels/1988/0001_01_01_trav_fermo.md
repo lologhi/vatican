@@ -1,6 +1,0 @@
-|     |
-| --- |
-|  |
-| ***Visite Pastorale à Fermo et***<br>***Porto San Giorgio (Italie)***<br>***(30 décembre 1988)***<br>- **Salut à la population de Fermo (30 décembre 1988)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1988/december/documents/hf_jp-ii_spe_19881230_cittadinanza-fermo.html)\]<br>- **Rencontre avec le clergé et les autorités dans la Cathédrale de Fermo (30 décembre 1988)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1988/december/documents/hf_jp-ii_spe_19881230_cattedrale-fermo.html)\]<br>- **A la population de Porto San Giorgio (30 décembre 1988)**<br>  <br>  \[ [Italien](/content/john-paul-ii/it/speeches/1988/december/documents/hf_jp-ii_spe_19881230_porto-s-giorgio.html)\]<br>- **Messe pour les familles néocatéchuménales partant en mission - Centre «Serviteur de Jahvé» de Porto San Giorgio (Ascoli Piceno, 30 décembre 1988)**<br>  <br>   \[ [Italien](/content/john-paul-ii/it/homilies/1988/documents/hf_jp-ii_hom_19881230_porto-s-giorgio.html)\] |
-|  |
-|  |

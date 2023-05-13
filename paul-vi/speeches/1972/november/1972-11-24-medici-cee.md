@@ -1,0 +1,37 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX REPRÉSENTANTS DE L’ORDRE DES MÉDECINS***
+
+***DE LA COMMUNAUTÉ EUROPÉENNE****
+
+*Vendredi 24 novembre 1972*
+
+*Mesdames et Messieurs,*
+
+L'Assemblée Plénière qui vous réunit à Rome, au siège actuel de votre Comité, Nous vaut ce matin une visite qui Nous réjouit vivement. Nous saluons en vous les représentants qualifiés de l’Ordre des médecins des divers pays de la Communauté Européenne. Il Nous plaît de vous exprimer l’estime profonde que Nous éprouvons envers ceux dont la vocation est de guérir et de soulager, comme à l’égard de leur science et de leur art. Et Nous savons bien que la profession de médecin requiert un recours croissant à l’aide des juristes et des experts. En vous assurant les uns et les autres de notre cordiale sympathie, Nous tenons à vous signifier l’intérêt que Nous portons aux travaux de votre Comité permanent, et l’appui spécifique que l’Eglise peut apporter à votre noble tâche.
+
+Pendant que la Communauté européenne poursuit laborieusement son œuvre d’unification aux plans économique, culturel et politique, vous vous employez activement, en vos multiples groupes de travail, à partager vos expériences et vos soucis, bien plus, à établir un certain ordre international susceptible de protéger à la fois votre profession et les malades qu’elle veut servir. C’est ainsi que vous étudiez, entre autres, les problèmes concernant l’enseignement et l’exercice de la médecine, l’équivalence des diplômes à l’intérieur des pays du Marché commun, la formation permanente des médecins et leur libre circulation, l’accès des médecins migrants aux fonctions du secteur public, le maintien d’une certaine médecine générale, l’uniformisation des législations de sécurité sociale, et plus fondamentalement, toutes les questions de déontologie médicale. Une telle organisation internationale Nous apparaît de nature à promouvoir un progrès humain authentique. Elle peut favoriser une saine émulation dans ce champ immense où l’ingéniosité des chercheurs et la mise en œuvre technique des soins médicaux ne doivent connaître aucun relâchement. Elle permet une collaboration qui a déjà porté ses fruits. Les services et les institutions sanitaires pourront ainsi bénéficier d’un développement plus poussé et plus homogène dans les régions très diverses de cette vieille Europe, sans oublier les peuples les plus démunis du Tiers-Monde.
+
+Enfin et surtout, vous prenez ensemble une conscience plus approfondie des problèmes professionnels posés par l’art médical, comme des exigences éthiques qu’il requiert. Vous pouvez ainsi vous encourager mutuellement, par une solide discipline, comme elle existe dans l’ordre des médecins de chaque nation, à respecter et à faire respecter les finalités de l’assistance médicale : prévenir, soulager, guérir. C’est ce que notre Prédécesseur Pie XII appelait, en recevant les membres de l’Association médicale mondiale, « le code d’honneur du médecin et celui de ses devoirs » ( *AAS*, 46, 1954, p. 595). Mais, comme il le souhaitait déjà lui-même, ce droit médical a besoin d’être affirmé, défendu, promu, précisé, au plan international, au regard de toutes les questions neuves que posent à l’homme la recherche médicale et ses applications.
+
+Les solutions vraiment humaines requièrent sans doute aujourd’hui un surcroît d’imagination, d’organisation, de conscience, de courage, de générosité. Est-il besoin d’ajouter que ces questions neuves ne sauraient entamer en rien le noble idéal médical qui, dans la grande tradition plurimillénaire exprimée par le serment d’Hippocrate, fait du médecin le défenseur de toute vie humaine ? Porter atteinte à ce principe constituerait une redoutable régression dont vous êtes, mieux que quiconque, capables d’évaluer les funestes conséquences.
+
+Dès lors, le corps des médecins que vous représentez, agissant avec la compétence qui lui est propre et selon les principes positifs qui doivent guider son action désintéressée au service des personnes, peut se faire le témoin de ces exigences auprès des plus hautes instances politiques chargées du bien commun. C’est ce qui vous amène à présenter aux Etats membres du Marché commun européen les avis et recommandations élaborés par votre Comité. Comment ne pas souhaiter que ces initiatives contribuent au progrès de l’hygiène, de la législation et des mœurs ?
+
+Dans cette gigantesque mobilisation pour venir au secours des hommes souffrants ou garantir leur santé, les médecins trouveront toujours dans l’Eglise un appui chaleureux. D’instinct, vous le savez, tout au long de l’histoire, une foule de chrétiens, d’institutions chrétiennes, ont considéré le soin des malades comme une part privilégiée de leur ministère, comme un exercice de choix de leur charité. Le Christ n’a-t-il pas été salué comme celui qui « enlevait nos infirmités, emportait nos maladies »? (Cfr. *Matth*. 8, 17)
+
+Plus encore que cette collaboration de fait à l’assistance médicale, l’Eglise offre au monde une vision intégrale de l’homme. A ses yeux, l’homme demeure un être fragile, certes, d’autant plus qu’il est marqué par le péché; mais il n’en constitue pas moins le centre et le sommet de la création ; son corps lui-même, créé par Dieu et appelé à la gloire, exige respect et soin (Cfr. *[Gaudium et Spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, 14). Toute la personne humaine est, pour la foi chrétienne, revêtue d’une dignité qui interdit de la réduire à un objet : par l’entremise et au-delà de ses activités corporelles, affectives, intellectuelles, elle est capable de nouer avec d’autres des relations interpersonnelles d’une profondeur merveilleuse ; bien plus, elle peut entrer en contact, par la fine pointe de l’âme, avec Dieu lui-même, ou plutôt devenir le temple de sa présence et le lieu où se déploie l’action de son Esprit. C’est dire le mystère qui entoure chaque personne humaine et le respect avec lequel tout médecin du corps ou de l’âme doit s’en approcher.
+
+A plus forte raison l’homme qui souffre jouit-il, a nos yeux de croyants, d’une considération particulière. Ce n’est pas seulement un frère en humanité que le Christ nous demande d’aimer comme nous-mêmes, ou plutôt comme il nous a aimés. C’est un membre souffrant de Jésus-Christ : il nous offre le visage de Celui qui, tout en étant Fils de Dieu, s’est fait familier de nos souffrances et les a prises sur lui, pour nous libérer de toute servitude. Dès lors, comment hésiter à le rencontrer, à l’aider, à le soulager, à cheminer avec lui dans les conditions éprouvantes de notre vie terrestre ? L’amour évangélique, dont le Christ a donné le goût au monde, devient une source incomparable d’énergie au service des malades. Et quand bien même nos mains seraient impuissantes à guérir le corps, qui dira le bienfait de cet amour qui s’adresse au cœur même des personnes ?
+
+Puissent ces considérations encourager les chrétiens à œuvrer hardiment, avec tous les hommes de bonne volonté, aux progrès de la médecine et de la législation médicale ! Et vous tous, soyez assurés de nos vœux ardents pour la poursuite et la fécondité de vos travaux. En témoignage de notre estime et de notre confiance, Nous implorons de grand cœur, sur chacun de vous et sur ceux qui vous sont chers, les Bénédictions de Celui qui est l’Auteur de la Vie.
+
+* * *
+
+* *Insegnamenti di Paolo VI*, vol. X, p.1193-1196 ;
+
+OR 25.11.1972, p.1 ;
+
+ORf n 48, p.1, 12 ;
+
+*La Documentation catholique* n°1622, p.1107-1108.

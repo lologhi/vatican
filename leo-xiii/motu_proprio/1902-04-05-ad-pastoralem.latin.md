@@ -1,0 +1,45 @@
+LEO PP. XIII
+
+MOTU PROPRIO
+
+***SSMI D. N. LEONIS XIII***
+
+***QUO AB OFFICIIS NOTARIORUM VICARII URBIS REVOCATUR***
+
+***OMNIS FACULTAS ET POTESTAS EXARANDI ACTA QUAELIBET***
+
+***AD VICARIATUM URBIS SPECTANTIA****
+
+Ad pastoralem Romani Pontificis sollicitudinem pertinere perspicuum est, ut ea, quae certis suadentibus causis per suos Decessores circa Romanae Curiae Officia fuerant ordinata, instituta atque concessa, siquidem cum novis temporum rerumque necessitatibus haud amplius congruere, et potius in animarum perniciem vergere conspiciat, aut in totum supprimere, aut immutare, aut etiam revocare studeat, prout Ipse in Domino salubriter expedire iudicaverit.
+
+Cum autem inter alia Romanae Curiae Officia a Romanis Pontificibus, Decessoribus Nostris, erecta atque instituta, habeantur illa « *Notariorum Vicarii Urbis* », non sine animi nostri moerore comperimus, gravissima incommodla, unde ipsa animarum salus in grave discrimen adducitur, hac nostra praesertim tempestate oriri ex negotiis quae, cum ad Urbis Vicariatum spectent, a praedictis Notariorum Officiis agi atque expediri solent.
+
+Sane neque decere neque prudentiae partibus plane convenire existimamus, ut ecclesiastica non levis ponderis negotia a laicis, idque non ex mera delegatione intuitu personae collata, sed ratione Officii gerantur ; praesertim cum nequeat in omnibus ea, qua est opus, rerum ecclesiasticarum sacrorumque canonum peritia praesumi.
+
+Illud vero gravius accedit, quod fere contingit in conficiendis actis, quae ex Ecclesiae lege debent matrimonio celebrando praeire. Nam neque adeuntibus, matrimonii causa, locus est aptus, in quem propter civilia quoque multi conveniunt, ita ut hand facile liceat sine arbitris esse ; nec profana ipsa munus gerentium conditio ad necessariam contrahentium testiumque fidem sibi plane conciliandam satis accommodata. Quo saepe fit, ut occultiora quaedam, coeteroquin de iure aperienda, cum gravi fidelium detrimento atque irriti efficiendi matrimonii periculo reticeantur.
+
+At omnium maximuui incommodum recenseri oportet, unde non rnodo detrimenta plurima, sed etiam quaerimoniae frequentissimae edi solent. Emolumenta enim seu taxae pro exarandis actis matrimonio celebrando ex iure necessariis ab iis, qui eisdem Officiis admnistrandis praesunt, sic exigi dicuntur, ut ne eorum quidem, qui inopia laborent, aequa ratio habeatur. Quo fit, ut matrimonio christiano in contemptionem adducto, in tanta morum corruptela, turpissimi concubinatus lues, cum manifesto aeternae salutis periculo, in dies augeatur.
+
+Quae cum ita sint, iniunctae Nobis Apostolicae servitutis debitum minime patitur ut perniciosa haec rerum conditio diutius perseveret : quin immo postulat, ut summovendis, quae attigimus, incommodis ac damnis, omnino animum adiiciamus.
+
+Nos igitur istis aliisque gravissimis et rationabilibus causis Nobis notis adducti, *motu proprio*, ex certa scientia, matura deliberatione, deque Apostolicae potestatis plenitudine, a memoratis Officiis Notariorum Vicarii Urbis atque ab eorumdem titularibus seu detentoribus facultatem ac potestatem omnem exarandi acta quaelibet ad Vicariatum Urbis de iure vel occasione extraordinariae delegationis spectantia, sive matrimonium respiciant, sive causas Beatificationis aut Canonizationis Servorum Dei, sive Sacras Clericorum Ordinationes, sive attestationes et authenticationes circa statum personarum, sive quaevis alia negotia materiam ecclesiasticam quomodolibet attingentia, una cum suis emolumentis, seu taxis, iuribus aliisque proventibus, praerogativis, honoribus, privilegiis, vi praesentium Litterarum penitus revocamus ac perpetuo adimimus. Quamobrem a die, qua hae Litterae datae sunt, quae hacteuus fuere Notariorum Officia circa memorata negotia, iam ne habeantur in posterum tamquam Officia Vicariatus Urbis. Si quid vero ab iisdem Officiis Notariorum, aut eorum nomine ac mandato actum deinceps fuerit circa eadem negotia, ea irrita et nullius roboris esse ac perpetuo fore vi praesentium Litterarum declaramus atque decernimus.
+
+Verum quae supra constituimus ac sancivimus non eiusmodi esse censenda sunt, ut ullum praeiudicium afferant iuribus seu facultatibus eorum, qui hactenus Officia Notariatus Vicarii Urbis detinebant, in caeteris negotiis mere civilibus et ad Urbis Vicariatum nullimode pertinentibus. Insuper si forte alicuius indemnitati prospiciendum sit, excipiendis petitionibus, cognoscendisque rationibus peculiarem coetum ex Romanae Curiae praelatis Aloysio Pericoli et Philippo Giustini, necnon ex eiusdem Curiae Advocatis Carolo Santucci et Caesare Guidi compositum constituimus.
+
+Cui vero coetui mandamus, ut, omni iudiciali forma remota, a singulis deducta mature perpendat Nobisque de omnibus referat, ut apte congruenterque providere possimus.
+
+Motu pariter proprio omnia et singula praefata negotia atque acta ad Vicariatum Urbis pertinentia, sic revocata ac perpetuo adempta ab ante dictis Notariatus Officiis eorumque titularibus seu detentoribus, vi praesentium Litterarum ad Secretariam Vicariatus Urbis avocamus, et apposito proprioque Officio, quod constet ex Cancellario, Vice-Cancellario ac duobus actuariis seu scriptoribus, ex clero omnibus et singulis per Nostrum Urbis Vicarium electis, in eiusdem Secretariae aedibus agenda, exercenda atque expedienda committimus, Nobis reservata confirmatione Capitulorum seu Statutorurn, quae ex mandato nostro redigentur a Vicario Urbis, quo in praefata Secretaria negotiorum omnium administratio, cura et expeditio rectius promptiusque procedant.
+
+Eodemque tempore expresse statuimus ac mandamus ut acta onmia, quae matrimonii celebrationem praecedant oportet, absque ullo emolumentorum seu taxarum onere, nullaque habita ratione quoad postulantium seu contrahentium conditionem, gratis omnino, pro omnibus, ea, qua par est, sollicitudine ac diligentia fiant atque expediantur.
+
+Decernentes pariter, easdem praesentes Litteras et in eis contenta quaecumque, etiam ex eo quod dictorum Notariatus Officiorum possessores et alii quilibet, quorum forte interesse possit, aut qui forte id sibi vindicent, illis non consenserint, nec ad ea vocati et auditi fuerint, nullo umquam tempore de subreptionis, vel obreptionis aut nullitatis vitio, seu intentionis Nostrae aut quorum intersit, consensus, aliove quolibet etiam quamtumvis magno, formali, inexcogitato et substantiali defectu notari, impugnari, infringi, retractari, in controversiam vocari, aut ad terminos iuris reduci, vel adversus illas aperitionis oris, restitutionis in integrum, aliudve quodcumque iuris, facti vel gratiae remedium intentari vel impetrari, seu impetrato, aut etiam motu, scientia et potestatis plenitudine paribus concesso vel emanato quemquam in iudicio vel extra illud uti seu se iuvare ullo modo posse ; sed ipsas praesentes Litteras semper firmas validas et efficaces esse, et fore, suosque plenarios et integros effectus sortiri et obtinere, ac ab illis ad quos spectat et spectabit, inviolabiliter et inconcusse observari, sicque et non aliter in praemissis per quosque iudices ordinarios et delegates, etiam causarum Palatii Apostolici Auditores ac S. R. E. Cardinales etiam a latere legates aliosve quoslibet quacumque praeeminentia et potestate fungentes et functuros, sublata eis quavis aliter iudicandi et interpretandi facultate et auctoritate, iudicari et definiri debere, ac irritum et inane si secus super his a quoquam, quavis auctoritate, scienter vel ignoranter, contigerit attentari.
+
+Non obstantibus f. r. Alexandri VI, Syxti V, Pii VI et Pii VII aliorumque Romanorurn Pontificum, Decessorurn nostrorum constitutionibus, indultis et gratiis supradictis Notariatus Officiis eorumque titularibus seu detentoribus, quomodolibet concessis ; nec non nostra et Cancellariae Apostolicae Regula de iure quaesito non tollendo, aliisque constitutionibus et ordinationibus Apostolicis desuper in genere vel in specie editis, quibuscumque etiam quantumvis efficacissimis clausulis et Decretis etiam irritantibus roboratis, ac alias in contrarium praedictorum quomodolibet concessis, confirmatis ac innovatis ; quibus omnibus etiam si pro illorum sufficienti derogatione de illis eorumque totis tenoribus specialis, specifica, expressa et individua ac de verbo ad verbum, non autem per clausulas generales idem importantes, mentio seu quaevis alia exquisita forma ad hoc servanda foret, tenores huiusmodi ac si de verbo ad verbum, nil penitus omisso et forma in illis tradita observata, inserti forent, praesentibus pro plene et sufficienter expressis ac de verbo ad verbum insertis habentes, illis alias in suo robore permansuris, ad praedictorum effectum hac vice dumtaxat motu et potestatis plenitudine similibus derogamus ac derogatum esse volumus et decernimus, caeterisque contrariis quibuscumque.
+
+*Datum Romae apud Sanctum Petrum die V Aprilis MCMII, Pontificatus Nostri anno XXV.*
+
+**LEO PP. XIII**
+
+* * *
+
+* *AAS*, vol. XXXIV (1901-1902), pp. 533-536.

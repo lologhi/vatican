@@ -1,0 +1,61 @@
+***DISCOURS DU SAINT-PÈRE JEAN-PAUL II***
+
+***AUX PARTICIPANTS À LA PLENARIA DU CONSEIL PONTIFICAL***
+
+***POUR LA PROMOTION DE L’UNITÉ DES CHRÉT* *IENS***
+
+*Vendredi 17 novembre 1995*
+
+*Monsieur le Cardinal,*
+
+*Chers Amis,*
+
+1. Je suis heureux de vous accueillir alors que se termine la *plenaria* du Conseil Pontifical pour la Promotion de l’Unité des Chrétiens, à laquelle vous avez participé. Je veux vous dire combien je vous suis uni alors que, par votre travail au sein du Conseil, vous avez manifesté votre volonté de demeurer fidèles à la parole du Seigneur et de collaborer tous ensemble, pour que se réalise sa prière : « Que tous soient un afin que le monde croie » [ [1](#_ftn1 "")].
+
+Je remercie de tout cœur Monsieur le Cardinal Edward Idris Cassidy, votre Président, pour les paroles qu’il vient de m’adresser et pour les informations qui m’ont été communiquées sur le travail que vous avez accompli au cours de cette semaine.
+
+2. Votre réunion a eu lieu après la publication d’une série de documents importants sur l’œcuménisme et sur ses implications, à l’intérieur de l’Eglise catholique comme dans nos relations avec nos Frères des autres Eglises et Communautés ecclésiales dont nous estimons profondément l’engagement chrétien ; c’est avec eux tous que nous désirons avoir toujours plus de contacts, pour nous acheminer ensemble vers le *grand Jubilé de l’An 2000*.
+
+Le *[Directoire pour l’application des principes et des normes sur l’œcuménisme](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/general-docs/rc_pc_chrstuni_doc_19930325_directory_fr.html)*, publié en 1993, avec mon approbation, par le Conseil Pontifical pour la Promotion de l’Unité des Chrétiens, constitue un guide sûr et éclairant pour tous les catholiques. Il permet que notre marche vers l’unité s’accomplisse dans l’harmonie, par des voies qui peuvent réellement conduire à ce but. Pour ma part, trente ans après la promulgation du décret conciliaire « [Unitatis Redintegratio](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19641121_unitatis-redintegratio_fr.html)», j’ai voulu renforcer et approfondir cette orientation en publiant l’encyclique « [Ut Unum Sint](http://www.vatican.va/edocs/FRA0080/_INDEX.HTM)», réaffirmant ainsi la validité des principes que le Concile a établis pour l’engagement œcuménique de l’Eglise catholique. Cela fut aussi l’occasion pour mettre en évidence des fruits positifs dans nos relations avec les autres chrétiens, que l’application de ces principes avait produits, et pour en rendre grâce, ainsi que pour redire la détermination de l’Eglise catholique à continuer sur cette voie jusqu’au but désiré. L’expérience a montré que l’effort de renouveau de l’Eglise et l’effort œcuménique sont inséparables. En effet, le renouveau a permis de jeter un autre regard sur nos frères chrétiens et sur leurs communautés. L’engagement œcuménique nous permet en outre de poursuivre notre renouveau, dans la fidélité, tout en tenant compte de l’attente de nos frères. J’ai voulu et je veux de nouveau encourager cette immense entreprise et raviver sans cesse l’espérance confiante fondée sur la parole du Seigneur. Et nous savons que cette espérance ne peut pas décevoir [ [2](#_ftn2 "")].
+
+3. Vous avez centré votre travail sur les documents que je viens d’évoquer, dans la perspective soulignée par la Lettre apostolique « [Tertio Millennio Adveniente](http://www.vatican.va/holy_father/john_paul_ii/apost_letters/documents/hf_jp-ii_apl_10111994_tertio-millennio-adveniente_fr.html)» sur la préparation du « grand Jubilé». Ces différents textes forment un ensemble cohérent, apte à favoriser la recherche de la pleine unité entre les chrétiens.
+
+Pour cela, vous avez examiné comment le *[Directoire pour l’application des principes et des normes sur l’œcuménisme](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/general-docs/rc_pc_chrstuni_doc_19930325_directory_fr.html)* a été reçu dans les différentes Eglises locales, car la réception active des orientations œcuméniques du [IIème Concile du Vatican](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) est plus que jamais nécessaire. L’application du *[Directoire](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/general-docs/rc_pc_chrstuni_doc_19930325_directory_fr.html)* doit conduire à l’assimilation des orientations dans toute l’Eglise catholique, surtout dans les régions où les situations politiques et sociales, ou même les tensions religieuses, n’en ont pas jusqu’ici donné la possibilité.
+
+4. Vous avez étudié en particulier le problème de la formation œcuménique dans les séminaires et les facultés de théologie, qui constitue une des principales préoccupations du *[Directoire](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/general-docs/rc_pc_chrstuni_doc_19930325_directory_fr.html)*. Vous avez voulu le faire d’une manière concrète et moderne sur la base des exigences des sciences de l’éducation, qui ne peuvent se limiter à être un simple cours d’information sur le mouvement œcuménique. Je souhaite que les directives pratiques que vous avez évoquées permettent d’insérer la dimension œcuménique dans l’enseignement des différentes disciplines, par l’utilisation de la méthode interdisciplinaire et par la coopération interconfessionnelle, prévues par le *Directoire œcuménique*.
+
+Cette formation est d’un enjeu essentiel pour le développement de la recherche œcuménique, pour sa promotion dans les Instituts de formation et dans la vie pastorale. Ainsi, le travail est orienté correctement, il est pleinement constructif, et l’on évite des actions irréfléchies et simplistes.
+
+5. Approfondissant ces questions, vous avez souligné, à juste titre, le rôle des commissions œcuméniques des Conférences épiscopales et des Synodes des Eglises orientales catholiques. J’avais moi-même rappelé l’importance de ces structures locales : « Ces initiatives confirment l’engagement concret et général de l’Eglise catholique dans l’application des orientations conciliaires sur l’œcuménisme : c’est un aspect essentiel du mouvement œcuménique » [ [3](#_ftn3 "")]. Le *[Directoire](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/general-docs/rc_pc_chrstuni_doc_19930325_directory_fr.html)* indique les fonctions de ces commissions [ [4](#_ftn4 "")], dont le but spécifique est de promouvoir localement les relations avec les autres chrétiens, fondées sur le baptême commun. Sauvegarder cet objectif est une condition nécessaire d’une authentique action œcuménique, qui ne peut se réduire à des formes plus générales de contacts plus ou moins superficiels. Ces commissions locales contribuent de manière décisive à la maturation de tous, en vue de la pleine unité. Il est donc nécessaire d’attirer l’attention des évêques diocésains et des Conférences épiscopales sur le service que ces commissions ont rendu à la recherche de l’unité et qu’elles doivent continuer à rendre dans les nouvelles situations rencontrées, particulièrement dans certains milieux où il s’agit d’une réelle urgence.
+
+6. Cette semaine de réflexion vous a permis d’aborder avec lucidité la question particulière de l’état de nos relations avec les autres Eglises et Communautés ecclésiales. La vue d’ensemble et l’analyse qui en a été faite donneront certainement un nouvel élan aux commissions de dialogue, pour que tous continuent à progresser vers le but ultime, la pleine unité visible, mais aussi pour que ceux qui sont engagés dans cette démarche se sentent poussés à poursuivre leurs efforts en constatant les fruits déjà produits : les convergences réalisées sont un véritable don de Dieu, pour lequel il nous faut le louer. Dans l’encyclique « [Ut Unum Sint](http://www.vatican.va/edocs/FRA0080/_INDEX.HTM)», j’ai ainsi relevé que, dans le dialogue avec les Eglises orthodoxes, « la commission mixte a pu faire de substantiels progrès » [ [5](#_ftn5 "")]. En ce qui regarde les Anciennes Eglises orientales et les controverses christologiques qui ont marqué le premier millénaire, j’ai constaté avec joie – et j’en ai rendu grâce au Seigneur – que « les contacts œcuméniques ont rendu possibles des clarifications essentielles, ce qui nous permet de confesser ensemble la foi qui nous est commune » [ [6](#_ftn6 "")].
+
+Avec les Eglises et Communautés chrétiennes d’Occident, le dialogue théologique a abordé progressivement les thèmes énoncés par le [deuxième Concile du Vatican](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm): « Le dialogue fut et demeure fécond et riche de promesses... On a esquissé des perspectives inespérées de solution et, en même temps, on a compris la nécessité de traiter certains points de manière plus approfondie » [ [7](#_ftn7 "")]. C’est donc dans un incessant approfondissement que l’on pourra parvenir à un véritable accord touchant les questions de foi. Plus cet accord sera authentique, plus nous pourrons reconnaître que sur certains points il existe une unité de la foi, les différences portant sur les expressions, tributaires des traditions spirituelles et intellectuelles, qui se sont développées à une époque où nous n’avions pas les relations de dialogue qui se tissent aujourd’hui.
+
+7. Les relations œcuméniques, d’autre part, ne se limitent pas aux dialogues théologiques, mais comportent aussi des contacts et des collaborations qui, non seulement procurent la connaissance réciproque, mais permettent de découvrir la valeur des convictions de nos autres frères chrétiens. C’est une occasion d’enrichissement et de progrès vers cette vraie unité, qui doit respecter les diversités légitimes et ne rien exiger au-delà du nécessaire [ [8](#_ftn8 "")].
+
+Depuis 1965, un *Groupe mixte de travail* avec le Conseil œcuménique des Eglises fonctionne activement. Il organise la coopération dans les différents domaines où nous sommes invités à réaliser ensemble ce que la foi ne nous oblige pas à faire séparément. Les résultats obtenus renforcent notre volonté de poursuivre l’effort, dans une ferme confiance en Dieu qui guide ses fils vers la réalisation de son dessein dans l’histoire des hommes, par des voies mystérieuses et parfois difficiles et dures, sur lesquelles s’étend l’ombre de la Croix, annonciatrice de l’aube du jour de la Résurrection.
+
+8. L’évaluation de la situation œcuménique et l’engagement à demander une formation œcuménique plus poussée dans les séminaires et les facultés de théologie sera une contribution importante aux aspects œcuméniques de la préparation du *grand Jubilé de l’An 2000*. Nous désirons ardemment que ce jour-là nous soyons plus près de l’unité et que les représentants de tous les chrétiens puissent faire monter ensemble une grande *doxologie* vers le Seigneur qui, par son Incarnation, nous a apporté la Rédemption. A Lui, « le même hier, aujourd’hui et toujours », la gloire dans les siècles !
+
+Je vous accorde à tous ma Bénédiction Apostolique.
+
+* * *
+
+[ [1](#_ftnref1 "")] *Io*. 17, 21.
+
+[ [2](#_ftnref2 "")] Cfr. *Rom*. 5, 5.
+
+[ [3](#_ftnref3 "")] Ioannis Pauli PP. II [*Ut Unum Sint*, 31](http://www.vatican.va/edocs/FRA0080/__P8.HTM); cfr. *Codex Iuris Canonici*, can. 775 ; *Codex Canonum Ecclesiarum Orientalium*, cann. 902-904.
+
+[ [4](#_ftnref4 "")] Cfr. Pontifici Consilii ad Unitatem Christianorum Fovendam [*Directoire pour l’application des principes et des normes sur l’œcuménisme*](http://www.vatican.va/roman_curia/pontifical_councils/chrstuni/general-docs/rc_pc_chrstuni_doc_19930325_directory_fr.html), 41-52.
+
+[ [5](#_ftnref5 "")] Ioannis Pauli PP. II [*Ut Unum Sint*, 59](http://www.vatican.va/edocs/FRA0080/__PJ.HTM).
+
+[ [6](#_ftnref6 "")] *Ibid*. 63.
+
+[ [7](#_ftnref7 "")] Ioannis Pauli PP. II [*Ut Unum Sint*, 69](http://www.vatican.va/edocs/FRA0080/__PL.HTM).
+
+[ [8](#_ftnref8 "")] Cfr. *[Unitatis Redintegratio](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19641121_unitatis-redintegratio_fr.html)*, 18.
+
+© Copyright 1995 - Libreria Editrice Vaticana

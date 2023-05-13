@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À LA DÉLÉGATION DU PATRIARCAT ŒCUMÉNIQUE***
+
+***DE CONSTANTINOPL******E***
+
+*Lundi 28 juin 20* *10*
+
+*Chers frères dans le Christ,*
+
+« A vous grâce et paix de par Dieu notre Père » ( *Col* 1, 2). C’est avec une grande joie et une affection sincère que je vous souhaite la bienvenue dans le Seigneur dans cette Ville de Rome, à l’occasion de la célébration annuelle du martyre des saints Pierre et Paul. Leur solennité, que l’Eglise catholique et les Eglises orthodoxes célèbrent le même jour, est l’une des plus antiques de l’année liturgique, et témoigne d’une époque au cours de laquelle nos communautés vivaient en pleine communion les unes avec les autres. Votre présence ici aujourd’hui — pour laquelle je suis profondément reconnaissant au patriarche de Constantinople, Sa Sainteté Bartholomaios Ier, ainsi qu’au Saint-Synode du patriarcat œcuménique — emplit notre cœur à tous d’une grande joie.
+
+Je rends grâces au Seigneur pour le fait que les bonnes relations entre nous sont caractérisées par des sentiments de confiance, d’estime et de fraternité réciproques, comme en témoignent amplement les nombreuses rencontres qui ont déjà eu lieu au cours de cette année.
+
+Tout cela est un motif d’espérance afin que le dialogue entre catholiques et orthodoxes continue également à accomplir des progrès importants. Vous êtes conscient, Eminence, que la Commission mixte internationale pour le dialogue théologique, dont vous êtes le co-secrétaire, est parvenue à une étape importante, ayant entamé en octobre dernier à Paphos des débats sur le thème : « Le rôle de l’Evêque de Rome dans la communion de l’Eglise au premier millénaire ». Nous prions de tout notre cœur pour que, illuminés par l’Esprit Saint, les membres de la commission continuent sur ce chemin au cours de la prochaine session plénière à Vienne, et y consacrent le temps nécessaire pour une étude approfondie de cette question délicate et importante. C’est pour moi un signe encourageant que le patriarche œcuménique Bartholomaios Ier et le Saint-Synode de Constantinople partagent notre ferme conviction de l’importance de ce dialogue, comme l’a déclaré Sa Sainteté, de façon si claire dans la Lettre encyclique patriarcale et synodale à l’occasion du dimanche de l’orthodoxie, le 21 février 2010.
+
+Au cours de la prochaine [assemblée pour le Moyen-Orient du synode des évêques](http://www.vatican.va/roman_curia/synod/index_fr.htm#Assembl%C3%A9_Sp%C3%A9ciale_pour_le_Moyen-Orient), que j’ai convoquée pour le mois d’octobre ici, à Rome, je suis certain que le thème de la coopération œcuménique entre les chrétiens de cette région fera l’objet d’une grande attention. En effet, cela est souligné dans l’ *[Instrumentum laboris](http://www.vatican.va/roman_curia/synod/documents/rc_synod_doc_20100606_instrumentum-mo_fr.pdf)*, que [j’ai remis aux évêques catholiques du Moyen-Orient au cours de ma récente visite à Chypre](/content/benedict-xvi/fr/speeches/2010/june/documents/hf_ben-xvi_spe_20100606_instr-laboris.html), où j’ai été accueilli avec une grande chaleur fraternelle par Sa Béatitude Chrysostomos II, archevêque de Nuova Giustiniana et de tout Chypre. Les difficultés que les chrétiens du Moyen-Orient connaissent sont dans une large mesure communes à tous : vivre en tant que minorité et aspirer à une authentique liberté religieuse et à la paix. Le dialogue avec les communautés islamiques et juives est nécessaire. Dans ce contexte, je serai très heureux d’accueillir la délégation fraternelle que le patriarcat œcuménique enverra pour participer aux travaux de l’assemblée synodale.
+
+Votre Eminence, chers membres de la délégation, je vous remercie pour votre visite. Je vous prie de transmettre mes salutations fraternelles à Sa Sainteté Bartholomaios Ier, au Saint-Synode, au clergé, ainsi qu’à tous les fidèles du patriarcat œcuménique. A travers l’intercession des apôtres Pierre et Paul, puisse le Seigneur nous accorder une abondance de bénédictions, et puisse-t-il nous conserver toujours dans son amour.
+
+© Copyright 2010 - Libreria Editrice Vaticana

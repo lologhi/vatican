@@ -1,0 +1,45 @@
+***MESSAGE DU PAPE JEAN PAUL II***
+
+***À S. Exc. MGR LUIGI DE MAGISTRIS,***
+
+***PRO PÉNITENCIER MAJEUR,***
+
+***À L'OCCASION DU COURS TRADITIONNEL SUR LE FOR INTERNE ORGANISÉ PAR LA PÉNITENCERIE APOSTOLIQUE***
+
+*A mon Vénéré Frère Mgr Luigi DE MAGISTRIS Pro-Pénitencier Majeur*
+
+1. Le Seigneur m'accorde cette année également la joie de m'adresser à ce dicastère. Je vous salue cordialement, Vénéré frère, ainsi que les prélats et les membres de la Pénitencerie apostolique, et les religieux des diverses Familles qui exercent le ministère pénitentiel dans les Basiliques patriarcales de *l'Urbs*. J'adresse une pensée particulière aux jeunes prêtres et candidats au sacerdoce, qui participent au cours traditionnel sur le « *For interne* », offert comme un service ecclésial par la Pénitencerie.
+
+Je voudrais que l'on puisse lire dans ce Message le témoignage de l'appréciation que le Pape réserve non seulement à la fonction de la Pénitencerie, qui est son vicaire dans l'exercice ordinaire de l'Autorité des Clefs, mais également au travail des Pères pénitenciers, qui exercent  dans  la relation directe avec la conscience de chaque pénitent le ministère de la Réconciliation et, enfin, au dévouement avec lequel les jeunes prêtres et candidats au sacerdoce se préparent à la très haute charge de confesseurs.
+
+2. La mission du prêtre est synthétisée de façon efficace par les célèbres paroles de saint Paul :  « *Nous sommes donc en ambassade pour le Christ :  c'est comme si Dieu exhortait par nous. Nous vous en supplions au nom du Christ :  laissez-vous réconcilier avec Dieu* » (2 *Co* 5, 20).
+
+En cette circonstance, je désire reprendre et développer un concept que j'ai déjà exprimé lors de la première audience à la Pénitencerie apostolique et aux Pères pénitenciers des basiliques patriarcales de l'Urbs, le 30 janvier 1981. Je disais à l'époque :  « *Le sacrement de la Pénitence [...] est non seulement l'instrument visant à détruire le péché - moment négatif - mais un précieux exercice de la vertu, expiation par lui-même, école irremplaçable de spiritualité, travail hautement positif de régénération dans les âmes du * » *vir perfectus*« *, * » *in mensuram aetatis plenitudinis Christi*" (cf. *Ep* 4, 13)". Je voudrais souligner cet aspect concret « positif » du Sacrement, afin d'exhorter les prêtres à y avoir personnellement recours, comme à une aide valable dans leur propre chemin de sanctification, et donc à s'en servir également comme d'une forme qualifiée de guide spirituel.
+
+En effet, on ne peut parvenir concrètement à la sainteté, et en particulier à la sainteté sacerdotale, qu'en ayant recours de façon habituelle, humble et confiante au sacrement de la Pénitence, entendu comme véhicule de la grâce :  il est indispensable lorsque celle-ci à malheureusement été perdue en raison du péché mortel, et il faut le privilégier lorsque le péché mortel n'a pas eu lieu car la confession sacramentelle est alors ce Sacrement des vivants, qui accroît la grâce elle-même mais qui, en plus, corrobore les vertus et aide à contrôler les tendances héritées de la faute originelle et aggravées par les péchés personnels.
+
+3. Je compte parmi les plus grands dons que la célébration de l'Année Sainte 2000 a obtenus pour nous du Seigneur, une conscience renouvelée chez de nombreux fidèles du rôle décisif que joue le sacrement de la Pénitence dans la vie chrétienne, et en conséquence une augmentation réconfortante du nombre de ceux qui y ont recours.
+
+Sur le chemin de l'ascèse chrétienne, le Seigneur peut bien sûr diriger intérieurement les âmes vers des formes qui transcendent la médiation sacramentelle ordinaire. Toutefois, cela n'élimine pas la nécessité du recours au sacrement de la Pénitence, ni la subordination des charismes à la responsabilité de la hiérarchie. C'est ce qui ressort du célèbre passage de la première Lettre aux Corinthiens, où l'Apôtre Paul affirme :  " *Quosdam quidem posuit Deus in ecclesia primum apostolos, secundo prophetas, tertio doctores...*", avec ce qui suit (cf. 1 *Co* 12, 28-31). Dans le texte, un ordre hiérarchique est clairement énoncé entre les diverses fonctions, institutionnelles et charismatiques, dans la structure de la vie de l'Eglise. Saint Paul répète ensuite cet enseignement dans tout le chapitre 14 de la même Lettre, dans lequel il énonce le principe de la subordination des dons charismatiques à son autorité d'Apôtre. Il a pour cela recours sans hésitation au verbe je veux et à des formes impératives.
+
+4. Mais c'est le Seigneur Jésus lui-même, source de tout charisme, qui affirme de la façon la plus solennelle le caractère irremplaçable, pour la vie de grâce, du sacrement de la Pénitence, qu'il a confié aux Apôtres et à leurs successeurs :  « *Recevez l'Esprit Saint. Ceux à qui vous remettez les péchés, ils leur seront remis ; ceux à qui vous les retiendrez, ils leur seront retenus* » ( *Jn* 20, 22-23).
+
+Il n'est donc pas conforme à la Foi de vouloir réduire la rémission des péchés à un contact, pour ainsi dire, privé et individualiste entre la conscience de chaque fidèle et Dieu. Bien sûr le péché n'est pas pardonné s'il n'y a pas de repentir personnel, mais dans l'ordre actuel de la Providence la rémission est subordonnée à l'accomplissement de la volonté positive du Christ, qui a lié la rémission elle-même au ministère ecclésial ou tout au moins à la volonté sérieuse d'avoir recours à celui-ci au plus tôt, lorsqu'il n'y a pas la possibilité d'accomplir la confession sacramentelle dans l'immédiat.
+
+Tout autant erronée est la conviction de celui qui, tout en ne niant pas la valeur positive du sacrement de la Pénitence, le conçoit cependant comme quelque chose de surérogatoire, car le pardon du Seigneur aurait été donné « *semel pro semper* » sur le Calvaire et l'application sacramentelle de la miséricorde divine n'apparaîtrait alors pas nécessaire pour retrouver la grâce.
+
+5. De même, il faut répéter que le sacrement de la Pénitence n'est pas un acte de thérapie psychologique, mais une réalité surnaturelle destinée à produire dans le coeur des effets de sérénité et de paix, qui sont le fruit de la grâce. Même lorsque l'on considère utiles des techniques psychologiques extérieures au Sacrement, celles-ci ne pourront être conseillées qu'avec prudence, mais jamais imposées (cf. l'avertissement du Saint-Office en date du 15 juillet 1961, n. 4).
+
+En ce qui concerne ensuite les formes spécifiques d'ascétisme vers lesquelles orienter le pénitent, elles pourront être proposées par le confesseur à condition qu'elles ne soient pas inspirées de conceptions philosophiques ou religieuses contraires à la vérité chrétienne. Telles sont, par exemple, celles qui réduisent l'homme à un élément de la nature ou, au contraire, qui l'exaltent comme le détenteur d'une liberté absolue. Il est facile de reconnaître, en particulier dans ce dernier cas, une forme renouvelée de pélagianisme.
+
+6. Le prêtre, ministre du Sacrement, gardera ces vérités à l'esprit, que ce soit lors du contact avec chaque pénitent, ou dans l'enseignement catéchétique à donner à chaque fidèle.
+
+Il est par ailleurs évident que les prêtres, qui reçoivent la charge du sacrement de la Pénitence, sont appelés à appliquer ces certitudes tout d'abord à eux-mêmes, ainsi que les orientations pratiques qui s'y rapportent. Cela les aidera dans leur recherche personnelle de la sainteté, ainsi que dans l'apostolat vivant et vital qu'ils doivent exercer avant tout par l'exemple :  " *verba movent, exempla trahunt*".
+
+Que ces critères guident de façon privilégiée les prêtres confesseurs et les directeurs spirituels dans leurs relations avec les candidats au sacerdoce et à la vie consacrée. Le sacrement de la Pénitence est l'instrument privilégié pour le discernement des vocations. Afin de poursuivre l'objectif du sacerdoce, il est en effet nécessaire de posséder une vertu mûre et solide, c'est-à-dire qui puisse garantir, autant que possible " *in* *humanis*« *, une perspective de persévérance dans l'avenir qui soit fondée. Il est vrai que le Seigneur, comme il le fit avec Saul sur la route de Damas, peut instantanément transformer un pécheur en un saint. Toutefois, cela ne fait pas partie des voies habituelles de la Providence. C'est pourquoi celui qui a la responsabilité d'autoriser un candidat à poursuivre sa voie vers le sacerdoce doit avoir * » *hic et nunc*" la certitude de sa véritable capacité. Si cela est valable pour chaque vertu et aspect moral, il est clair qu'on l'exige encore davantage en ce qui concerne la chasteté, car, en recevant les Ordres, le candidat sera tenu au célibat perpétuel.
+
+7. Je confie ces réflexions, qui se transforment à présent en une prière fervente, à Jésus, Prêtre suprême et éternel. Que la Très Sainte Vierge, Mère de l'Eglise, intercède auprès de son Fils, afin qu'il daigne accorder à l'Eglise de saints pénitents, de saints prêtres, de saints candidats au sacerdoce.
+
+Avec ces voeux, je donne de tout coeur à tous la Bénédiction apostolique. *Du Vatican, le 15 mars 2002.*
+
+**IOANNES PAULUS PP. II**

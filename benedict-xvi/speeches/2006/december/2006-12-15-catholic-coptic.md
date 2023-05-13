@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À L'OCCASION DE LA RENCONTRE***
+
+***AVEC SA BÉATITUDE ANTONIOS NAGUIB***
+
+***PATRIARCHE D'ALEXANDRIE DES COPTES CATHOLIQUES***
+
+*Vendredi 15 décembre 2006*
+
+*Béatitude,*
+
+*Vénérés Frères dans l'Épiscopat,*
+
+*Chers Fils et Filles de l'Église copte catholique,*
+
+Après votre élection au siège patriarcal d'Alexandrie des Coptes catholiques, Béatitude, votre première visite officielle au Successeur de Pierre est un moment de grâce pour l'Église. Je vous remercie des paroles que vous venez de m’adresser concernant votre Patriarcat et de votre prière pour mon ministère. Je me réjouis de vous rencontrer ici, entouré des Évêques de votre patriarcat, de prêtres et de fidèles, pour célébrer la « *communio ecclesiastica »* que j'ai eu la joie de vous accorder le 6 avril dernier. Je vous salue tous chaleureusement, vous qui êtes venus participer à ce grand moment de communion fraternelle et d'unité de l'Église copte catholique avec le Siège apostolique. Je profite de cette occasion, pour saluer Sa Béatitude le Cardinal Stéphanos II, Patriarche émérite, que je suis heureux d’accueillir, lui qui a consacré sa vie au service de Dieu et de l'Église copte catholique.
+
+C’est dans la célébration de la Divine Liturgie que se manifeste le mieux la communion dans le Christ, qui fait de nous des frères. C’est là que s’exprime en plénitude la communion entre tous les catholiques, autour du Successeur de Pierre. Vous êtes, Béatitude, le Père et le Chef de l'Église copte catholique d'Alexandrie, siège prestigieux honoré au cours des cinq premiers siècles comme premier patriarcat après Rome. Votre communauté patriarcale est porteuse d'une riche tradition spirituelle, liturgique et théologique – la tradition alexandrine –, dont les trésors font partie du patrimoine de l'Église : elle a été bénéficiaire de la prédication de l'évangéliste saint Marc, interprète de l'Apôtre Pierre ; un lien particulier de fraternité lie ainsi votre Patriarcat au Siège de Pierre. Je veux donc vous assurer de ma prière et de mon soutien pour « la charge particulière » que le Concile œcuménique Vatican II confiait aux Églises orientales catholiques : « Faire progresser l’unité de tous les chrétiens, surtout des chrétiens orientaux » ( *[Orientalium ecclesiarum](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19641121_orientalium-ecclesiarum_fr.html)*, n. 24), notamment avec vos frères de l’Église copte orthodoxe. De même, vous avez un rôle important dans le dialogue interreligieux, pour développer la fraternité et l’estime entre chrétiens et musulmans, et entre tous les hommes.
+
+Béatitude, en devenant Patriarche, vous avez conservé votre prénom, Antonios, qui rappelle le grand courant du monachisme, né en Égypte et que la tradition rattache à l’œuvre de saint Antoine, puis à celle de saint Pacôme. Grâce à l’apport occidental de saint Benoît, le monachisme est devenu un arbre géant qui a porté des fruits abondants et magnifiques dans le monde entier. En évoquant l’Église copte, comment ne pas penser aux écrivains, aux exégètes et aux philosophes, tels Clément d'Alexandrie et Origène, mais aussi aux grands patriarches, confesseurs et docteurs de l'Église, tels Athanase et Cyrille, dont les noms illustres scandent à travers les siècles la foi d'un peuple fervent. Vous avez sans cesse à suivre leurs traces, en développant la recherche théologique et spirituelle propre à votre tradition.
+
+Dans le monde actuel, votre mission est d'une grande importance pour vos fidèles et pour tous les hommes, auxquels l'amour du Christ nous presse d'annoncer la Bonne Nouvelle. Je salue, en particulier, votre attention à  l'éducation humaine, spirituelle, morale et intellectuelle de la jeunesse à travers un réseau scolaire et catéchétique de qualité, qui constitue un service de la société tout entière. Je souhaite vivement que cet engagement éducatif soit toujours davantage reconnu, afin que les valeurs fondamentales soient transmises, dans le souci de l’identité propre des écoles catholiques ; les jeunes d'aujourd'hui pourront ainsi devenir des hommes et des femmes responsables dans leurs familles et dans la société, et désireux de construire une plus grande solidarité et une plus ardente fraternité entre toutes les composantes de la nation. Transmettez aux jeunes toute mon estime et toute mon affection, en leur rappelant que l'Église et la société tout entière ont besoin de leur enthousiasme et de leur espérance.
+
+Je vous invite à intensifier la formation des prêtres et des nombreux jeunes qui souhaitent se consacrer au Seigneur. La vitalité des communautés chrétiennes dans le monde d’aujourd’hui réclame des pasteurs selon le cœur de Dieu, qui soient de vrais témoins du Verbe de Dieu et des guides pour aider les fidèles à enraciner, toujours plus profondément, leur vie et leur mission dans le Christ !
+
+Je sais la place que tient la vie consacrée dans votre Église. Que la pauvreté, la chasteté et l’obéissance vécues selon les conseils évangéliques soient un témoignage et un appel à la sainteté pour le monde d’aujourd’hui ! Puissent les membres des Instituts consacrés poursuivre leurs missions, notamment auprès des jeunes et des personnes les plus délaissées dans la société.
+
+Au terme de notre rencontre, je vous adresse, Béatitude, des vœux fraternels pour que 1'Esprit Saint vous éclaire dans l'exercice de votre charge, qu’il vous console dans les difficultés et qu’il vous procure la joie de voir grandir en ferveur et en nombre votre Église patriarcale. Au début de votre ministère, je veux vous redire à tous les paroles du Christ aux disciples : « Sois sans crainte, petit troupeau, car votre Père a trouvé bon de vous donner le Royaume » ( *Lc* 12, 32). Tandis que j'adresse à travers vous mes chaleureuses salutations à l’ensemble du peuple égyptien, je vous confie tous à l'intercession de la Vierge Marie et de tous les saints coptes.  De grand cœur, je vous accorde, ainsi qu'aux Évêques et à tous les fidèles de votre patriarcat, une affectueuse Bénédiction apostolique.
+
+© Copyright 2006 - Libreria Editrice Vaticana

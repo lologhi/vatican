@@ -1,0 +1,49 @@
+***MESSAGE DU PAPE FRANÇOIS***
+
+***POUR LA 57éme JOURNÉE MONDIALE***
+
+***DE PRIÈRE POUR LES VOCATIONS* (3 mai 2020)**
+
+**Les paroles de la vocation**
+
+*Chers frères et sœurs !*
+
+Le 4 août de l’année dernière, lors du 160ème anniversaire de la mort du saint Curé d’Ars, j’ai voulu offrir [une lettre aux prêtres](http://w2.vatican.va/content/francesco/fr/letters/2019/documents/papa-francesco_20190804_lettera-presbiteri.html) qui, chaque jour consacrent leur vie à l’appel que le Seigneur leur a adressé, au service du peuple de Dieu.
+
+A cette occasion, j’avais choisi quatre paroles-clés – *souffrance – gratitude – courage et louange* – pour remercier les prêtres et soutenir leur ministère. J’estime qu’aujourd’hui, en cette 57ème Journée Mondiale de Prière pour les Vocations, ces paroles peuvent être reprises et adressées à tout le Peuple de Dieu, sur le fond d’un passage évangélique qui nous raconte la singulière expérience survenue à Jésus et Pierre, durant une nuit de tempête sur le lac de Tibériade (cf. *Mt* 14, 22-33).
+
+Après la multiplication des pains, qui avait enthousiasmé la foule, Jésus ordonna à ses disciples de monter dans la barque et de le précéder sur l’autre rive, pendant qu’il renverrait les foules. L’image de cette traversée sur le lac évoque, en quelque manière, le voyage de notre existence. La barque de notre vie, en effet, avance lentement, toujours agitée parce qu’à la recherche d’un lieu d’accostage favorable, prête à affronter les risques et les opportunités de la mer, mais aussi désireuse de recevoir du timonier un virage qui conduise finalement vers la bonne direction. Mais parfois, il peut arriver qu’elle s’égare, qu’elle se laisse aveugler par les illusions, au lieu de suivre le phare lumineux qui la conduit à bon port, ou d’être défiée par les vents contraires des difficultés, des doutes et des peurs.
+
+Il en est de même aussi dans le cœur des disciples, lesquels, appelés à suivre le Maître de Nazareth, doivent se décider à passer sur l’autre rive, en choisissant avec courage d’abandonner leurs sécurités et de se mettre à la suite du Seigneur. Cette aventure n’est pas tranquille : la nuit arrive, le vent contraire souffle, la barque est ballotée par les vagues, et la peur de ne pas y arriver et de pas être à la hauteur de l’appel risque de les dominer.
+
+L’Evangile nous dit, cependant, que dans l’aventure de ce voyage difficile, nous ne sommes pas seuls. Le Seigneur, presqu’en forçant l’aurore au cœur de la nuit, marche sur les eaux agitées et rejoint les disciples, il invite Pierre à venir à sa rencontre sur les vagues, il le sauve quand il le voit s’enfoncer, et enfin, il monte dans la barque et fait cesser le vent.
+
+La première parole de la vocation, alors, est *gratitude*. Naviguer vers le juste cap n’est pas une tâche qui relève de nos seuls efforts, et ne dépend pas seulement des parcours que nous choisissons de faire. La réalisation de nous-mêmes et de nos projets de vie n’est pas le résultat mathématique de ce que nous décidons dans un « moi » isolé ; au contraire, elle est avant tout la réponse à un appel qui vient d’En-Haut. C’est le Seigneur qui nous indique le rivage vers lequel aller et qui, bien avant, nous donne le courage de monter sur la barque ; alors qu’il nous appelle, c’est lui qui se fait aussi notre timonier pour nous accompagner, nous montrer la direction, nous empêcher de nous échouer dans les écueils de l’indécision et nous rendre même capables de marcher sur les eaux agitées.
+
+Toute vocation naît de ce regard aimant par lequel le Seigneur est venu à notre rencontre, peut-être alors même que notre barque était en proie à la tempête. « Plus qu’un choix de notre part, la vocation est la réponse à un appel gratuit du Seigneur » ( [*Lettre aux prêtres*, 4 août 2019](http://w2.vatican.va/content/francesco/fr/letters/2019/documents/papa-francesco_20190804_lettera-presbiteri.html)) ; c’est pourquoi, nous réussirons à la découvrir et à l’embrasser, quand notre cœur s’ouvrira à la gratitude et saura saisir le passage de Dieu dans notre vie.
+
+Quand les disciples voient Jésus s’approcher en marchant sur les eaux, ils pensent d’abord qu’il s’agit d’un fantôme et ils ont peur. Mais aussitôt Jésus les rassure par une parole qui doit toujours accompagner notre vie et notre chemin vocationnel : « Courage, c’est moi, n’ayez pas peur ! » (v.27). Justement c’est la seconde parole que je voudrais vous confier : *courage*.
+
+Ce qui souvent nous empêche de marcher, de grandir, de choisir la voie que le Seigneur trace pour nous, ce sont les fantômes qui s’agitent dans notre cœur. Quand nous sommes appelés à laisser notre rivage de sûreté et à embrasser un état de vie – comme le mariage, le sacerdoce ordonné, la vie consacrée –, la première réaction est souvent représentée par le « *fantôme de l’incrédulité* » : ce n’est pas possible que cette vocation soit pour moi ; s’agit-il vraiment du juste chemin ? le Seigneur me demande-t-il vraiment cela ?
+
+Et, peu à peu, croissent en nous toutes ces considérations, ces justifications et ces calculs qui nous font perdre l’élan, qui nous troublent et nous paralysent sur le rivage de départ : nous pensons avoir fait fausse route, ne pas être à la hauteur, avoir simplement vu un fantôme à chasser.
+
+Le Seigneur sait qu’un choix fondamental de vie – comme celui de se marier ou de se consacrer de façon spéciale à son service – nécessite du *courage*. Il connaît les interrogations, les doutes et les difficultés qui agitent la barque de notre cœur, et c’est pourquoi il nous rassure : « *N’aie pas peur, je suis avec toi !* ». La foi en sa présence, qui vient à notre rencontre et nous accompagne, même quand la mer est en tempête, nous libère de cette acédie que j’ai déjà eu l’occasion de définir comme une « douce tristesse » ( [*Lettre aux prêtres*, 4 août 2019](http://w2.vatican.va/content/francesco/fr/letters/2019/documents/papa-francesco_20190804_lettera-presbiteri.html)), c’est-à-dire ce découragement intérieur qui nous bloque et ne nous permet pas de goûter la beauté de la vocation.
+
+Dans la *[Lettre aux prêtres](http://w2.vatican.va/content/francesco/fr/letters/2019/documents/papa-francesco_20190804_lettera-presbiteri.html)*, j’ai parlé aussi de la souffrance, mais ici je voudrais traduire autrement ce mot et me référer à la *fatigue*. Toute vocation comporte un engagement. Le Seigneur nous appelle parce qu’il veut nous rendre comme Pierre, capables de « *marcher sur les eaux* », c’est-à-dire de prendre en main notre vie pour la mettre au service de l’Evangile, dans les modes concrets et quotidiens qu’il nous indique, et spécialement dans les diverses formes de vocation laïque, presbytérale et de vie consacrée. Mais nous ressemblons à l’Apôtre : nous avons le désir et l’élan, cependant, au même moment, nous sommes marqués par des faiblesses et des craintes.
+
+Si nous nous laissons emporter par la pensée des responsabilités qui nous attendent – dans la vie matrimoniale ou dans le ministère sacerdotal – ou par les épreuves qui se présenteront, alors nous détournerons vite notre regard de Jésus et, comme Pierre, nous risquerons de couler. Au contraire, même dans nos fragilités et nos pauvretés, la foi nous permet de marcher à la rencontre du Seigneur Ressuscité et de vaincre même les tempêtes. En effet, il nous tend la main quand, par fatigue ou par peur, nous risquons de couler, et il nous donne l’élan nécessaire pour vivre notre vocation avec joie et enthousiasme.
+
+Enfin, quand Jésus monte sur la barque, le vent cesse et les vagues s’apaisent. C’est une belle image de ce que le Seigneur opère dans notre vie et dans les tumultes de l’histoire, spécialement quand nous sommes dans la tempête : Il commande aux vents contraires de se calmer, et les forces du mal, de la peur, de la résignation n’ont plus pouvoir sur nous.
+
+Dans la vocation spécifique que nous sommes appelés à vivre, ces vents peuvent nous épuiser. Je pense à ceux qui assument d’importantes charges dans la société civile, aux époux que, non pas par hasard, j’aime définir comme « *les courageux* », et spécialement à ceux qui embrassent la vie consacrée et le sacerdoce. Je connais votre fatigue, les solitudes qui parfois alourdissent le cœur, le risque de l’habitude qui petit à petit éteint le feu ardent de l’appel, le fardeau de l’incertitude et de la précarité de notre temps, la peur de l’avenir. Courage, n’ayez pas peur ! Jésus est à côté de nous et, si nous le reconnaissons comme l’unique Seigneur de notre vie, il nous tend la main et nous saisit pour nous sauver.
+
+Et alors, même au milieu des vagues, notre vie s’ouvre à la *louange*. C’est elle la dernière parole de la vocation, et elle veut être aussi l’invitation à cultiver le comportement intérieur de la sainte Vierge Marie : reconnaissante pour le regard de Dieu qui s’est posé sur elle, confiant dans la foi ses peurs et ses troubles, embrassant avec courage l’appel, elle a fait de sa vie un éternel chant de louange au Seigneur.
+
+Chers frères et sœurs, spécialement en cette Journée, mais aussi dans l’action pastorale ordinaire de nos communautés, je désire que l’Eglise parcoure ce chemin au service des vocations, en ouvrant des brèches dans le cœur de chaque fidèle, pour que chacun puisse découvrir avec gratitude l’appel que Dieu lui adresse, trouver le courage de dire « oui », vaincre la fatigue dans la foi au Christ et, enfin, offrir sa vie comme un cantique de louange pour Dieu, pour les frères et pour le monde entier. Que la Vierge Marie nous accompagne et intercède pour nous.
+
+*Rome, Saint Jean de Latran,*
+
+*8 mars 2020, deuxième dimanche de Carême.*
+
+**François**

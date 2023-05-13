@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE FRANÇOIS*** ***À L'OCCASION DE LA PRÉSENTATION DES LETTRES DE CRÉANCES***
+
+***DES AMBASSADEURS DE SEPT PAYS : SUISSE, LIBERIA, ÉTHIOPIE, SOUDAN, JAMAÏQUE, AFRIQUE DU SUD, INDE***
+
+*Salle Clémentine*
+
+*Jeudi 15 mai 2014*
+
+*Messieurs les ambassadeurs,*
+
+Je suis heureux de vous accueillir à l’occasion de la présentation des Lettres qui vous accréditent comme ambassadeurs extraordinaires et plénipotentiaires de vos pays respectifs près le Saint-Siège : Suisse, Libéria, Ethiopie, Soudan, Jamaïque, Afrique du Sud et Inde. Je vous suis reconnaissant pour la disponibilité avec laquelle vous entreprenez cette mission et je vous prie de transmettre l’expression de ma gratitude et de mon respect aux chefs d’État de vos pays. Je les assure, ainsi que chacun de vous, de mon souvenir dans la prière et j’invoque de Dieu tout-puissant une abondance de prospérité et de paix sur les nations auxquelles vous appartenez.
+
+Paix. Ce mot résume tous les biens auxquels aspirent chaque personne et chaque société humaine. En ultime analyse, même l’engagement avec lequel nous nous efforçons de promouvoir les relations diplomatiques n’a d’autre but que celui-ci : faire avancer la paix au sein de la famille humaine, à travers le développement et la justice. Il s’agit d’un objectif jamais pleinement atteint, qui exige d’être recherché de façon toujours nouvelle par chaque génération, en affrontant les défis soulevés par chaque époque.
+
+En considérant les défis qu’il est urgent d’affronter à notre époque pour édifier un monde plus pacifique, je voudrais en souligner deux : le commerce des armes et les migrations forcées.
+
+Tout le monde parle de paix, tout le monde déclare la vouloir mais, malheureusement, la prolifération d’armements en tout genre conduit dans la direction opposée. Le commerce des armes a pour effet de compliquer et d’éloigner la solution des conflits, d’autant plus qu’il se développe et s’exerce en grande partie en dehors du droit.
+
+Je considère par conséquent, alors que nous sommes réunis auprès de ce Siège apostolique qui, par sa nature, est investi d’un service particulier pour la cause de la paix, que nous pouvons unir nos voix pour souhaiter que la communauté internationale donne lieu à une nouvelle ère d’engagement concerté et courageux contre le développement des armements et en vue de leur réduction.
+
+L’autre défi pour la paix, qui est sous nos yeux et qui revêt malheureusement dans certaines régions et à certains moments le caractère d’une véritable tragédie humaine, est celui des migrations forcées. Il s’agit d’un phénomène très complexe et il faut reconnaître que des efforts considérables sont en œuvre de la part des organisations internationales, des Etats et des forces sociales, ainsi que des communautés religieuses et du bénévolat, pour tenter de répondre de façon civile et organisée aux aspects les plus critiques, aux urgences et aux situations de plus grande nécessité. Mais, là aussi, nous nous rendons compte qu’on ne peut pas se limiter à répondre aux urgences. Le phénomène s’est désormais manifesté dans toute son ampleur et dans son caractère, pour ainsi dire, historique. Le moment est venu de l’affronter à travers un regard politique sérieux et responsable qui engage tous les niveaux : mondial, continental, des macro-régions, des relations entre les nations, jusqu’au niveau national et local.
+
+Dans ce domaine, nous pouvons observer des expériences opposées les unes aux autres. D’un côté, des histoires formidables d’humanité, de rencontre et d’accueil ; des personnes et des familles qui sont parvenues à fuir des réalités inhumaines et qui ont retrouvé dignité, liberté et sécurité. De l’autre, malheureusement, se trouvent des histoires qui suscitent en nous les larmes et la honte : des êtres humains, nos frères et sœurs, des enfants de Dieu qui, poussés eux aussi par la volonté de vivre et de travailler dans la paix, affrontent des voyages accablants et qui subissent des chantages, des tortures, des abus en tout genre, pour finir parfois par mourir dans le désert ou au fond de la mer.
+
+Le phénomène des migrations forcées est étroitement lié aux conflits et aux guerres et donc aussi au problème de la prolifération des armes dont je viens de parler. Ce sont les blessures d’un monde qui est le nôtre, dans lequel Dieu nous a placés pour vivre aujourd’hui et nous appelle à être responsables de nos frères et sœurs, afin que la dignité d’aucun être humain ne soit violée. Ce serait une contradiction absurde que de parler de paix, de négocier la paix et, dans le même temps, de promouvoir ou de permettre le commerce des armes. Nous pourrions même penser que ce serait un comportement dans un certain sens cynique de proclamer les droits humains et, dans le même temps, d’ignorer ou de ne pas prendre en charge des hommes et des femmes qui, obligés de quitter leur terre, meurent dans leur tentative ou ne sont pas accueillis par la solidarité internationale.
+
+Messieurs les ambassadeurs, le Saint-Siège vous déclare aujourd’hui, ainsi qu’aux gouvernements de vos pays respectifs, sa ferme volonté de continuer à collaborer afin que l’on accomplisse des pas en avant dans ces domaines et sur toutes les voies qui conduisent à la justice et à la paix, sur la base des droits humains universellement reconnus.
+
+Au moment où vous inaugurez votre mission, je vous adresse mes vœux les plus sincères, en vous assurant de la collaboration de la Curie romaine dans l’accomplissement de votre fonction. Et tout en vous exprimant à nouveau ma reconnaissance, j’invoque volontiers sur vous, sur vos collaborateurs et sur vos familles, une abondance de Bénédictions divines. Merci.

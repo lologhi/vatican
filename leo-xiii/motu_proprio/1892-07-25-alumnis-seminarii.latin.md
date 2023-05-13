@@ -1,0 +1,17 @@
+***MOTU PROPRIO SANCTISSIMI D. N. LEONIS XIII***
+
+***DE THEOLOGIAE DISCIPLINA***
+
+***IN SEMINARIO VATICANO CONSTITUENDA****
+
+Alumnis Seminarii Vaticani, qui prope sub oculis Nostris in tutela et quasi in umbra Beati Petri adolescunt, peculiares quasdam curas ad hoc tempus adhibere placuit ; quemadmodum videmus illustres Decessores fecisse non paucos, nominatim Urbanum VIII, cuius providentia Seminarium ipsum anno MDCXXXVI est conditum, et utrumque Benedictum XIII, XIV, quorum ab altero in meliorem sedem traductum, ab altero privilegiis ornatum est. Qua in re et per se ipsam iuventuti sacrae opportuna et omnino decora ad religionem dignitatemque basilicae Principis Apostolorum, opera Nobis collegii Canonicorum eiusdem basilicae desideranda quidem non fuit. — Nos igitur, praeter nonnullas ipsis aedibus Seminarii accessiones adiunctas, id, quod pluris erat, impensiore diligentia spectavimus ut virtutis in eo doctrinaeque studia incrementis optimis proveheremus. Ad doctrinam proprie quod attinet, litterarum et humanitatis cursum iussimus esse apparatiorem ; item cursum consequentem philosophiae, apta etiam rei physicae supellectile instructum ceterisque praesidiis, quibus adolescentium ingenia acui solent et expoliri : ista vero omnia eo modo et via eisque cum laudibus magistrorum exigenda censuimus, ut eadem institutio commode posset utiliterque vel externis patere, hac praesertim sub extremam Urbem regione. Consiliis Nostris atque expectationi bona fructuum copia, ex moderatorum et doctorum sollertia, respondit. Sic aucta in Nobis benemerendi voluntate, de villa cogitavimus ad saluberrimam alumnorum relaxationem paranda ; quod iam in Sabinis, molitione a solo educta, perfecimus. — Illud reliquum esse videbatur, ut quod iure tridentino hac in causa decretum praecipue est, clericos ecclesiasticis disciplinis instituendos, hoc ipsi Seminario nequaquam opus esset petere aliunde, sed sibimet liceret domestica inter septa praestare posse ; ex quo praeterea largior illis usura temporis esset futura et salva melius regulae sanctae custodia. Haec Nobiscum reputantes, optantesque posse Nos eo amplius eiusdem iuventutis institutioni prodesse, induximus animum, ut disciplinam theologiae, quae ibi velut inchoata et compendiaria aliquandiu fuit, pleno quo decet modo et stabili, auctoritate Nostra constitueremus. — Itaque, ut visum est, sic hisce litteris edicimus et declaramus, velle Nos ad studia litterarum et philosophiae, quae in Seminario Vaticano coluntur, sacra theologiae disciplina in posterum accedat, ad eam plane rationem tradenda quam saepenumero in simili re commendavimus, ex praescripto nimirum Doctoris Angelici. Quare ad eius doctrinae cognatasque partes convenienter tractandas magisteria destinentur prudenti iudicio : in rei autem perpetuam tuitionem suppeditabit reditus certa vis pecuniae, quam eidem Seminario statuimus attribuere. Quod Nos tanto quidem libentius facimus quanto maiore tenemus spe, futurum sane, Deo bene iuvante, ut de hoc etiam benevolentiae Nostrae in dilectos filios testimonio, parem ipsi ac de collatis antea beneficiis amplioremque gratiam sedulitate et fructibus referant, ad praeclaram Ecclesiae matris laetitiam et Cleri Vaticani ornamentum.
+
+Iamvero quae per has litteras a Nobis decreta sunt, ea rata et firma perpetuo maneant, contrariis non obstantibus quibuscumque.
+
+*Datum Romae apud S. Petrum die XXV Iulii, an. MDCCCLXXXXII, Pontificatus Nostri quintodecimo.*
+
+**LEO PP. XIII**
+
+* * *
+
+* *AAS*, vol. XXV (1892-1893), pp. 65-66.

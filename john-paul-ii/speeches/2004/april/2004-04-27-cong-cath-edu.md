@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE JEAN-PAUL II**À LA CONGRÉGATION POUR L'EDUCATION CATHOLIQUE***
+
+***POUR LE XXV ANNIVERSAIRE DE LA CONSTITUTION***
+
+***SAPIENTIA CHRISTIANA***
+
+*Mardi 27 avril 2004*
+
+*Monsieur le Cardinal,*
+
+*vénérés frères dans l'épiscopat et dans le sacerdoce,*
+
+*très chers frères et soeurs !*
+
+1. Je suis très heureux que vous ayez voulu célébrer le vingt-cinquième anniversaire de l'importante Constitution apostolique *Sapientia christiana*, sur laquelle j'ai apposé ma signature pratiquement au début de mon Pontificat. Il s'agit d'une Constitution que j'ai profondément à coeur, car elle concerne de près l'exercice du *« *munus docendi* »* de l'Eglise. La « *tâche d'enseigner* » revêt une importance particulière dans la réalité actuelle, marquée, d'une part, par un progrès technique impressionnant et, de l'autre, par les contradictions, les scissions et les tensions les plus variées.
+
+En  réalité,  l'Evangile n'exerce son effet bénéfique et durable que dans la mesure où, à travers son annonce constante - « *à temps et à contretemps* » (cf. 2 *Tm* 4, 2) - , il influence les façons de penser et pénètre la culture en profondeur (cf. *Const. ap. Sapientia christiana*, Préambule I). La vocation élevée qui caractérise les Universités et les Facultés ecclésiastiques est précisément de se consacrer de toutes leurs forces à rassembler et à réunir le monde de la science et de la culture autour de la vérité de la foi, pour faire redécouvrir l'ordre salvifique du dessein divin dans la réalité de ce monde.
+
+2. Je me réjouis du nombre croissant de Centres ecclésiastiques d'enseignement académique. Leur première mission demeure l'approfondissement et la transmission du Mystère divin, que le Christ nous a révélé. C'est l'Esprit Saint, répandu dans l'Eglise, qui nous introduit dans ce Mystère et qui nous guide pour le pénétrer toujours plus profondément à travers l'étude (cf. *He* 6, 4).
+
+Parmi les Facultés ecclésiastiques, celles de théologie, de droit canonique et de philosophie, « *en considération de leur nature propre ainsi que de leur importance pour l'Eglise* » (Const. ap. *Sapientia christiana*, art. 65), revêtent un prestige et une responsabilité particulières. Mais, outre ces disciplines fondamentales, les Facultés ecclésiastiques couvrent de nombreux autres domaines, comme celui de l'histoire ecclésiastique, de la liturgie, des sciences de l'éducation, de la musique sacrée.
+
+Un effort important a été fourni ces dernières années pour répondre aux besoins actuels :  on a consacré, par exemple, une attention particulière à la bioéthique, aux études islamiques, à la mobilité humaine, etc. C'est pourquoi je ne peux qu'encourager les initiatives qui visent à approfondir les liens qui existent entre la Révélation divine et les domaines toujours nouveaux du savoir dans la réalité actuelle.
+
+3. Aujourd'hui, plus que jamais, les Universités et les Facultés ecclésiastiques doivent jouer un rôle dans le « *grand printemps* » que Dieu prépare pour le christianisme (cf. Enc. *[Redemptoris missio](http://www.vatican.va/edocs/FRA0205/_INDEX.HTM)*, n. 86). L'homme contemporain est plus attentif à certaines valeurs :  la protection de la dignité de la personne, la défense des plus faibles et des laissés-pour-compte, le respect de la nature, le refus de la violence, la solidarité mondiale, etc. A la lumière de la Constitution apostolique *Sapientia christiana*, les Institutions académiques de l'Eglise sont engagées à cultiver cette sensibilité en accord avec l'Evangile, la Tradition et le Magistère. On sait à quel point le monde contemporain est menacé par des fractures toujours plus profondes, notamment entre les pays riches et les pays pauvres. Il s'agit de fossés qui ont pour origine l'éloignement de Dieu de la part de l'homme.
+
+Dans diverses Encycliques, j'ai cherché à indiquer la route pour réaliser la réconciliation en profondeur entre la foi et la raison (cf. *[Fides et ratio](http://www.vatican.va/edocs/FRA0075/_INDEX.HTM)*), entre le bien et la vérité (cf. Veritatis splendor), entre la foi et la culture (cf. *[Redemptoris missio](http://www.vatican.va/edocs/FRA0205/_INDEX.HTM)*), entre les lois civiles et la loi morale (cf. *[Evangelium vitae](http://www.vatican.va/edocs/FRA0204/_INDEX.HTM)*), entre l'Occident e l'Orient (cf. *[Slavorum apostoli](http://www.vatican.va/edocs/FRA0078/_INDEX.HTM)*), entre le Nord et le Sud (cf. *[Centesimus annus](http://www.vatican.va/edocs/FRA0072/_INDEX.HTM)*), etc. Il est nécessaire que les institutions culturelles ecclésiastiques accueillent ces enseignements, les étudient, les appliquent et en développent les conséquences. En harmonie avec leur vocation, elles peuvent ainsi contribuer à guérir l'homme de ses peurs et de ses déchirements internes.
+
+4. On connaît bien les menaces actuelles de l'individualisme, du pragmatisme, du rationalisme, qui s'étendent même dans les milieux qui ont pour tâche la formation. Les institutions culturelles ecclésiastiques s'efforceront d'unir toujours l'obéissance de la foi à l'« *audace de la raison* » ( *[Fides et ratio](http://www.vatican.va/edocs/FRA0075/_INDEX.HTM)*, n. 48), en se laissant guider par le zèle de la charité. Les enseignants ne doivent pas oublier que l'activité de l'enseignement est inséparable de l'engagement d'approfondissement de la vérité, en particulier de la vérité révélée. Ils ne doivent donc pas dissocier la rigueur de leur activité universitaire de l'ouverture humble et disponible à la Parole de Dieu, écrite ou transmise, en se rappelant toujours que l'interprétation authentique de la Révélation a été confiée « *au seul Magistère vivant de l'Eglise* », qui exerce cette tâche au nom de Jésus Christ (Const. *[Dei Verbum](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, n. 10).
+
+5. En ce vingt-cinquième anniversaire de la Constitution apostolique *Sapientia christiana*, je désire remercier chaleureusement tous ceux qui contribuent à l'accomplissement de la mission ecclésiastique de l'enseignement et de la recherche scientifique dans l'Eglise :  les recteurs, les doyens et les directeurs d'Universités et Facultés ecclésiastiques, le corps enseignant et le personnel auxiliaire, ainsi que la Congrégation pour l'Education catholique et, en son sein, le Bureau pour les Universités. J'adresse à chacun l'expression de ma reconnaissance pour tout le travail accompli avec un généreux dévouement.
+
+J'encourage également tous à poursuivre leur importante mission d'évangélisation par la compréhension de la Révélation, en continuant à rechercher cette « *synthèse vitale* » des vérités révélées  et des valeurs humaines qui est constitutive de la « *sagesse chrétienne* » (Const. apost. *Sapientia christiana*, Préambule I). Le monde d'aujourd'hui en a profondément besoin.
+
+6. Alors que je vous assure de mon souvenir dans la prière pour votre travail, je donne volontiers à tous et à chacun une Bénédiction apostolique particulière.

@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***À LA FÉDÉRATION NATIONALE ITALIENNE***
+
+***DES CHEVALIERS DU TRAVAIL***
+
+*11 mai 1979*
+
+*Messieurs,*
+
+Je me sens honoré et heureux à cause de votre présence et je vous remercie de tout cœur pour ce trait d'aimable déférence qui vous a fait désirer cette rencontre à l'occasion de la solennelle remise du cinquième « *Marconi International Fellowship* ». Tout en adressant mes félicitations à l'élu de cette année, le Professeur John R. Pierce de l'Institut californien de technologie de Pasadena (Californie), je désire étendre également mes félicitations aux éminents savants qui ont reçu le Prix les années précédentes et ont bien voulu assister à cette audience.
+
+Je salue ensuite Madame Gioia Marconi Braga, Présidente et animatrice du Prix qui porte le nom de son père et a pour objectif de maintenir vifs dans le monde ses nobles idéaux de généreuse philanthropie. Je désire aussi adresser un mot de remerciement particulier à M. Bruno Valenti, Président de la Fédération Nationale des Chevaliers du Travail pour les aimables paroles de circonstance avec lesquelles il a interprété les sentiments des participants.
+
+Je veux vous exprimer à tous ma satisfaction et mon estime. Un fait digne d'être noté, me semble-t-il, est que dans cette rencontre se trouvent réunies des personnes engagées dans la recherche scientifique avancée et d'autres qui se sont distinguées en aidant, de leur industrieuse activité, l'économie nationale. C'est une sorte de mariage idéal entre la pensée et l'activité, dans lequel on peut facilement reconnaître la matrice de tout progrès humain authentique. En effet c'est grâce au travail de vastes groupements humains que les intuitions géniales du chercheur ou d'une équipe restreinte de chercheurs se traduisent en services favorables au bien-être commun. C'est pourquoi, me semble-t-il la devise " *Ingenium pro bono humanitatis*« * dont se réclame le Prix Marconi, peut parfaitement être adoptée comme la meilleure inspiratrice de l'engagement de chacun et comme critère d'évaluation de sa * »qualité". Je veux dire que cet engagement sera digne et méritoire s'il se révèle utile au véritable bien de l'homme.
+
+C'est là un aspect que j'aime à souligner. L'Eglise, en effet — comme je l'ai rappelé dans mon Encyclique *[Redemptor hominis](http://www.vatican.va/edocs/FRA0077/_INDEX.HTM)* ne peut abandonner, l'homme dont le 'destin', c'est-à-dire le choix, l'appel, la naissance et la mort, le salut ou la perdition, sont liés d'une manière si étroite et indissoluble au Christ« * (n. 14). Or, aujourd'hui l'homme est en danger : il est menacé * »par le résultat du travail de ses mains, et plus encore du travail de son intelligence" ( *ibid*. n. 15). C'est cela « *le drame de l'existence humaine contemporaine* ». L'homme, par conséquent, « *vit toujours davantage dans la peur* » car « *il craint que ses productions (...) et précisément celles qui contiennent une part spéciale de son génie et de sa créativité, puissent être retournées radicalement contre lui-même* »  (ibid. n. 15).
+
+Il est évident qu'on ne saurait tenir pour utile au véritable bien, ou qualifier de progrès authentique, ce qui fait violence à l'homme ou l'asservit, même si « *techniquement parlant* » cela constitue un résultat excellent. Aussi est-il important que les hommes qui ont conscience de leur responsabilité aient le courage de dénoncer toute science qui se révèle « *déshonorée par la cruauté de ses applications* » (Paul Valéry). Il est important que ceux-ci mobilisent toutes leurs énergies pour orienter leur propre chemin et celui de leurs semblables vers des objectifs de véritable croissance humaine. En effet, est seul un progrès authentique celui qui contribue à rendre l'homme spirituellement plus mûr, plus conscient de sa dignité, plus ouvert à autrui, plus libre dans ses options : celui, donc, qui vise à former un homme qui connaisse le « pourquoi » des choses et pas seulement leur « comment ». L'homme n'a jamais été aussi riche en biens, en moyens, en techniques et jamais aussi dépourvu en indications sur son propre destin. Rendre à l'homme la conscience des fins en vue desquelles il vit et travaille, voilà la tâche a laquelle nous sommes tous conviés en cette fin de siècle qui conclut le deuxième millénaire de l'ère chrétienne. Sera seul capable de satisfaire à cette tâche, celui qui croit en « *la priorité de l'éthique sur la technique, dans le primat de la personne sur les choses, dans la supériorité de l'esprit sur la matière* » (Encycl. *[Redemptor hominis](http://www.vatican.va/edocs/FRA0077/_INDEX.HTM)*, n. 16).
+
+Le vœu que je désire donc exprimer en cette circonstance où j'ai le plaisir de m'adresser à une assemblée de personnes si représentatives du monde de la science et du travail, le voici : que l'idéal de dépenser ses propres énergies " *pro bono humanitatis*" — pour le bien de l'humanité — brille comme l'étoile polaire dans l'âme de chacun et soutienne ses généreux efforts même dans les moments difficiles : travailler pour l'homme avec un amour sincère c'est honorer et servir Dieu.
+
+Je valorise ce vœu avec la bénédiction que de tout cœur je vous donne à vous et à vos chères familles, invoquant l'aide continuelle du Seigneur dans votre labeur quotidien.
+
+Je réitère mes félicitations au Professeur John R. Pierce pour l'honneur qui lui a été octroyé et pour la confiance mise en lui pour que son travail se poursuive de manière efficace et utile " *pro bono humanitatis*" Mes félicitations également aux savants qui ont reçu précédemment cette « *bourse d'études et de recherches* ».
+
+Je prie Dieu pour qu'il vous soutienne et vous guide dans votre service à l'humanité et qu'il vous comble de ses bénédictions.
+
+© Copyright 1979 - Libreria Editrice Vaticana

@@ -1,0 +1,221 @@
+SUMMUS PONTIFEX
+
+FRANCISCUS
+
+LITTERAE APOSTOLICAE ***TOTUM AMORIS EST***
+
+IV CENTESIMA OCCURRENTE MEMORIA
+
+AB OBITU SANCTI FRANCISCI DE SALES
+
+« Totum amoris est »: [[1]](#_ftn1) his verbis hereditatem spiritualem a sancto Francisco de Sales relictam colligere possumus, qui quattuor abhinc saecula, die XXVIII Decembris anni MDCXXII, Lugduni obiebat. Paulo plus quam quinquaginta annos natus, episcopus et princeps “exsul” Genevensis erat iam a viginti annorum spatio. Lugdunum venerat post ultimum legati mandatum. Sabaudiae dux ab eo petierat, ut Avenionem comitaretur Cardinalem Mauritium de Sabaudia, quocum iuvenem regem Aloisium XIII salutaturus esset Parisios redeuntem et Rhodani vallem subeuntem post secundam in meridiana Gallia militiam. Laboribus ac valetudine fractus, Franciscus mero officii studio impulsus iter inierat. « Nisi eorum officiis admodum prodesset iter hoc me facere, multae profecto mihi essent bonae ac firmae causae quare eo eximam ; cum autem de eorum officiis agatur, vivus aut mortuus haud recedam, sed ibo vel sinam ut trahar ». [[2]](#_ftn2) Haec indoles erat eius. Cum demum Lugdunum pervenerit, in hortulani domo apud monasterium Visitandinarum devertit, ut nemini afferret molestiam ac simul cuique ei occurrere cuperet solutius vacaret.
+
+Iamdudum « volubilibus aulae magnificentiis » [[3]](#_ftn3) minime motus, in ministerio pastorali exercendo etiam ultimos dies suos per longam condictorum vicissitudinem consumpserat : confessionum scilicet, conversationum, conferentiarum, sermonum et ultimarum assiduarum epistolarum amicitiae spiritualis. Alta huius conversationis Deo enutrita clarior in dies ei facta erat ratio, quam simplicitate subtilitateque in celebri *Tractatu amoris divini* expesserat : « Quam primum homo attentius paulo cogitat de divinitate, sentit dulcem quandam cordis motionem, quae est argumento Deum esse Deum cordis humani ». [[4]](#_ftn4) Summa haec est cogitationis eius. Humani cordis perspicuitas est conversatio cum Deo. Informatio mentis nos est, sed potius recognitio stupore ac grato animo referta, quae manifestationem Dei sequitur. In corde et per cor subtilis ac flagrans concordia partium perficitur, cuius gratia homo Deum simulque se ipsum agnoscit, originem et altitudinem suam, consummationem sui in vocatione ad amorem. Fidem non caecum motum reperit, sed in primis cordis habitum. Per eam homo veritati committitur, quae conscientiae tamquam “suavis animi motus” videtur, congruentem ac sacrosanctam suscitans  bene-volentiam in universa creata, sicut ipse dicere diligebat.
+
+In eo intellegitur Sancto Francisco de Sales nullum locum ad inveniendum Deum et ad eum quaerendum meliorem esse quam in corde uniuscuiusque mulieris et viri temporis sui. Quod didicerat iam inde a prima iuventute se ipsum perscrutans et cor humanum inquirens.
+
+Intima cotidianitatis conscientia a Deo incultae, in extremo illorum dierum Lugduni occursu Visitandinis suis vocem reliquerat, qua memoriam suam apud easdem deinde sigillari voluit : « His duabus vocibus omnia dixi vobis : nihil recusandum, nihil cupiendum ; nihil aliud mihi superest vobis dicendum ». [[5]](#_ftn5) Exercitium tamen non erat meri voluntatis dominatus, « voluntas sine humilitate », [[6]](#_ftn6) subtilis quaedam in itinere ad sanctitatem temptatio, qua voluntas cum iustificatione per proprias vires confunditur, cum adoratione humanae voluntatis ac propriae facultatis, « quae in sui ipsius pervenit oblectationem egocentricam et selectivam, vero amore carentem ». [[7]](#_ftn7) Eo minus de mero quietis dominatu agebatur, de affectuum experti obsequio doctrinae sine carne et sine historia. [[8]](#_ftn8) Immo, ex eadem vitae contemplatione Filii carnis facti nascebatur. Dies erat XXVI mensis Decembris et Sanctus cum Sororibus colloquebatur in summo Nativitatis mysterii tempore : « Videtisne parvum Iesum in praesepio ? Patitur omnes iniurias temporis, frigus et omne, quod illi Pater concedit evenire. Parvas Matris consolationes non recusat ; nullibi scriptum invenitur quod umquam manus extenderit, ut Matris sugeret mammillas, sed illius curae et providentiae id committebat ; […] sic nihil nos oportet desiderare nec recusare, omnia sufferentes, quae Deus nobis miserit, frigus et iniurias temporis ». [[9]](#_ftn9) Animum tangit studium eius cuiusque humani curae necessitatem agnoscendi. Incarnatione magistra, historiam ergo didicit intellegere et fidenter habitare.
+
+*Norma amoris*
+
+Omnis spiritualis conversationis radicem expertus erat desiderium una et locum eiusdem corruptionis. Proinde, e praeterita spirituali traditione plenis manibus hauriens, vim intellegerat iugi discretionis exercitio desiderii assidue pertemptandi. Rationem ultimam existimationis in amore invenit. Item in extrema illa Collocutione Lugduni in festo sancti Stephani habita, biduo ante mortem suam dixerat : « Opera nostra perficit amor. Et quaedam amplius dicam vobis. Si quis pro Deo martyrium patitur unam habens unciam caritatis, multum meretur, cum vita eius haud magis offerri posset ; at si alius lacerationem modo patitur duas habens uncias caritatis, multo magis merebitur, cum caritas et dilectio amplificent opera nostra ». [[10]](#_ftn10)
+
+Mirabili perspicuitate perrexerat, arduam enarrans necessitudinem conteplationis cum actione : « Scitis seu esset vobis sciendum contemplationem ipsam actione et vita actuosa esse meliorem ; si autem in vita actuosa maiorem invenimus coniunctionem [cum Deo], ea melior est. Si soror culinaria patellam super igne tenens maiore dilectione et caritate quam alia flagrat, flamma corporea eam non compescet, sed adiuvabit, ut magis Deo placeat. Saepicule fit, ut in actuositate Deo coniungimur sicut in solitudine ; tandem semper huc redeo, ubi maior habetur caritas ». [[11]](#_ftn11) Ecce vera quaestio omnem inanem severitatem vel secessum in seipsum impetu superans : omni tempore, in omni optione, in omnibus vitae adiunctis quaerere amor maior ubi sit. Haud temere sanctus Franciscus de Sales a Sancto Ioanne Paulo II « Doctor amoris divini » [[12]](#_ftn12) nuncupatus est, non modo cum de eo magnum *Tractatum* scripserit, sed potissimum eius fuerit testis. Porro scripta eius spectari nequeunt cogitationis instar in scriptorio concepta, procul curis vulgi. Praecepta eius enim e diligenti experientiae auditione orta sunt. Qui mere in singulari novaque sua actione pastorali ea, quae vivebat et sagacitate Spiritu collustrata legebat in doctrinam flexit. Cuius agendi rationis compendium invenitur in praefatione eiusdem *Tractatus amoris divini*: « Totum amoris est, totum in amore vivit, totum fit propter amorem et totum ex amore venit in sancta Ecclesia ». [[13]](#_ftn13)
+
+*Primaevae formationis anni : eventus se in Deo cognoscendi*
+
+Die XXI mensis Augusti anno MDLXVII natus est, in castello Salesii, prope oppidum vulgo *Thorens* nuncupatum, ex Francisco de Nouvelles, comite de Boisy, et Francisca de Sionnaz. « Inter duo saecula vixit, decimum sextum scilicet et decimum septimum, in se optima institutionis et humani cultus inventorum saeculi illius exeuntis collegit, hereditatem studiorum humanitatis cum impulsu componens, qui mysticarum rationum est, ad Absolutum ». [[14]](#_ftn14)
+
+Receptis culturalis institutionis rudimentis, primum in Collegio de *La Roche sur Foron*, deinde in illo Anneciensi, Lutetiam Parisiorum pervenit ad Collegium “Clermont” Societatis Iesu nuperrime fundatum. In capite Regni Galliae, religionis bellis vastato, brevi interiecto temporis spatio bis magno in interiore discrimine versatus est, quod in perpetuum eius vitam signavit. Ardens precatio illa in ecclesia S. Stephani de Gressibus facta coram effigie Dominae Nigrae Lutetiae Parisiorum in corde eius flammam incendit, quae, in mediis quidem tenebris, sempiterna in eo supererit uti clavis quaedam ad eius alteriusque experientiae vitae intellegendam. « Quidquid accidit, Domine, qui omnia in manibus fers tuis et cuius viae omnes iustitia sunt et veritas [...], ego diligam te, Domine [...], hic te diligam, Deus mi, et de misericordia tua semper sperabo ac tuam iugiter cantabo laudem. [...] Domine Iesu, spes mea et salus mea in aeternum eris in terra viventium ». [[15]](#_ftn15)
+
+Sic in libello suo pacem reperiens adnotaverat. Experientia haec, sollicitudinibus quaestionibusque praedita suis, ei in perpetuum tamquam lumen supererit singularem quemdam praebens aditum ad necessitudinis Dei cum homine mysterium. Eum vero adiuvabit in narratione de alterius vita audienda atque, arguto adhibito iudicio, in interiore habitu agnoscendo, qui rationem cum perceptione iungit, intellectum cum affectibus et « Deum humani cordis » nominatim appellat. Per hanc viam Franciscus in discrimine speculativi ponderis rei personali tribuendi summam rationem eidem reddens versatus non est, sed aliquid extraordinarium didicit, gratiae fructum : in Deo scilicet vitam suam alteriusque intellegere.
+
+Quamquam ipse numquam veram rationem theologicam exstruere conatus est, cogitatio tamen eius de vita spirituali eminentem dignitatem theologicam habuit. In eo lineamenta praecipua theologiae efficiendae eminent, cuius duarum rationum constitutivarum numquam licet oblivisci. Prima prorsus *vita spiritualis* est, quia in humili ac perseveranti precatione, in animo Spiritui Sancto patenti, Verbum Dei enixe intellegi et exprimi potest ; theologi enim fiunt in catino orationis. Altera ratio *vita ecclesialis* est : sentire in Ecclesia et cum Ecclesia. Etiam theologia cultura singulorum menti innisa affecta est, sed theologus christianus quidem cogitationem suam mersus in communitate excolit, in qua Verbi frangit panem. [[16]](#_ftn16) Meditatio Francisci Salesii, in margine disputationum scholasticae eius aetatis earumque tamen observantia, ex hisce sane duobus praecipuis fundamentis oritur.
+
+*Novi mundi inventio*
+
+Studiis ad artes liberales pertinentibus peractis, illa in iure apud Universitatem Studiorum Patavinam perrexit. Annecium regressus, iam cursum vitae suae, patre licet resistente, decreverat. Die XVIII mensis Decembris anno MDXCIII presbyteratu auctus, ineunte mense Septembri subsequentis anni, Episcopi Claudii de Granier arcessitu, ad arduam missionem in ducatu Caballico vocatus est, Calvinistae confessionis, cuius territorium, ad dioecesim Anneciensem pertinens, varias inter bellorum pacisque foederum ambages sub dicionem ducatus Sabaudiae denuo transierat. Vehementes fuerunt et asperi anni. Hoc in loco una cum quadam acerba severitate, quae ei deinde aliquid cogitandum praebuit, mediatoris suas dialogique fautoris cognovit dotes. Singularem insuper et audacem pastoralis actionis inceptorum excogitatorem se exhibuit, ex quibus celebres fuerunt « cartulae volitantes », ubique affixae vel etiam sub limina domuum elabentes.
+
+Anno MDCII Lutetiam Parisiorum repetiit ad ancipitem legationem obeundam, pro episcopo de Granier et ad nutum Apostolicae Sedis, propter recentissimam rei politicae et religiosae immutationem intra fines dioecesis Genevensis. Quamvis Regi Franciae bonae essent animi intentiones, missio tamen male cessit. Franciscus ipse ad Papam Clementem VIII scripsit : « Novem post integros menses, meipsum retrahere coactus sum, fere nihilo confecto ». [[17]](#_ftn17) Atqui missio illa ei atque Ecclesiae exstitit ops quaedam inopinata, quoad humanitatem, culturam et religionem spectat. A pacis conciliandae legationibus vacans, Franciscus coram rege regiaque aula Galliae sacris orationibus ac magni momenti necessitudinibus nectendis dedit operam ac praecipue sese omnino immersit in mirabilem florem spiritualem et culturalem modernae Regni capitis.
+
+Omnia illuc mutaverant et adhuc mutabant. Ipse haud parvis quaestionibus per orbem exorientibus novoque modo eas intuendi, necnon necopinata spirituali postulatione nuperrime nata sicut et novis exinde consecutis argumentis se attigi sivit ac rogari. Breviter, verum « aetatis mutamentum » animadvertit, cui sive antiquis sive novis verbis respondere oportebat. Non tunc primum sane ferventes christianos conveniebat, sed de diversa quadam re agebatur : neque de Lutetia Parisiorum religionis bellis vehementer perturbata, quam olim annis suae formationis viderat, neque de acerba dimicatione in territoriis provinciae Caballicae exsudata. Res erat inexspectata : « concursus sanctorum, verorum sanctorum, innumerorum et ubique adstantium ». [[18]](#_ftn18) Viri aderant et mulieres eximiae doctrinae, Universitatis Studiorum Sorbonensis professores, institutorum procuratores, nobiles viri mulieresque, servi et servae, monachi et monales. Universitas erat multiformi ratione sitiens Deum.
+
+Eos convenire eorumque noscere quaestiones profecto una e summis vitae eius eventibus fuit a divina Providentia comparatis. Dies, quae prima specie inutiles atque infelices videbantur, facti sunt sic singularis quaedam schola ad intellegendam, non autem blandiendam, indolem illius temporis. In animo suo aptus assiduusque controversiarum disputator pedetemptim transformabatur gratia in callidum temporum explanatorem necnon egregium animarum moderatorem. Eius pastoralis navitas, clara opera, videlicet *Introductio ad vitam devotam* et *Tractatus amoris divini*, milia epistularum de amicitia spirituali, quae intra et extra conventorum monasteriorumque muros religiosis et monalibus, viris mulieribusque aulicis atque simplici vulgo miserat, occursus Ioannae Franciscae de Chantal ipsaque monasterii Visitationis fundatio anno MDCX, sine hac interiore conversione omni intellectu carerent. Tunc Evangelium et cultura fecundam quandam summam inveniebant, ex qua intellectus rationis omnino manabat, quae ad maturitatem perducta prompta erat ad diuturnam et uberem messem praebendam.
+
+In quadam ex primis epistulis de animi moderatione et amicitia spirituali, quam ad aliquam communitatem misit Lutetiae Parisiorum visitatam, Franciscus de Sales, etsi humiliter, de quadam “methodo sua” ad veram reformationem loquitur ab aliis distincta. Quae methodus asperitati recusat et dignitate atque ingenio animi devoti omnino confidit, infirmitatibus neglectis : « Mihi dubium est, quin vestrae reformae etiam aliud impedimentum opponere possit : fortasse hi, qui eam vobis imposuerunt, plagam nimia duritia curaverunt. […] Ego eorum rationi laudem tribuo, quamvis ea quae soleo uti non sit, in primis erga nobiliores spiritu et bene moratos, ut vestri. Censeo meliorem se continere esse ad praebendum iis malum et scalpella in manibus eorum dare, ut ipsi illam neccessariam incisionem exercitent. Sed vero propterea non neglegite hanc reformam, qua indigetis ». [[19]](#_ftn19)  His ex verbis contuitus perlucet ille, qui celebrem reddidit felicis rerum exitus fiduciam, qua Societas Salesiana imbuitur, necnon diuturno suo vestigio historiam signavit spiritualitatis ad futuros flores enutriendos, sicuti sanctum Ioannem Bosco duobus post saeculis.
+
+Annecium regressus, die VIII mensis Decembris eiusdemque anni MDCII episcopus creatus est. Episcopali ministerii eius pondus in Europam illius aetatis itidemque saeculorum insequentium summum nempe apparet. « Apostolus quidem, praeco, scriptor, homo ad agendum et orandum promptus ; Concilii Tridentini propositis efficiendis optime vacans ; in controversia et dialogo cum reformatae Ecclesiae sectatoribus versatus, magis in dies momentum personalis necessitudinis et caritatis praeter necessariam theologicam disceptationem experiens ; legationibus in Europa praepositus necnon operibus socialibus intercessionis et reconciliationis ». [[20]](#_ftn20)  Mutati aevi interpres potissime animarumque moderator est in adiunctis temporis nova quadam ratione Deum sitientibus.
+
+*Omnia pro filiis suis agit caritas*
+
+Inter annos MDCXX et MDCXXI, nempe vita sua iam occidente, Franciscus ad quemdam Dioecesis suae presbyterum verba apta ad suum de aetate consilium illustrandum mittebat. Eum hortabatur, ut desiderio indulgeret textibus pro ingenio suo scribendis se dedere, qui recentiores flagitationes interciperent, earum intellegentes necessitatem. « Mihi dicendum est vobis mundanarum affectionum notitiam, quae cotidie ipse acquiro, me movere, ut studiosissime exoptem divinam Benignitatem mentes nonnullorum famulorum suorum concitare ad scribendum iuxta iudicium huius miseri orbis ». [[21]](#_ftn21) Huius cohortationis rationem in sua ipsa de tempore sententia inveniebat : « Ita gracilis prorsus fit orbis, ut nemo propediem amplius audeat tangere eum, nisi mollibus indutus digitabulis, nec eius ulcera mederi, nisi caepae usurpatis emplastris ; at quid refert an homines sanentur ac denique serventur ? Regina nostra, quae caritas est, omnia pro filiis suis agit ». [[22]](#_ftn22) Habitus nihil admodum usitatus est, eo minus coram quadam clade extrema deditio. Perceptio potius erat cuiusdam currentis vicissitudinis ac necessitatis, funditus evangelicae, intellegendi quomodo in ea quisque collocari posset.
+
+Eandem conscientiam alioquin in animo volverat atque ab initio *Tractatus amoris divini*, in *Praefatione ad lectorem*, ostenderat : « Perpendi conditionem […] ingeniorum huius saeculi, uti perpendere debui ; plurimum enim interest considerare, quo tempore scribatur ». [[23]](#_ftn23) Lectoris insuper benevolentiam poscens, affirmabat : « Quodsi deprehenderis stylum nonnihil diversum esse ab eo, quo *Philothaeam* scribens usus sum et utrumque autem permagno discrimine differre ab eo, quem adhibui in *Defensione Sanctae Crucis*, sciendum est, quod undeviginti annorum spatio multa discuntur, et multa oblivioni traduntur ; quod et sermo in militia alius sit, alius in pace ; insuper quod alius modus sit loquendi tironibus, alius sociis veteranis ». [[24]](#_ftn24) Hac coram mutatione, tamen, unde erit inchoandum ? Haud procul a rebus ipsis a Deo gestis cum homine. Hinc extremum eius *Tractatus* propositum : « Ego certe solum cogitavi simpliciter et ingenue, sine arte et multo magis sine fuco repraesentare historiam originis, progressuum, imminutionum, operationum, proprietatum, commodorum, utilitatum et excellentiarum Amoris divini ». [[25]](#_ftn25)
+
+*De aetatis transitus quaestionibus*
+
+Quarta centesima eius obitus occurrente memoria, de sancti Francisci de Sales hereditate pro nostra aetate quaesiti sumus eiusque ingenii facilitatem ac prospiciendi intellectum collustrantes duximus. Qua ex Dei dono, qua ex natura sua, qua etiam ex constanti suae vitae cultu, temporum mutationem perspicue perceperat. Numquam ipse cogitatione finxerat se tantam Evangelii nuntiandi occasionem agniturum esse. Verbum, quod inde ab adulescentia sua amaverat, viam sibi aperire valebat, novos atque improvisos caelos pandens in orbe celeriter transeunte.
+
+Quod praecipuum pensum nos exspectat etiam in hoc aetatis nostrae transitu : Ecclesia esse non modo se ipsam referens, ab omni vanitate soluta, sed quae mundum habitare valeat, cum hominibus vitam communicare, simul ambulare, audire et excipere. [[26]](#_ftn26) Hoc Franciscus de Sales egit, aetatem suam, gratia auxiliante, legens. Quam ob rem ipse nos a nimia sollicitudine invitat egredi nostrum, structurarum, imaginis socialis ac quaerere potius quaenam populi nostri reapse sint necessitates et spirituales exspectationes. [[27]](#_ftn27) Interest, igitur, etiam in hunc diem, ut praecipuas eiusdem optiones recenseamus ad transitum evangelica sapientia habitandum.
+
+*Aura et alae*
+
+Prima harum optionum fuit unicuique iuxta condicionem eius felicem inter Deum et hominem revolvere ac rursus proponere necessitudinem. Extrema, denique, *Tractatus* ratio et finis certus sane est Dei amoris hominibus illius aevi explanare suavitatem. « Quaenam sunt – quaerit ille – funes, quibus divina Providentia ad amorem suum corda nostra trahere solet !». [[28]](#_ftn28) A verbis *Oseae* 11, 4, mirum in modum incipiens, [[29]](#_ftn29) haec ordinaria instrumenta describit uti « vincula humanitatis vel caritatis et amicitiae ». « Dubio procul […] – scribit – non trahimur vinculis ferreis, uti trahuntur tauri et bubali, sed per modum deliciarum et delectationum sanctarumque inspirationum, quae […] sunt *funiculi Adam et humanitatis*, id est, proportionati et convenientes cordi humano, cui libertas innata est, nos allicit ». [[30]](#_ftn30) Haec per vincula Deus traxit populum suum a servitute, eum ambulare docens, manu regens, sicuti pater vel mater cum puero suo faciunt. Nullum adest ergo iussum externum, nulla tyrannica vis et ex arbitrio iniuncta, nulla violentia. Potius ad persuadendum apta adest invitationis cuiusdam forma, quae libertatem humanam servat illabefactam. « Gratia – pergit de nonnullis vitae memoriis, quibus inciderat, profecto recordans –  pollet quidem insigni fortitudine, sed non ad vi cogendos, sed ad suaviter alliciendos animos ; eidem gratiae inest sancta quaedam violentia, non ad nostram libertatem violenter agendam, sed ad efficiendam eam castam nostri amatricem. Agit […] fortiter, sed simul ita suaviter, ut voluntas nostra sub adeo potenti actione minime succumbat ; nos quidem premit, sed non opprimit nostrum arbitrium. Itaque, quibuscumque tandem adhibitis ab ea conatibus, possumus illius motibus consentire vel resistere, prout nobis libuerit ». [[31]](#_ftn31)
+
+Paulo ante, eandem necessitudinem adumbraverat mirum per exemplum illius “sine pedibus”: « Sunt certae quaedam aves, Theotime, quas Aristoteles nuncupat “apodes”, eo quod crura habeant admodum brevia et pedes ita omnis roboris expertes, ut iis non magis sint usui, quam si iis prorsus carerent. Ea si semel descendant ad terram, ita ei manent affixae, ut nunquam amplius ex se possint volatum resumere : quia […] nullum neque crurum neque pedum habent usum ; unde nequeunt ullo modo se ipsas propulsare et in aërem vibrare proindeque, ubi decidunt, ibi manent, imo et moriuntur, nisi propitium suae impotentiae aliquem nanciscantur ventum, qui, iacens flatum suum super faciem terrae, eas attollat et elevet, uti plures alias res consuevit attollere. Tunc enim, si, impendentes alarum suarum remigia, cum vento concurrente se attollant cooperando virtuti et primo impetui, idem ventus continuans suum succursum adversus eas attollet altius atque altius earum volatum ». [[32]](#_ftn32) Talis est homo : qui a Deo creatus, ut volet omnesque suas virtutes in vocationem ad amorem pandat, non idoneus ad evolandum fieri periclitatur, cum ad terram descendat auraeque Spiritus alas rursus aperire minime adsentiatur.
+
+En, igitur, “forma”, per quam hominibus Dei gratia destinatur : illa subtilium admodumque humanorum Adae funiculorum. Numquam desinit Dei virtus plane prompta fieri volatum restituere atque tamen dulcedo eius ita efficit, ne libertas ei assentiendi violetur vel irritetur. Hominis est exsurgere necne. Licet gratia eum expergiscentem tetigisset sine eo, ipsa non vult hominem exsurgere sine adsensu suo. Ita ille in conclusione ducit consilium suum : « Theotime, inspirationes nos praeveniunt et, antequam animadvertimus, sui in nobis imprimunt sensum ; postquam autem eas percepimus, nostri est iis obsecundare et adhaerere aut, ab iis dissentiendo, illas ipsas propulsare : efficiunt quidem, ut eas in nobis sine nobis sentiamus, sed efficere nequeunt, ut eis sine nobis assentiamur ». [[33]](#_ftn33) Ideo, quoad cum Deo conversationem, semper de experimento gratis dato agitur, quod Patris amoris altitudinem confirmat.
+
+Attamen, nunquam gratia haec hominem inertem efficit. Ea ad intellegendum ducit nos Dei amore radicitus antecedi atque primum eius donum constare ex quo quod ab eiusdem amore recipiatur. Quisque autem sui exitui cooperari debet, alas suas fidenter Dei aurae pandens. Praecipuum hic inspicimus vocationis nostrae humanae : « Officium est, quod Deus mandat Adae et Evae in *Genesis* narratione, ut fecundi sint. Humano generi mandatum de rebus creatis permutandis, extruendis atque moderandis datum est, officium videlicet positivum, quod sibi vult ex ipsis et cum ipsis creare. Minime, ergo, pendet posterum tempus ex machinatione, quae cerni non potest, cuius humani inertes spectatores evadunt. Minime quidem ! Qui primas partes agunt sumus, cocreatores – ut verbum cogam – sumus ». [[34]](#_ftn34) Hoc est quantum Franciscus de Sales bene intellexit et in suo spiritus moderatoris munere tradere conatus est.
+
+*Devotio vera*
+
+Altera enim summa optio illa fuit de devotione disputanda. Hoc etiam in casu, sicuti his nostris diebus, novus aetatis transitus suscitaverat, de hac re, haud paucas percontationes. Duo praesertim et hodie percipi reponique quaerunt quaestiones. Prior ad ipsam devotionis notionem pertinet, altera ad eiusdem universalem et popularem naturam. In primis monstrare quid pro devotione intellegatur praecipua cura est, quam in initio *Philotheae* invenimus : « ante omnia noveris oportet quidnam sit virtus devotionis. Nam, una tantum vera devotio est, sed plures falsae et vanae ; hinc, nisi noveris vera discernere, falli et errare posses tempus amittens, aliquam ineptam et superstitiosam consectans devotionem ». [[35]](#_ftn35)
+
+Iucunda semperque rata Francisci de Sales est descriptio falsae devotionis, in qua haud difficile reperimur, et haud sine quodam sano argutoque lepore : « Qui ieiunio addictus est, se devotum reputabit, cum modo ieiunet, licet intus cor eius odio iaceat refertum ; dumque minime audeat linguam vino ac ne aqua quidem sobrietatis causa intingere, illam sanguini proximorum palam immergere, iis detrahendo et calumniando, non verebitur. Alius se devotum existimabit, qui plurimas quotidie preces et orationes decurrat, etsi exinde lingua illius in verba morosa, querula, arrogantia et iniuriosa in domesticos et vicinos suos tota esse effundat. Alius libenter admodum eleemosynas in egenos et inopes e crumena educit, benignitatem tamen et amorem ex corde suo elicere ac depromere nequit, quo inimicis ignoscat. Erit et alius, qui quidem inimicis suis haud difficulter iniurias omnes dimittet, sed ut creditoribus suis satisfaciat, et cum iis rationes ineat, quam aegerrime in animum suum inducet, et nonnisi violenter ac iudice compellente ». [[36]](#_ftn36) Quae cum sint nempe vitia luctaminaque perpetua, etiam hodierna, Sanctus ergo concludit : « Omnes hi vulgo devoti habentur, revera tamen devoti non sunt ». [[37]](#_ftn37)
+
+Novitas ac devotionis veritas alibi autem inveniuntur, in quadam radice penitus ad vitam divinam in nobis adstricta. Hoc in modo « vera vivaque devotio amorem Dei praesupponit, nec quid aliud est, quam versus quidam Dei amor ; non tamen qualiscumque et talis qualis amor ». [[38]](#_ftn38) Quae in fervida eius cogitatione nec quidquam aliud est praeter, « ne multa dicamus, quandam agilitatem et vivacitatem spiritualem, cuius adminiculo caritas suas in nobis actiones, aut potius nos per illam, prompte affectuoseque exsequitur et operatur ». [[39]](#_ftn39) Ea, ergo, caritati non assistit, sed eiusdem est ostensio, quae pariter ad illam adducit. Sicuti flamma est prae igne : excitat enim vehementiam eius sine qualitatis variatione. « Itaque caritas et devotio non plus inter se differunt, quam ignis et flamma ; quod caritas, cum spiritualis quidam ignis sit, quando vehementer inflammata et accensa est, dicatur devotio ; adeo, ut devotio ad caritatis ignem aliud non addat, praeter flammam, quo caritatem et alacrem, et promptam et diligentem, non modo ad divina mandata observanda, verum etiam ad consilia et inspirationes coelestes exercendas reddat ». [[40]](#_ftn40) Devotio sic percepta nihil reconditi habet. Conversatio vitae potius est, mos quidam agendi in certis cotidianae exsistentiae adiunctis. Quae parva dierum, sicut alimentum et vestitum, negotium atque otium, amorem ac procreationem diligentiamque erga officia ad artem exercendam pertinentia colligit atque interpretatur ; breviter, vocationem uniuscuiusque illuminat.
+
+Devotionis popularis radix hic animadvertitur, iam inde ab initio *Philotheae* confirmata : « Quotquot de devotione scripserunt, omnes pene sunt circa instructionem eorum, qui a mundi commercio prorsus erant sequestrati, versati, aut saltem eam devotionis formam tradiderant, quae ad totalem hanc solitudinem viam sterneret. Meum vero propositum et scopus est, instruere et edocere eos, qui mediis in urbibus, familiis et in aula conversantur, quique ob vitae suae statum et conditionem, commune quoddam vitae genus, quoad exteriora, vovere tenentur ». [[41]](#_ftn41) Hac de causa valde aberrat qui cogitet devotionem relegare alicui tuto ac seposito spatio. Ea potius omnium est ac pro omnibus, ubicumque simus, et unusquisque secundum vocationem suam eam usurpare potest. Sicuti sanctus Paulus VI scribebat occasione quarti elapsi saeculi ab ortu Francisci de Sales, « sanctimonia non unius vel alius coetus praerogativa est, sed omnibus christiano nomine decoratis praeceptiva admovetur invitatio : “Amice, ascende superius” (*Lc* 14, 10); omnes lege tenentur scandendi montem Domini, non uno eodemque tamen itinere. “Devotio dissimili modo colenda est ab homine nobili, ab operario, a famulo cubiculario, a principe, a vidua, a nubili, ab uxore. Quin etiam accommodanda est devotionis res et usus uniuscuiusque viribus, negotiis, officiis”». [[42]](#_ftn42) Civitatem saeculi percurrere docet hominem interiorem tuendo, desiderium perfectionis coniungere omni vitae rationi medium locum reperiendo a mundo non diremptum, quem praecipit autem incolere, aestimare, discendo etiam recta intervalla ab eodem instituere : hoc fuit eius consilium, quod omnis viri mulierisque temporis nostri pretiosum perseverat esse documentum.
+
+Id est Concilii Vaticani II propositum universalis vocationis ad sanctitatem : « Tot ac tantis salutaribus mediis muniti, christifideles omnes, cuiusvis conditionis ac status, ad perfectionem sanctitatis qua Pater ipse perfectus est, sua quisque via, a Domino vocantur ». [[43]](#_ftn43) “In via quisque sua”. « Ergo non est animo concidendum, cum sanctitatis exempla contemplamur quae attingere videmur non posse ». [[44]](#_ftn44)[4] Mater Ecclesia haec nobis proponit exempla, non quae eadem conemur iterare, sed ut concitent nos ad unam ac praecipuam viam calcandam, quam Dominus pro nobis censuit. « Tanti est unumquemque credentem suam viam reperire et meliora ex se trahere, proprium quiddam quod posuit in eo Dominus (cfr  *1* *Cor* 12, 7)». [[45]](#_ftn45)
+
+*Vitae exstasis*
+
+Haec omnia sanctum Episcopum adduxerunt, ut vitae christianae integritatem intellegeret veluti operis ac vitae exstasim. [[46]](#_ftn46) Ea autem minime confundenda est cum facili fuga vel cum intimo quodam recessu, neque adeo tristi ac pallenti cum oboedientia. Hoc periculum in vita fidei scimus semper adesse. Nam, « sunt christiani, qui more quodam Quadragesimae sine Paschate uti videantur. […] Eos comprehendimus qui ad tristitiam graves ob difficultates, quibus laborant, inclinant, sed gradatim permittere oportet, ut laetitia fidei expergiscere incipiat, veluti secreta quaedam, sed firma fiducia, etiam in mediis pessimis angustiis ». [[47]](#_ftn47)
+
+Concedere laetitiam expergisci est quod Franciscus de Sales exprimit, cum “operis ac vitae exstasim” describit. Eius gratia « non vivimus solum vitam civilem, honestam et christianam, sed vitam super humanas facultates, spiritualem, devotam et exstaticam, id est vitam utique extra et supra nostram condicionem naturalem ». [[48]](#_ftn48) Hic in mediis et splendidissimis *Tractatus* paginis sumus. Exstasis felix intemperantia est vitae christianae, ultra merae observantiae mediocritatem iactae : « Non furari, non mentiri, luxuriam non moliri, Deum orare, frustra non iurare, patrem diligere et honorare, non occidere, hoc est secundum rationem naturalem hominis vivere ; sed omnia nostra bona relinquere, paupertatem amare, eam nuncupare et habere Dominam suavem, existimare opprobria, despectum, humiliationes, persecutiones, martyria pro felicitate et beatitudine, se intra terminos summae castitatis continere et tandem in mundo et in hac vita mortali vivere contra omnes opiniones et praecepta mundi contraque cursum fluvii huius vitae iugi mansuetudine rerumque recusatione ac nostri contemptione ; hoc vivere non est secundum humanam naturam, sed super eam ; vivere non est in nobis, sed extra et supra nos ; et cum nemo possit hoc modo supra se ipsum exire, nisi Pater aeternus eum trahat, ideo sequitur ut hoc vitae genus esse debeat continuus raptus et perpetua actionis et operationis exstasis ». [[49]](#_ftn49)
+
+De vita agitur, quae fontes laetitiae repperit contra unamquamque suam exsiccationem, contra temptationem in se recedendi. Nam, « magnum mundi hodierni discrimen, ex multiplici gravique eius bonorum consumendorum suppeditatione, tristitia quaedam est in singuli animo reclusa, quae e commodo et avido corde, ex aegra inanium delectamentorum inquisitione, necnon e segregata conscientia manat. Ubi interioris hominis vita in propriis lucris clauditur, ibi spatium pro aliis iam non exstat, pauperes iam non ingrediuntur, vox Dei iam non auditur, dulcis laetitia amoris eius iam non delectat, ardor benefaciendi non palpitat. Etiam christifideles hoc certo ac firmiter periclitantur. Plurimi huc cadunt ac seipsos in indignabundos, aegros ac torpentes convertunt ». [[50]](#_ftn50)
+
+Descriptioni “actionis ac vitae exstasis” sanctus Franciscus tandem duas animadversiones adicit, quae etiam tempore nostro admodum praecellunt. Prior ad efficacem rationem huiusmodi vitae conversationis veritatis discernendae, altera autem ad eiusdem altam fontem spectat. Quod ad discernendi rationem attinet, affirmat ille quod, quamvis talis exstasis verum exitum e se postulet, id tamen derelictio vitae sibi non vult. Quod numquam obliviscatur oportet ad periculosas depravationes vitandas. Ut aliis utamur verbis, qui nimis confidit ad Deum se attollere, sed caritate erga proximum non vivit, seipsum fallit et alios.
+
+Eandem hic redinvenimus rationem, quam ipse ad verae pietatis proprietatem referebat. « Quando in oculos incurrit quispiam, qui in oratione raptus habet, quorum causa egreditur extra se et ascendit supra se ipsum in Deo, ac nihilominus vitae suae exstasim non habet seu vitam non agit sublimem et Deo coniunctam, […] praecipue ex continua caritate, crede mihi, Theotime, raptus eius admodum suspecti sunt et periculosi ». Quod efficacius concludit : « Transcendere se in oratione et subesse sibi in vita et operatione, angelici esse in meditatione, bruti autem in sermocinatione […] verum signum est huiusmodi raptus et exstases aliud non esse, nisi delectamenta et deceptiones spiritus maligni ». [[51]](#_ftn51) Quorum denique Paulus Corinthios iam in hymno de caritate commonefaciebat : « Si habuero omnem fidem, ita ut montes transferam, caritatem autem non habuero, nihil sim. Et si distribuero in cibos omnes facultates meas et si tradidero corpus meum, ut glorier, caritatem autem non habuero, nihil mihi prodest » (*1 Cor* 13, 2-3).
+
+Ad mentem s. Francisci de Sales, igitur, vita christiana numquam exstasi caret, at verumtamen exstasis sincera sine vita non substat. Vita sine exstasi enim in oboedientiam opacam dilabi potest, in Evangelium laetitiae suae oblitum. Ceterum, exstasis sine vita ludibrio et fraudi Maligni facile exponitur. Christianae vitae magni vertices non possunt in alterutrum evanescere. Alter potius alterius sustentat veritatem. Veritati sic non deest iustitia, obsequio officium, liberae voluntati lex et vicissim.
+
+Quod autem ad altum huius exstasis pertinet fontem, sapienter ille amori a Filio incarnato patefacto eum iungit. Siquidem « amor primus actus est et principium vitae nostrae devotae vel spiritualis, per quod vivimus, sentimus, movemur » atque « vita nostra spiritalis talis est, quales sunt motus nostri affectivi », tunc patet « cor affectionem non habens carere amore », necnon « cor habens amorem affectivo motu minime carere ». [[52]](#_ftn52) Fontem attamen huius, qui cor attrahit, amoris vita est Iesu Christi : « Nihil ita cor hominis urget sicut amor » et huius urgentiae culmen est quod « Iesus Christus mortuus est pro nobis, nobis morte sua praestans vitam. Nos iam nullo alio vivimus titulo, quam quod ille mortuus est et mortuus est pro nobis, pro bono nostro et in nobis ». [[53]](#_ftn53)
+
+Animum haec denuntiatio movet ostendens, praeter illuminatam atque inusitatam necessitudinis inter Deum et hominem speciem, artum vinculum affectivum, quod sanctum Episcopum Domino Iesu adstringebat. Exstasis vitae et actionis veritas vaga non est, sed apparet secundum formam Christi caritatis, quae ad culmen suum pervenit supra crucem. Amor hic existentiam non abolet, sed magnitudine extraordinaria eam irradiat.
+
+Quamobrem sanctus Franciscus de Sales Calvariumeffingit ex pulcherrima « montis amantium » comparatione. [[54]](#_ftn54) Hic, et hic solummodo, intellegitur quod « non potest haberi vita sine amore neque amor sine morte Redemptoris, sed hinc foras quidquid est aut mors aeterna est aut aeternus ardor et omnis sapientia christiana locata est in dilectu bonorum ». [[55]](#_ftn55) Hoc in modo *Tractatum* suum perficere potest, conclusionem proferens sermonis cuiusdam sancti Augustini de caritate : « Quid illa fidelius, non vanitati sed aeternitati ? Nam ideo tolerat omnia in praesenti vita, quia credit omnia de futura vita ; et suffert omnia quae hic immittuntur, quia sperat omnia quae ibi promittuntur : merito nunquam cadit. Ergo sectamini caritatem, et eam sancte cogitantes afferte fructus iustitiae. Et quidquid uberius, quam ego dicere potui, vos inveneritis in eius laudibus, appareat in vestris moribus ». [[56]](#_ftn56)
+
+Haec e vita sancti Episcopi Anneciensis perlucent et unicuique nostrum denuo traduntur. Eventus IV centesimae memoriae a natali eius adiuvet nos, ut, eiusdem intercessione, in itinere sancti populi Dei fidelis dona Spiritus Dominus largiatur benignus.
+
+*Datum Romae, Laterani, die XXVIII mensis Decembris, anno MMXXII, Pontificatus Nostri X.*
+
+FRANCISCUS
+
+* * *
+
+[[1]](#_ftnref1) S. Franciscus de Sales, *Tractatus amoris divini*, Praefatio : ed. Ravier – Devos, Parisiis 1969, 336.
+
+[[2]](#_ftnref2) Id., *Ep*. 2103 : *Ad dominum Silvestrum de Salutiis de Mentha, abbatem Altacumbensem* (3 Novembris 1622): *Opera omnia*, XXVI (*Opuscula*, V) *,* Annecii 1932, 490-491.
+
+[[3]](#_ftnref3) Id., *Ep*. 1961 : *Ad dominam quandam* (19 Decembris 1622): *Opera omnia*, XX (*Epistulae*, X : *1621-1622*) *,* Annecii 1918, 395.
+
+[[4]](#_ftnref4) Id., *Tractatus amoris divini*, I, 15 : ed. Ravier – Devos, Parisiis 1969, 395.
+
+[[5]](#_ftnref5) Id., *Collocutiones spirituales*, Collocutio ultima [XXI]: ed. Ravier – Devos, Parisiis 1969, 1319.
+
+[[6]](#_ftnref6) Adhort. Ap. *[Gaudete et exsultate](https://www.vatican.va/content/francesco/la/apost_exhortations/documents/papa-francesco_esortazione-ap_20180319_gaudete-et-exsultate.html#Voluntas_sine_humilitate)* (19 Martii 2018), 49 : *AAS* 110 (2018), 1124.
+
+[[7]](#_ftnref7) *[Ibid](https://www.vatican.va/content/francesco/la/apost_exhortations/documents/papa-francesco_esortazione-ap_20180319_gaudete-et-exsultate.html#Novi_pelagiani)*., 57 : *AAS* 110 (2018), 1127.
+
+[[8]](#_ftnref8) Cfr *[ibid](https://www.vatican.va/content/francesco/la/apost_exhortations/documents/papa-francesco_esortazione-ap_20180319_gaudete-et-exsultate.html#Mens_sine_Deo_ac_sine_carne).*, 37-39 : *AAS* 110 (2018), 1121-1122.
+
+[[9]](#_ftnref9) S. Franciscus de Sales, *Collocutiones spirituales*, Collocutio ultima [XXI]: ed. Ravier – Devos, Parisiis 1969, 1319.
+
+[[10]](#_ftnref10) *Ibid.*: 1308.
+
+[[11]](#_ftnref11) *Ibid*.
+
+[[12]](#_ftnref12) Cfr *Epistula ad Rev. Dom. Ivonem Boiniveau, episcopum Anneciensem, IV occurrente centesima memoria ordinationis episcopalis s. Francisci de Sales* (23 Novembris 2002), 3 : *Insegnamenti di Giovanni Paolo II*, XXV/2 (2002), 767.
+
+[[13]](#_ftnref13) S. Franciscus de Sales, *Tractatus amoris divini*, Praefatio : ed. Ravier – Devos, Parisiis 1969, 336.
+
+[[14]](#_ftnref14) Benedictus XVI, *Catechesis* (2 Martii 2011): *Insegnamenti*, VII/1 (2011), 270.
+
+[[15]](#_ftnref15) S. Franciscus de Sales, *Fragm. intima*, 3 : *Actus fiduciae heroicae in Deum*, in *Opera omnia*, XXII (*Opuscula*, I), Annecii 1925, 41.
+
+[[16]](#_ftnref16) Cfr *Allocutio ad Commissionem Theologicam Internationalem* (29 Novembris 2019): *L’Osservatore Romano*, 30 Novembris 2019, p. 8.
+
+[[17]](#_ftnref17) S. Franciscus de Sales, *Ep*. 165 : *Ad Summum Pontificem Clementem VIII* (ex. mense Octobri 1602): *Opera omnia*, XII (*Epistolae*, II : *1599-1604*), Annecii 1902, 128.
+
+[[18]](#_ftnref18) H. Bremond, *L’humanisme dévot : 1580-1660*, in *Histoire littéraire du sentiment religieux en France : depuis la fin des guerres de religion jusqu’à nos jours*, I, Jérôme Millon, Gratianopoli 2006, 131.
+
+[[19]](#_ftnref19) S. Franciscus de Sales, *Ep*. 168 : *Ad religiosas monasterii « Filiarum Dei »* (22 Novembris 1602): *Opera omnia*, XII (*Epistolae*, II : 1599-1604), Annecii 1902, 105.
+
+[[20]](#_ftnref20) Benedictus XVI, *Catechesis*, diei 2 Martii 2011 : *Insegnamenti*, VII/1 (2011), 272.
+
+[[21]](#_ftnref21) S. Franciscus de Sales, *Ep.* 1869 : *Ad Dominum Petrum Jay* (a. 1620 vel 1621): *Opera omnia*, XX (*Epistolae*, X : *1621-1622*), Annecii 1918, 219.
+
+[[22]](#_ftnref22) *Ibid*.
+
+[[23]](#_ftnref23) Id. *Tractatus amoris divini*, Praefatio : ed. Ravier – Devos, Parisiis 1969, 339.
+
+[[24]](#_ftnref24) *Ibid*., 347.
+
+[[25]](#_ftnref25) *Ibid*., 338-339.
+
+[[26]](#_ftnref26) Franciscus, *Allocutio ad episcopos, presbyteros, religiosos, alumnos seminarii et catechistas*, Bratislaviae (13 Septembris 2021): *L’Osservatore Romano*, 13 Septembris 2021, pp. 11-12
+
+[[27]](#_ftnref27) *Ibid*.
+
+[[28]](#_ftnref28) S. Franciscus de Sales, *Tractatus amoris divini*, II, 12 : ed. Ravier – Devos, Parisiis 1969, 444.
+
+[[29]](#_ftnref29) « In funiculis humanitatis trahebam eos, in vinculis caritatis ; et fui eis, quasi qui elevant infantem ad maxillas suas, et declinavi ad eum, ut vesceretur ».
+
+[[30]](#_ftnref30) S. Franciscus de Sales, *Tractatus amoris divini*, II, 12 : ed. Ravier – Devos, Parisiis 1969, 444.
+
+[[31]](#_ftnref31) *Ibid.*, II, 12 : 444-445.
+
+[[32]](#_ftnref32) *Ibid.*, II, 9 : 434.
+
+[[33]](#_ftnref33) *Ibid.*, II, 12 : 446.
+
+[[34]](#_ftnref34) Francesco, *Ritorniamo a sognare. La strada per un futuro migliore*. Colloquium cum Augustino Ivereigh, Piemme, Mediolani 2020, 8.
+
+[[35]](#_ftnref35) S. Franciscus de Sales, *Introductio ad vitam devotam*, I, 1 : ed. Ravier – Devos, Paris 1969, 31.
+
+[[36]](#_ftnref36) *Ibid.*: 31-32.
+
+[[37]](#_ftnref37) *Ibid.*: 32.
+
+[[38]](#_ftnref38) *Ibid.*.
+
+[[39]](#_ftnref39) *Ibid.*
+
+[[40]](#_ftnref40) *Ibid.*, 33.
+
+[[41]](#_ftnref41) *Ibid.*, Praefatio : ed. Ravier – Devos, Parisiis 1969, 23.
+
+[[42]](#_ftnref42) Epist. Ap. *[Sabaudiae gemma](https://www.vatican.va/content/paul-vi/la/apost_letters/documents/hf_p-vi_apl_19670129_sabaudiae-gemma.html)*, quarto exeunte saeculo ab ortu s. Francisci de Sales, Ecclesiae doctoris (22 Ianuarii 1967): *AAS* 59 (1967), 119.
+
+[[43]](#_ftnref43) Sacrosanctum Oecumenicum Concilium Vaticanum II, Const. dogm.  *[Lumen gentium](https://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_lt.html)*, 11 : *AAS* 57 (1965), 61.
+
+[[44]](#_ftnref44) Adhort. Ap. *[Gaudete et exsultate](https://www.vatican.va/content/francesco/la/apost_exhortations/documents/papa-francesco_esortazione-ap_20180319_gaudete-et-exsultate.html#Dominus_vocat_)* (19 Martii 2018), 11 : *AAS* 110 (2018), 1114.
+
+[[45]](#_ftnref45) *Ibid*.
+
+[[46]](#_ftnref46) S. Francesco di Sales, *Tractatus amoris divini*, VII, 6 : ed. Ravier – Devos, Parisiis 1969, 682.
+
+[[47]](#_ftnref47) Adhort. Ap. *Evangelii gaudium* (24 Novembris 2013), 6 : *AAS* 105 (2013), 1021-1022.
+
+[[48]](#_ftnref48) S. Franciscus de Sales, *Tractatus amoris divini*, VII, 6 : ed. Ravier – Devos, Parisiis 1969, 682-683.
+
+[[49]](#_ftnref49) *Ibid.*: 683.
+
+[[50]](#_ftnref50) Adhort. Ap. *Evangelii gaudium* (24 Novembris 2013), 2 : *AAS* 105 (2013), 1019-1020.
+
+[[51]](#_ftnref51) S. Franciscus de Sales, *Tractatus amoris divini*, VII, 7 : ed. Ravier – Devos, Paris 1969, 685.
+
+[[52]](#_ftnref52) *Ibid.*: 684.
+
+[[53]](#_ftnref53) *Ibid.*, VII, 8 : 687.688.
+
+[[54]](#_ftnref54) *Ibid.*, XII, 13 : 971.
+
+[[55]](#_ftnref55) *Ibid*.
+
+[[56]](#_ftnref56) *Sermo* 350, 3 : *PL* 39, 1535.

@@ -1,0 +1,27 @@
+**PRÉSENTATION DES LETTRES DE CRÉANCE DES AMBASSADEURS DE**
+
+**PAKISTAN, ÉMIRATS ARABES UNIS, BURUNDI, QATAR**
+
+***DISCOURS DU PAPE FRANÇOIS***
+
+*Salle Clémentina*
+
+*Jeudi 19 mai 2022*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2022/5/19/nuovi-ambasciatori.html)]**
+
+* * *
+
+Excellences,
+
+Je vous souhaite une chaleureuse bienvenue et je reçois avec plaisir les Lettres qui vous accréditent près le Saint-Siège comme ambassadeurs extraordinaires et plénipotentiaires de vos pays : Pakistan, Emirats arabes unis, Burundi et Qatar. En transmettant mes salutations à vos chefs d’Etat respectifs, je vous demande de bien vouloir les assurer de mon souvenir dans la prière pour l’accomplissement de leur service important.
+
+Même s’il n’existe pas un moment idéal, vos commencez certainement votre nouvelle mission à une période particulièrement difficile. La dernière fois que j’ai rencontré vos collègues en janvier, la famille humaine commençait à pousser un soupir de soulagement, car nous étions en train de nous libérer lentement mais sûrement de l'emprise de la pandémie.  Il semblait que nous pouvions enfin revenir à un certain sentiment de normalité, tout en gardant à l'esprit les leçons apprises au cours des deux dernières années. Puis, le nuage sombre de la guerre s’est abattu sur l’Europe de l’Est, enveloppant ensuite directement ou indirectement le monde entier.  Après avoir fait l’expérience des effets dévastateurs de deux guerres mondiales et des menaces nucléaires pendant la guerre froide, associée à un respect croissant pour le rôle du droit international et à la création d’organisations politiques et économiques multinationales axées sur la cohésion de la communauté mondiale, la plupart des gens pensaient que la guerre en Europe était un lointain souvenir. Et l’on pensait aux enfants qui auraient demandé à leur mère : « Maman, qu’est-ce que la guerre ?». Mais il n’en a pas été ainsi.
+
+Toutefois, comme nous l'avons vu au plus fort de la pandémie, même dans une tragédie de cette ampleur, le meilleur de l'humanité peut émerger. Sans doute plus que jamais, les formes modernes de communication ont ébranlé nos consciences, en présentant en temps réel des images fortes et parfois effroyables de souffrance et de mort. Ces mêmes images ont également inspiré un sentiment de solidarité et de fraternité, qui a conduit de nombreux pays et personnes à fournir une aide humanitaire. Je pense en particulier aux pays qui accueillent coûte que coûte les réfugiés du conflit. Nous avons vu des familles ouvrir les portes de leur maison à d’autres membres de la famille, à des amis et même à des inconnus.
+
+Dans le même temps, il ne faut pas oublier qu’il existe de nombreux autres conflits en cours dans le monde qui ne reçoivent que peu ou pas d’attention, notamment de la part des médias. Nous formons une unique famille humaine et le degré d’indignation exprimé, le soutien humanitaire offert et le sentiment de fraternité ressenti à l’égard de ceux qui souffrent ne doivent pas être fondés sur la géographie ou sur l’intérêt personnel. Parce que « si toute personne a une dignité inaliénable, si chaque être humain est mon frère ou ma sœur et si le monde appartient vraiment à tous, peu importe que quelqu’un soit né ici ou vive hors de son propre pays » ( *[Fratelli tutti](https://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html#125)*, n. 125). Cela vaut non seulement pour la guerre et les conflits violents, mais aussi pour d’autres situations d’injustice qui frappent la famille humaine : le changement climatique, la pauvreté, la faim, le manque d’eau potable, l’accès à un travail décent et à une éducation adéquate, pour n’en citer que quelques-unes.
+
+Le Saint-Siège continue à œuvrer à travers de nombreux canaux pour promouvoir des solutions pacifiques dans les situations de conflit et pour soulager les souffrances causées par d’autres problèmes sociaux. Il le fait avec la conviction que les problèmes qui concernent la famille humaine tout entière exigent une réponse unie de la part de la communauté internationale, dans laquelle chaque membre ait son rôle à jouer. Chers ambassadeurs, vous avez un rôle privilégié à jouer à cet égard. Vous ne savez que trop bien que la guerre est toujours un échec pour l’humanité et qu’elle est contraire au service important que vous accomplissez, en essayant de construire une culture de la rencontre à travers le dialogue et en encourageant la compréhension réciproque entre les peuples, ainsi qu'en défendant les nobles principes du droit international. Votre service n’est en aucun cas facile, mais peut-être que les situations d’inégalité et d’injustice dont nous sommes témoins dans le monde aujourd'hui nous aident à apprécier encore plus votre travail. Malgré les défis et les revers, nous ne devons jamais perdre espoir dans nos efforts pour construire un monde où prévalent la fraternité et la compréhension réciproque et où les désaccords sont résolus à travers des moyens pacifiques.
+
+Chers ambassadeurs, au début de votre nouvelle mission, je vous adresse mes meilleurs vœux et je vous assure que les bureaux du Saint-Siège sont à votre disposition pour affronter les questions d’intérêt commun. J’invoque de tout cœur les bénédictions divines de sagesse et de paix sur vous, sur vos familles, sur vos collaborateurs diplomatiques et sur votre personnel. Merci !

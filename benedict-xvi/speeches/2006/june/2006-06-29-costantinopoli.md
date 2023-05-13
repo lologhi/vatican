@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À LA DÉLÉGATION DU PATRIARCAT***
+
+***Œ CUMÉNIQUE DE CONSTANTINOPLE***
+
+*Solennité des saints Pierre et Paul*
+
+*Jeudi 29 juin 2006*
+
+*Chers frères dans le Christ,*
+
+C'est avec une grande joie et une sincère affection dans le Seigneur que je vous souhaite aujourd'hui la bienvenue, Métropolite Jean, ainsi qu'aux autres membres de la délégation que Sa Sainteté Bartholomaios I et le Saint-Synode du Patriarcat oecuménique ont eu la courtoisie d'envoyer pour la fête des saints Pierre et Paul, patrons de l'Eglise de Rome. J'offre à chacun de vous mes salutations cordiales. C'est pour moi un grand plaisir de vous accueillir avec les paroles de l'Apôtre Pierre : « *Syméon Pierre, serviteur et apôtre de Jésus Christ, à ceux qui ont reçu par la justice de notre Dieu et Sauveur Jésus Christ une foi d'un aussi grand prix que la nôtre, à vous grâce et paix en abondance, par la connaissance de notre Seigneur !* » (2 P 1, 1-2). Ces paroles nous rappellent à l'esprit notre foi commune et le mystère du salut que nous avons reçu, un don que nous devons transmettre aux hommes et aux femmes de notre époque. Le fait que la fête des saints Pierre et Paul est célébrée le même jour par les catholiques et les orthodoxes évoque notre succession apostolique commune et notre fraternité ecclésiale. Je suis heureux de rappeler ici que l'hymnographie byzantine attribue à saint Pierre un titre riche de signification, celui de *protocoryphaeus*, le premier qui, dans le choeur, a le rôle de maintenir l'harmonie des voix, pour la gloire de Dieu et le service de son peuple. Je vous suis donc reconnaissant, à vous qui êtes venus unir votre prière à la nôtre, poussés par notre engagement commun à poursuivre le pèlerinage qui nous conduit de façon progressive à éliminer toute voix discordante dans le choeur de l'unique Eglise du Christ.
+
+Il existera à l'avenir d'importantes occasions de rencontre et de dialogue fraternel. Votre présence, Eminence, en tant que co-Président de la Commission mixte internationale pour le Dialogue théologique entre les orthodoxes et les catholiques rappelle à mon esprit la session plénière de cette Commission, qui doit avoir lieu à Belgrade en septembre, grâce à l'accueil offert par le Patriarcat serbe orthodoxe. Le dialogue reprend ainsi son chemin et entre dans une nouvelle phase. De manière spontanée, nous nourrissons le désir de prier afin que l'Esprit Saint éclaire et enflamme nos coeurs, en renforçant notre volonté commune de répondre, pour ce qui dépend de nous, à la prière ardente du Seigneur : " *Ut unum sint*", afin que les disciples du Christ, unis dans la foi, puissent proclamer ensemble son Evangile au monde entier afin que, en croyant en lui, tous soient sauvés.
+
+De plus, répondant à l'invitation du gouvernement, du Patriarcat et de la communauté catholique locale, j'espère pouvoir entreprendre un pèlerinage apostolique en Turquie, un pays à la culture antique et riche, un noble pays où de nombreux Saint-Pères de notre tradition ecclésiale, théologique et spirituelle ont passé leur vie. Cela me permettra de participer aux célébrations à l'occasion de la fête de saint André Apôtre, frère de saint Pierre. En répétant le geste de mes prédécesseurs de vénérée mémoire, Paul VI et Jean-Paul II, à l'occasion de leurs visites au Phanar, ce sera pour moi une joie de rencontrer Sa Sainteté Bartholomaios I, répondant ainsi aux visites de courtoisie qu'il a eu la bonté d'accomplir ici, à Rome. Je suis certain que cet échange mutuel renforcera notre fraternité ecclésiale et facilitera la collaboration dans nos initiatives communes. Puisse le Seigneur nous aider à avancer avec une confiance renouvelée vers le jour où nous pourrons célébrer ensemble la Sainte Eucharistie du Seigneur, en signe de pleine communion.
+
+Avec ces sentiments cordiaux, je vous prie, Eminence, ainsi que ceux qui vous accompagnent, de transmettre mes salutations fraternelles au Patriarche Bartholomaios I et au Saint-Synode, tandis que je rends grâce au Seigneur qui nous a accordés d'accomplir un nouveau pas dans la réalisation de sa volonté d'unité et de paix.
+
+© Copyright 2006 - Libreria Editrice Vaticana

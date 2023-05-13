@@ -1,0 +1,17 @@
+***MESSAGE DE SA SAINTETÉ PIE XII***
+
+***AUX PARTICIPANTS AU XXIV CONGRÈS MONDIAL DE PAX ROMANA***
+
+Le XXIV Congrès Mondial de Pax Romana Nous offre cette année l'occasion de redire Notre estime pour cette importante organisation, et Nous la saisissons volontiers. Déjà affermis par des années d'expérience, ses deux Mouvements constitutifs sont toujours prêts à servir les tâches nouvelles qui, dans le monde, s'offrent aux intellectuels et aux étudiants catholiques ; et à plusieurs reprises déjà Nous Nous sommes fait une joie de les encourager par Nos discours ou Nos messages.
+
+Aujourd'hui encore, Nous vous félicitons, chers fils et chères filles, d'approfondir dans votre Congrès les justes requêtes de la liberté, telles qu'on peut les définir dans les perspectives particulières de la vie d'une Université. Au cœur de l'Europe, à Vien- ne, cité d'art et de culture, maintes fois placée au cours de l'histoire aux avant-postes de la défense de la civilisation chrétienne, il est bon de proclamer les véritables libertés de l'esprit et d'en assurer la protection contre toutes formes abusives de pressions politiques, sociales ou philosophiques. Vous aimerez, ce faisant, montrer à quel point l'Eglise sert les progrès du savoir humain, quand — fidèle à la mission de son divin fondateur de rendre témoignage à la vérité (cfr. Jn 18, 37) — elle garde tantôt ses fils de funestes abus de la liberté et de dangereux égarements de la pensée, et tantôt revendique pour eux les justes franchises de la vie intellectuelle et le droit de connaitre et de répandre ce qui est vrai.
+
+Tout autant que par l'intérêt du thème d'étude qu'elle aborde, votre assemblée se signale par le nombre et la qualité de ses participants. Vos diverses associations en effet atteignent la plupart des pays et des professions. Aussi voulons-Nous répéter ici ce que souvent Nous avons dit en Nous adressant à des catholiques de milieux professionnels particuliers : quelle ne serait pas, chers fils et chères filles, l'influence capitale que votre présence et votre action pourraient exercer pour rendre plus chrétienne la société, si chacun d'entre vous prenait une conscience plus vive et plus exacte de ses responsabilités intellectuelles, sociales, apostoliques ? Comme Nous l'observions l'an dernier devant certains d'entre vous, c'est un fait que, « par l'autorité que vous confèrent votre culture et la compétence acquise dans votre profession, vous constituez pour votre entourage une question et une réponse » (Disc. du 27 avril 1957 ; A. A. S. t. 49, p. 298). Puisse votre vie susciter, par sa rectitude morale, son désintéressement, son souci du bien commun, son ouverture aux besoins d'autrui, cet étonnement salutaire, qui fait s'interroger sur vos convictions et sur la force secrète qui vous anime. Et si l'on vous questionne, sachez répondre de votre foi ; que votre culture religieuse soit proportionnée à vos connaissances profanes ; que votre charité soit toujours disponible aux besoins de vos frères. Chers étudiants et intellectuels de Pax Romana, portez hautement le témoignage de chrétiens libérés par la vérité du Christ, vivifiés par sa grâce, unis par la charité, disciplinés dans leur zèle, filialement dociles à l'Eglise quelles victoires alors ne remporteriez-vous pas pour la cause de Notre Seigneur Jésus Christ !
+
+* * *
+
+**Discours et Radiomessages de Sa Sainteté Pie XII*, XX,
+
+Vingtième année de Pontificat, 2 mars - 9 octobre 1958, p. 521
+
+Typographie Polyglotte Vaticane

@@ -1,0 +1,13 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AUX MEMBRES DE LA CONGRÉGATION DU SAINT-ESPRIT***
+
+*Lundi 26 mai 2003*
+
+1. Je suis heureux de vous saluer aujourd’hui, cher Père Supérieur général, ainsi que les membres du Conseil général de la Congrégation du Saint-Esprit fondée le 27 mai 1703. Un anniversaire est toujours l’occasion de rendre grâce pour le chemin parcouru et pour les dons reçus. L’Église le fait volontiers avec vous aujourd’hui, remerciant le Seigneur pour tout le travail accompli par votre Congrégation depuis trois siècles, notamment dans l’évangélisation de l’Afrique, des Antilles et de l’Amérique du Sud. Célébrer un anniversaire, c’est aussi passer un cap et aller de l’avant. Comme je l’ai dit à toute l’Église (cf. *[Novo millennio ineunte](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20010106_novo-millennio-ineunte.html)*, n. 8), je le redis à chacun de vous : « Duc in altum !», « Avance au large !». Soyez fidèles au double héritage de vos fondateurs : l’attention aux pauvres et le service missionnaire, c’est-à-dire l’annonce de la Bonne Nouvelle du Christ à tous les hommes. Ces deux orientations de vie vous ouvrent de larges perspectives. Il s’agit de rejoindre ceux que le monde tient dans la dépendance ou rejette dans la marginalité, les pauvres, qui sont l’immense majorité des habitants de certains continents mais qui habitent aussi nos sociétés les plus développées. Vous leur témoignerez ainsi la proximité du Christ et vous leur ferez entendre la joie de son appel.
+
+2. Sans vous laisser arrêter par les difficultés, qui n’ont pas manqué et qui ne manqueront pas à l’avenir, confiez-vous à la liberté et à la force de l’Esprit qui accompagne l’Église et qui la guide.
+
+C’est l’Esprit Saint qui construit l’Église comme une famille : faites-la découvrir à nos contemporains à travers la vie communautaire et fraternelle, signe fort de la vie évangélique, en ayant à cœur de rechercher l’unité et de demeurer attachés à cette dévotion à l’Esprit Saint, qui a toujours caractérisé votre famille religieuse !
+
+3. Vos fondateurs ont voulu vous placer dès les origines sous la protection de la Vierge Marie et de son Cœur immaculé. Je vous confie de nouveau à son intercession bienveillante, vous-mêmes et tous les membres de votre Congrégation dispersés dans le monde entier pour le service du Christ et de son Église. Que la confiance de la Vierge en la Parole de Dieu soit toujours une lumière pour votre vie ! De grand cœur, je vous accorde la Bénédiction apostolique.

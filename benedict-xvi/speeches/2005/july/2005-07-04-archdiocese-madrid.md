@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À UN PÈLERINAGE DE L'ARCHIDIOCÈSE DE MADRID (ESPAGNE)***
+
+*Lundi 4 juillet 2005*
+
+Chers frères et chères sœurs,
+
+Je vous souhaite ma plus cordiale bienvenue à cette rencontre, en particulier au Cardinal Antonio María Rouco Varela, Archevêque de Madrid, à ses Evêques auxiliaires et aux autres membres de l'Assemblée synodale, accompagnés par de nombreux fidèles laïcs qui ont participé aux groupes de prière et de réflexion sur le grand thème et sur l'objectif du Synode :  La transmission de la foi, vécue et réalisée dans la communion de l'Eglise.
+
+C'est en la solennité de Pentecôte de cette [année dédiée à l'Eucharisti](http://www.vatican.va/holy_father/special_features/eucharist/index_fr.html) e que s'est conclu le troisième Synode diocésain, qui s'est proposé de renouveler la foi et la communion entre les membres de l'Eglise à Madrid. La communauté ecclésiale a pris conscience d'être une « *famille dans la foi* », une famille unie par un lien profond et mystérieux qui réunit les réalités les plus diverses et se transforme, au moyen de la présence de Dieu en son sein, en signe d'unité pour toute la société. C'est une communauté catholique, et catholique signifie précisément que c'est une assemblée ouverte, dépositaire d'un message ayant une vocation universelle, destiné à chaque être humain. C'est une communauté qui harmonise et fait régner la concorde entre des personnes dont la provenance et les styles de vie sont différents. Et cette communauté catholique est en pèlerinage aujourd'hui à Rome en signe de communion avec le Successeur de Pierre et, donc, avec l'Eglise universelle.
+
+Comme lors d'une nouvelle Pentecôte, l'Esprit Saint a déversé dans les coeurs une nouvelle ardeur missionnaire, une intense sollicitude pour ceux qui vivent aujourd'hui dans votre communauté diocésaine ; des personnes avec un nom et un prénom, avec leurs préoccupations et leurs espérances, avec leurs souffrances et leurs difficultés. A partir de l'expérience synodale, vous avez été envoyés « *pour porter la bonne nouvelle aux pauvres [...] annoncer aux captifs la libération et aux aveugles le retour à la vue* » ( *Lc* 4, 18). Dans une société assoiffée de valeurs humaines authentiques et qui connaît tant de divisions et de fractures, la communauté des croyants doit porter la lumière de l'Evangile, avec la certitude que la charité est tout d'abord la transmission de la vérité.
+
+Dans ce but, l'Eglise de Madrid désire être présente dans tous les domaines de la vie quotidienne, et également à travers les moyens de communication sociale. C'est un aspect important, car l'Esprit nous exhorte à faire parvenir à chaque homme et à chaque femme l'Amour que Dieu le Père a montré en Jésus Christ. Cet amour est vif, généreux, inconditionné, et il s'offre non seulement à ceux qui écoutent le messager, mais également à ceux qui l'ignorent ou le refusent. Chaque fidèle doit se sentir appelé à aller, en tant qu'envoyé du Christ, à la recherche de ceux qui se sont éloignés de la communauté, comme ces disciples d'Emmaüs qui avaient cédé au découragement (cf. *Lc* 24, 13-35). Il faut aller jusqu'aux extrémités de la société pour apporter à tous la lumière du message du Christ sur la signification de la vie, de la famille et de la société, en rejoignant les personnes qui vivent dans le désert de l'abandon et de la pauvreté, et en les aimant avec l'Amour du Christ ressuscité. Dans chaque apostolat, et dans l'annonce de l'Evangile, comme le dit saint Paul, si « *je n'ai pas la charité je ne suis rien* » (1 *Co* 13, 2).
+
+Chers frères et chères soeurs, en suivant les lignes directrices du Synode, cherchez à vous nourrir spirituellement par la prière et une intense vie sacramentelle ; approfondissez la connaissance personnelle du Christ et avancez de toutes vos forces vers la sainteté, le « *haut degré de la vie chrétienne* », comme le disait le bien-aimé Jean-Paul II.
+
+Que la Très Sainte Vierge Marie obtienne en don pour tous les membres de l'archidiocèse de Madrid la fidélité totale au Christ et à son Eglise, et qu'Elle vous guide toujours dans votre chemin post-synodal ! Pour ma part, je vous accompagne dans la prière et, dans le même temps, je vous donne avec affection ma Bénédiction apostolique, que j'étends à toute la communauté diocésaine.
+
+© Copyright 2005 - Libreria Editrice Vaticana

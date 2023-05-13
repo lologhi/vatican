@@ -1,0 +1,43 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À SA GRÂCE*** ***ROWAN WILLIAMS,***
+
+***ARCHEVÊQUE DE CANTERBURY***
+
+*Jeudi 23 novembre 2006*
+
+*Votre Grâce,*
+
+*Chers amis,*
+
+Grâce et paix à vous dans le Seigneur Jésus Christ ! Votre visite ici aujourd'hui rappelle l'importante tradition établie par nos prédécesseurs au cours des récentes décennies. Elle nous rappelle également l'histoire beaucoup plus longue des relations entre le Siège de Rome et le Siège de Canterbury, qui a commencé lorsque le Pape Grégoire le Grand envoya saint Augustin dans la terre des Anglo-saxons, il y a plus de 1400 ans. Je suis heureux de vous accueillir aujourd'hui, ainsi que l'éminente délégation qui vous accompagne. Ce n'est pas la première fois que nous nous rencontrons. En effet, j'ai apprécié votre présence, ainsi que celle d'autres représentants de la Communion anglicane, aux [funérailles du Pape Jean-Paul II](http://www.vatican.va/gpII/documents/index_fr.htm#FUNERAL%20MASS%20FOR%20THE%20ROMAN%20PONTIFF%20JOHN%20PAUL%20II), et également lors de l'inauguration de mon Pontificat il y a un an et demi.
+
+Votre visite au Saint-Siège coïncide avec le quarantième anniversaire de la visite de celui qui était alors l'Archevêque de Canterbury, D. Michael Ramsey, au Pape Paul VI. Ce fut une visite pleine de grandes promesses, car les Anglicans et l'Eglise catholique entreprirent d'instaurer un dialogue sur les questions qui devaient être affrontées dans la recherche de l'unité pleine et visible.
+
+Il existe de nombreux motifs de satisfaction dans nos relations au cours de ces quarante dernières années. Le travail de la commission pour le dialogue théologique a été une source d'encouragement dans l'examen des questions liées à la doctrine qui, dans le passé, nous ont séparés. L'amitié et les bonnes relations existant dans de nombreux lieux entre les anglicans et les catholiques ont contribué à créer un nouveau contexte dans lequel notre témoignage commun à l'Evangile de Jésus Christ a été alimenté et promu. Les visites des Archevêques de Canterbury au Saint-Siège ont servi à renforcer ces relations et ont joué un rôle important pour affronter les obstacles qui nous séparent. Cette tradition a contribué à la réalisation d'une rencontre constructive entre les évêques anglicans et catholiques à Mississauga, au Canada, en mai 2000, où il a été décidé de créer une commission commune d'évêques en vue d'identifier les moyens appropriés pour manifester dans la vie ecclésiale les progrès déjà accomplis. Nous rendons grâce à Dieu pour tout cela.
+
+Dans le contexte actuel, toutefois, et en particulier dans le monde occidental sécularisé, il existe de nombreuses influences et pressions négatives qui touchent les chrétiens et les communautés chrétiennes. Au cours des trois dernières années, vous avez parlé ouvertement des tensions et des difficultés qui pèsent sur la Communion anglicane, et par conséquent, de l'incertitude liée à l'avenir de la Communion elle-même. Les récents développements, spécialement en ce qui concerne le ministère ordonné et certains enseignements moraux, ont affecté non seulement les relations internes au sein de la Communion anglicane, mais également les relations entre la Communion anglicane et l'Eglise catholique. Nous croyons que ces questions, qui font actuellement l'objet de discussions au sein de la Communion anglicane, revêtent une importance vitale pour prêcher l'Evangile dans son intégrité, et que vos débats actuels façonneront l'avenir de nos relations. Souhaitons que le travail du dialogue théologique, qui a enregistré un degré important de consensus sur ces questions ainsi que sur d'autres questions théologiques importantes, continuera de faire l'objet d'un discernement attentif de votre part. Notre prière sincère vous accompagne dans ces débats. Nous formons le voeu fervent que la Communion anglicane demeure enracinée dans les Evangiles et la Tradition apostolique, qui forment notre patrimoine commun et qui constituent la base de notre aspiration commune à travailler au service de l'unité pleine et visible.
+
+Le monde a besoin de notre témoignage et de la force qui provient d'une proclamation unanime de l'Evangile. Les immenses souffrances de la famille humaine et les formes d'injustice qui frappent de façon négative la vie de tant de personnes constituent un appel urgent en vue de notre témoignage et de notre service communs. C'est précisément pour cette raison, même parmi les difficultés actuelles, que nous poursuivons notre dialogue théologique. Je souhaite que votre visite contribue à trouver des façons constructives de progresser dans les conditions actuelles.
+
+Puisse le Seigneur continuer de vous bénir, ainsi que votre famille, et puisse-t-il vous renforcer dans votre ministère au service de la Communion anglicane !
+
+***
+
+***DISCOURS DE*** ***L'ARCHEVÊQUE DE CANTERBURY***
+
+*Votre Sainteté,*
+
+Je suis très heureux de pouvoir vous rencontrer dans cette ville, qui a été sanctifiée dès les origines de l'ère chrétienne par le ministère des Apôtres Pierre et Paul, et où tant de vos prédécesseurs ont rendu un noble témoignage de l'Evangile de Notre Seigneur Jésus Christ, qui appelle à la conversion.
+
+Au début de mon ministère d'Archevêque de Canterbury, j'ai eu l'opportunité de rendre visite à votre bien-aimé et vénéré prédécesseur, le Pape Jean-Paul II, et de lui transmettre les salutations des Eglises de la famille anglicane dans le monde, qui réunissent près de quatre-vingts millions de chrétiens. Le Pape Jean-Paul II a inspiré un grand nombre de personnes à travers le monde par son dévouement au Christ et, comme vous le savez, il a gagné une place particulière dans le coeur de nombreuses personnes, au-delà de l'Eglise catholique romaine, par la compassion et la ténacité qu'il a manifestées à tous dans son ministère.
+
+Notre rencontre est aussi l'occasion de rappeler et de célébrer la visite que rendit il y a quarante ans, mon prédécesseur, l'Archevêque Michael Ramsey au Pape Paul VI, rencontre entre les responsables des Eglises anglicane et catholique romaine qui instaura un processus de réconciliation et d'amitié qui se poursuit encore aujourd'hui. L'anneau que je porte aujourd'hui est l'anneau épiscopal que le Pape Paul VI offrit à l'Archevêque Michael, cette croix est le don du Pape Jean-Paul II, symbole de notre engagement commun à oeuvrer ensemble à l'unité *pleine* et visible de la famille chrétienne.
+
+C'est dans ce même esprit fraternel que j'accomplis à présent cette visite, car je crois que nous devrions poursuivre ensemble le chemin d'amitié qu'ils commencèrent. J'ai été encouragé par la manière dont, dès le début de votre ministère comme Evêque de Rome, vous avez souligné l'importance de l'oecuménisme dans votre ministère. Si la Bonne Nouvelle de Jésus Christ doit être *intégralement* proclamée à un monde qui en a besoin, la réconciliation de tous les chrétiens dans la vérité et l'amour de Dieu est alors un élément vital de notre témoignage.
+
+Je l'affirme en ayant conscience que le chemin vers l'unité n'est pas un chemin facile, et que les discussions sur la façon dont nous appliquons l'Evangile aux défis que pose la société moderne peuvent souvent obscurcir, voire menacer les résultats du dialogue, du témoignage commun et du service. Dans le monde moderne, aucune partie de la famille chrétienne n'agit sans que cela n'ait un impact profond sur nos partenaires oecuméniques ; seule une solide base d'amitié dans le Christ pourra nous permettre d'être honnêtes dans notre dialogue les uns avec les autres sur ces difficultés, et de rechercher des façons de progresser qui s'efforcent d'être pleinement fidèles à la charge qui est la nôtre en tant que disciples du Christ. Je viens donc ici aujourd'hui, afin de célébrer la poursuite de la collaboration entre les anglicans et les catholiques romains, mais aussi en étant prêt à écouter et à comprendre les préoccupations que vous souhaiteriez partager avec moi.
+
+Quoi qu'il en soit, il s'agit d'une tâche qui nous revient à tous deux en tant que pasteurs de la famille chrétienne :  être des avocats de la réconciliation, de la justice et de la compassion dans ce monde - être les ambassadeurs du Christ - et je suis certain qu'un échange honnête de nos préoccupations ne pourra pas affaiblir ce que nous pouvons affirmer et proclamer ensemble - l'espérance du salut et de la guérison qui se trouve dans la Grâce et l'Amour de Dieu révélé dans le Christ.
+
+© Copyright 2006 - Libreria Editrice Vaticana

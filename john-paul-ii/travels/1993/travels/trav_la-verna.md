@@ -1,0 +1,6 @@
+|     |
+| --- |
+|  |
+| ***Visite Pastorale à La Verna et Camaldoli***<br>***(17 septembre 1993)***<br>- **Concélébration eucharistique au Sanctuaire de La Verna (Arezzo, 17 septembre 1993)**<br>  <br>  [ [Italien](/content/john-paul-ii/it/homilies/1993/documents/hf_jp-ii_hom_19930917_la-verna.html)]<br>- **Récitation de l'Angelus à La Verna (Arezzo, 17 septembre 1993)**[ [Espagnol](/content/john-paul-ii/es/angelus/1993/documents/hf_jp-ii_ang_19930917.html), [Italien](/content/john-paul-ii/it/angelus/1993/documents/hf_jp-ii_ang_19930917.html)]<br>- **Aux communautés religieuses franciscaines au Sanctuaire de La Verna (Arezzo, 17 septembre 1993)**<br>  <br>  [ [Italien](/content/john-paul-ii/it/speeches/1993/september/documents/hf_jp-ii_spe_19930917_la-verna.html)]<br>- **Rencontre avec les moines camaldules dans le monastère fondé par Saint Romualdo à Camaldoli (Arezzo, 17 septembre 1993)**<br>  <br>  [ [Italien](/content/john-paul-ii/it/speeches/1993/september/documents/hf_jp-ii_spe_19930917_camaldoli.html)] |
+|  |
+|  |

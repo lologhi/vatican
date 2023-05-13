@@ -1,0 +1,49 @@
+[PÈLERINAGE APOSTOLIQUE EN TURQUIE](/content/john-paul-ii/fr/travels/sub_index1979/trav_turkey.html)
+
+DISCOURS DU PAPE JEAN-PAUL II
+
+À LA COMMUNAUTÉ CATHOLIQUE D'ANKARA
+
+Ankara
+
+Jeudi 29 novembre 1979
+
+*Chers frères et fils,*
+
+*chers amis,*
+
+1. C’est une immense joie pour moi, successeur de saint Pierre dans le Collège apostolique et sur le siège de Rome, de m’adresser aujourd’hui à vous avec les paroles mêmes que saint Pierre adressait, il y a dix-neuf siècles, aux chrétiens qui formaient alors, comme aujourd’hui, une minorité sur cette terre, « dispersés et étrangers dans les régions du Pont, de la Galatie, de la Cappadoce... À vous grâce et paix en abondance » (1 P, 1, 1-2).
+
+Comme Pierre, je voudrais d’abord rendre grâce pour l’espérance vivante qui est en vous et qui vient du Christ ressuscité ; je voudrais exhorter chacun d’entre vous à être reconnaissant à Dieu, et ferme dans la foi, tels « des enfants obéissants » maintenant vos âmes pures dans l’obéissance à la vérité, dans une fraternité sincère avec une bonne conduite au milieu des nations... afin que, voyant vos bonnes œuvres, les hommes glorifient Dieu (cf. ibid. 1, 3,14, 22 ; 2, 12).
+
+L’Apôtre prenait même soin de mentionner la loyauté envers les autorités civiles. « Agissez, disait-il, en hommes libres, non pas en hommes qui font de la liberté un voile sur leur malice, mais en serviteurs de Dieu. » (1 P, 2, 16.)
+
+Oui, je voudrais vous inviter à considérer comme particulièrement vôtre cette lettre écrite à ceux qui vous ont précédés sur cette terre, à la relire attentivement, à en méditer chaque affirmation. J’attire à présent votre attention sur une de ses exhortations : « Soyez toujours prêts à répondre à quiconque vous demande raison de l’espérance qui est en vous. Mais que ce soit avec douceur et respect, en possession d’une bonne conscience » (ibid. 3, 15-16).
+
+2. Ces paroles sont la règle d’or pour les rapports et les contacts que le chrétien doit avoir avec ses concitoyens qui ont une foi différente. Aujourd’hui, pour vous, chrétiens résidant ici en Turquie, votre sort est de vivre dans le cadre d’un État moderne — qui prévoit pour tous la libre expression de leur foi sans s’identifier avec aucune —, et avec des personnes qui, dans leur grande majorité, tout en ne partageant pas la foi chrétienne, se déclarent « obéissants envers Dieu », « soumis à Dieu », et même « serviteurs de Dieu », selon leurs propres paroles, qui rejoignent celles de saint Pierre déjà citées (cf. ibid. 2, 16) ; ils ont donc comme vous, la foi d’Abraham dans le Dieu unique tout-puissant et miséricordieux. Vous savez que le [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) s’est prononcé ouvertement sur ce sujet, et moi-même j’ai rappelé, dans ma première encyclique [Redemptor hominis](http://www.vatican.va/edocs/FRA0077/_INDEX.HTM), que « le Concile... a exprimé son estime pour les croyants de l’Islam, dont la foi se réfère aussi à Abraham » ( [n. 11](http://www.vatican.va/edocs/FRA0077/__P3.HTM)).
+
+Permettez-moi de rappeler ici, devant vous, ces paroles de la Déclaration conciliaire *[Nostra aetate](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_nostra-aetate_fr.html)*: « L’Église regarde aussi avec estime les musulmans, qui adorent (« avec nous », lit-on dans un autre texte du Concile, Constitution [Lumen gentium, n. 16](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html#16.)) le Dieu un vivant et subsistant, miséricordieux et tout-puissant, créateur du ciel et de la terre, qui a parlé aux hommes. Ils cherchent à se soumettre de toute leur âme aux décrets de Dieu, même s’ils sont cachés, comme s’est soumis à Dieu Abraham auquel la foi islamique se réfère volontiers. Bien qu’ils ne reconnaissent pas Jésus comme Dieu, ils le vénèrent comme prophète ; ils honorent sa Mère virginale Marie, et parfois même ils l’invoquent avec piété. De plus, ils attendent le jour du jugement, où Dieu rétribuera tous les hommes ressuscités. Aussi ont-ils en estime la vie morale et rendent-ils un culte à Dieu, surtout par la prière l’aumône et le jeûne » (Déclaration [*Nostra aetate* n. 3](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_nostra-aetate_fr.html#3.)).
+
+C’est donc en pensant à vos concitoyens, mais aussi au vaste monde islamique, que j’exprime à nouveau, aujourd’hui, l’estime de l’Église catholique pour ces valeurs religieuses.
+
+3. Mes frères, quand je pense à ce patrimoine spirituel et à la valeur qu’il a pour l’homme et pour la société, à sa capacité d’offrir, surtout aux jeunes, une orientation de vie, de combler le vide laissé par le matérialisme, de donner un fondement sûr à l’organisation sociale et juridique, je me demande s’il n’est pas urgent, précisément aujourd’hui où chrétiens et musulmans sont entrés dans une nouvelle période de l’histoire, de reconnaître et de développer les liens spirituels qui nous unissent, afin de « protéger et de promouvoir ensemble, pour tous les hommes — comme nous y invite le Concile —, la justice sociale, les valeurs morales, la paix et la liberté » (Déclaration [*Nostra aetate*, *ibid.*](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_decl_19651028_nostra-aetate_fr.html#3.)).
+
+La foi en Dieu, que professent les descendants spirituels d’Abraham, chrétiens, musulmans et juifs, quand elle est vécue sincèrement, qu’elle pénètre la vie, est un fondement assuré de la dignité, de la fraternité et de la liberté des hommes et un principe de rectitude pour la conduite morale et la vie en société. Et il y a plus : par suite de cette foi au Dieu créateur et transcendant, l’homme se trouve au sommet de la création. Il a été créé, enseigne la Bible, « à l’image et à la ressemblance de Dieu » ( *Gn* 1, 27) ; pour le Coran, livre sacré des musulmans, bien que l’homme soit fait de poussière, « Dieu lui a insufflé son esprit et l’a doté de l’ouïe, de la vue et du cœur », c’est-à-dire d’intelligence (Sourate 32, 8).
+
+L’univers, pour le musulman, est destiné à être soumis à l’homme en tant que représentant de Dieu, la Bible affirme que Dieu a ordonné à l’homme de soumettre la terre, mais aussi de la « cultiver et de la garder » ( *Gn* 2, 15). En tant que créature de Dieu, l’homme a des droits qui ne peuvent être violés, mais il est également tenu à la loi du bien et du mal qui se fonde sur l’ordre établi par Dieu. Grâce à cette loi, l’homme ne se soumettra jamais à aucune idole. Le chrétien s’en tient au commandement solennel : « Tu n’auras pas d’autre Dieu que moi. » ( *Ex* 20, 30.) De son côté, le musulman dira toujours : « Dieu est le plus grand. »
+
+Je voudrais profiter de cette rencontre et de l’occasion que m’offrent les paroles écrites par saint Pierre à vos prédécesseurs pour vous inviter à considérer chaque jour les racines profondes de la foi en Dieu dans lequel croient aussi vos concitoyens musulmans, pour en tirer le principe d’une collaboration en vue du progrès de l’homme de l’émulation dans le bien, de l’extension de la paix et de la fraternité dans la libre profession de la foi propre à chacun.
+
+4. Cette attitude, chers Frères et Sœurs, va de pair avec la fidélité déjà si méritoire de vos communautés chrétiennes ici représentées. Cette fidélité hérite d’un grand passé. Nous avons déjà parlé de la lettre de saint Pierre, on pourrait s’étendre sur la dilection de saint Paul, de saint Jean pour les Églises d’Asie mineure. Un auteur profane du début du second siècle, Pline le Jeune, décrivait la vie des disciples du Christ avec étonnement, dans un témoignage qui reste précieux aux yeux de l’histoire. Mais, comment oublier la période florissante qui a suivi ; et particulièrement le temps des Pères de l’Église ?
+
+Et, puisque saint Pierre parle de la Cappadoce ma pensée va spontanément à saint Basile le Grand (329-379), l’une des gloires les plus remarquables de l’Église de cette région, d’autant plus que survient cette année le seizième centenaire de sa mort : je suis heureux de vous annoncer qu’un document pontifical, illustrant la figure de ce très grand docteur, viendra couronner ce mémorable anniversaire.
+
+5. Aujourd’hui, même si vos communautés sont modestes, elles sont riches de la présence de diverses traditions et elles sont constituées par des personnes provenant de nombreuses parties du monde. Cela vous donne l’occasion de vous exprimer réciproquement votre foi et votre espérance, et de donner ici un important témoignage d’unité et de fraternité.
+
+Ayez toujours le courage et la fierté de votre foi. Approfondissez-la. Approchez-vous sans cesse du Christ, la pierre angulaire, comme des pierres vivantes, sûrs de remporter la fin de votre foi, le salut de vos âmes. Dès maintenant le Seigneur Jésus fait de vous les membres de son corps.
+
+Fils de Dieu, il vous fait participer à sa nature divine il vous donne part à son Esprit. Puisez avec joie à la source jaillissante qu’est son eucharistie. Qu’il vous comble de sa charité ! Ayez aussi le sentiment d’être en communion avec l’Église universelle que le Pape représente devant vous, dans son humble personne. Votre témoignage est d’autant plus précieux qu’il est restreint en nombre, mais non dans sa qualité.
+
+Pour moi, je tenais à vous dire ma profonde affection et ma confiance. Restons très unis par le lien de la prière. Je recommande au Christ Jésus, et à sa très sainte Mère, tous les besoins humains et spirituels de vos communautés, de chacune de vos familles. J’ai une pensée spéciale pour vos enfants, vos malades, ceux qui sont éprouvés. Qu’ils soient réconfortés par l’amour de Dieu et l’entraide de leurs frères ! De tout cœur je vous bénis, au nom du Père, du Fils et du Saint-Esprit.
+
+© Copyright 1979 - Libreria Editrice Vaticana

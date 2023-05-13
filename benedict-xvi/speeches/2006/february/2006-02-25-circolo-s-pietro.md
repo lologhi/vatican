@@ -1,0 +1,17 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***AUX MEMBRES DU CERCLE DE SAINT-PIERRE***
+
+*Salle des Papes*
+
+*Samedi 25 février 2006*
+
+*Chers amis !*
+
+Je suis heureux de vous accueillir et j'adresse à chacun de vous une salutation cordiale. Je salue tous les membres de la Présidence générale du Cercle de Saint-Pierre et en particulier le Président, dom Leopoldo de la famille des Ducs Torlonia, que je remercie pour les paroles courtoises par lesquelles il a ouvert notre rencontre. Ce rendez-vous traditionnel, qui a lieu immédiatement après la fête de la Chaire de Saint-Pierre apôtre, constitue un moment particulièrement significatif, au cours duquel votre association de grand mérite offre au Pape le « *Denier de Saint-Pierre* », recueilli dans le diocèse de Rome au cours de l'année écoulée. C'est donc pour moi une circonstance propice pour vous manifester ma profonde gratitude, en pensant à l'engagement que vous placez dans cette oeuvre et, plus encore, à l'esprit de foi et d'amour pour l'Eglise avec lequel vous l'accomplissez.
+
+Le « *Denier de Saint-Pierre* » est l'expression la plus typique de la participation de tous les fidèles aux initiatives de bien de l'Evêque de Rome à l'égard de l'Eglise universelle. Il s'agit d'un geste d'une valeur non seulement concrète, mais également fortement symbolique, en tant que signe de communion avec le Pape et d'attention aux nécessités de vos frères ; et c'est pour cela que votre service revêt une valeur proprement ecclésiale. Tout cela acquiert une plus grande importance encore à la lumière de mon Encyclique sur l'amour chrétien *[Deus caritas est](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html)*, dans laquelle, comme vous le savez, la seconde partie est consacrée précisément à l'exercice de la charité de la part de l'Eglise comme « *communauté d'amour* ». C'est donc à vous, chers responsables du Cercle de Saint-Pierre, que je voudrais remettre idéalement l'Encyclique, dont vous êtes, en tant que fidèles laïcs qui s'investissent également beaucoup dans des actions caritatives, parmi les premiers destinataires. En effet, c'est précisément en pensant à tous ceux qui, comme vous, collaborent à ce que nous pourrions appeler le ministère de la charité de la communauté chrétienne, que j'ai tracé un profil qui pourra vous être utile de reprendre, tant au niveau personnel que communautaire (cf. nn. 33-39). J'ai rappelé que la motivation principale de l'action doit toujours être l'amour du Christ ; que la charité est plus qu'une simple activité, et qu'elle implique le don de soi ; que ce don doit être humble, privé de tout sentiment de supériorité, et que sa force provient de la prière, comme le montre l'exemple des saints.
+
+C'est aux saints de la charité, dont est riche l'histoire de l'Eglise de Rome, en commençant par le diacre Laurent, que je désire confier le Cercle de Saint-Pierre. Chers amis, je vous remercie à nouveau de votre visite et du service que vous accomplissez avec tant de dévouement depuis de nombreuses années au service du Pape. J'invoque sur chacun de vous la protection de la Très Sainte Vierge Marie, afin qu'elle vous accompagne et vous soutienne toujours. Quant à moi, je vous assure de mon souvenir dans la prière, tandis que je vous bénis de tout coeur, ainsi que tous les membres du Cercle et vos familles.
+
+© Copyright 2006 - Libreria Editrice Vaticana

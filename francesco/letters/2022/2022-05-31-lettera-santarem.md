@@ -1,0 +1,21 @@
+***LETTRE DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS À LA RENCONTRE DE SANTARÉM***
+
+**(IVe RENCONTRE DE L'ÉGLISE CATHOLIQUE EN AMAZONIE LÉGALE)**
+
+Chers frères et sœurs,
+
+Avec un cœur plein de joie et d'espérance, je m'adresse à tous les participants à la 4e rencontre de l'Eglise catholique en Amazonie légale, car c'est pour moi un motif d'encouragement particulier de savoir que nous rêvons ensemble « de communautés chrétiennes capables de s'engager et s'incarnant dans l'Amazonie, au point de donner à l'Eglise de nouveaux visages aux traits amazoniens » ( *[Querida Amazonia](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20200202_querida-amazonia.html#7)*, n. 7). En même temps, sachant que cette rencontre commémore celle qui s'est tenue il y a 50 ans au même endroit, à l'occasion de l'intense action de grâce au Très-Haut pour les fruits de l'action de l'Esprit Saint Divin dans l'Eglise qui est dans le Amazon — au cours des cinq dernières décennies — et autant qu'il inspire.
+
+Cette « rencontre de Santarém » a proposé des lignes d'évangélisation qui ont marqué l'action missionnaire des communautés amazoniennes et qui ont contribué à la formation d'une solide conscience ecclésiale. Les intuitions de cette rencontre ont également servi à éclairer les réflexions des pères synodaux, lors du récent synode pour la région panamazonienne, comme je l'ai rappelé dans l'exhortation apostolique post-synodale *[Querida Amazonia](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20200202_querida-amazonia.html)*, en la décrivant comme l'une des « expressions privilégiées » du cheminement de l'Eglise avec les peuples de l'Amazonie (cf. [QA](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20200202_querida-amazonia.html#61), n. 61). En effet, dans les notes « lignes prioritaires », fruit de ladite rencontre, sont esquissés les rêves pour l'Amazonie réaffirmés dans le dernier Synode (cf. [QA](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20200202_querida-amazonia.html#7), n. 7).
+
+Je me réjouis également de l'engagement des Eglises particulières de l'Amazonie brésilienne, à travers leurs communautés, dans la réalisation des indications de la dernière assemblée synodale, tout en témoignant, à travers la belle et déjà enracinée tradition de rencontres des Eglises locales, l'expérience de la synodalité — comme expression de communion, de participation et de mission — à laquelle toute l'Eglise est appelée. Je me souviens avec affection et gratitude de l'intense participation de ceux qui sont venus du Brésil à Rome pour les sessions du synode de 2019, apportant vitalité, force et espérance.
+
+Soyez courageux et audacieux, en vous ouvrant avec confiance à l'action de Dieu qui a tout créé, nous a donné lui-même en Jésus Christ (cf. [QA](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20200202_querida-amazonia.html#41), n. 41) et nous inspire par l'Esprit à annoncer l'Evangile avec un nouvel engagement et à contempler la beauté de la création, encore plus exubérante dans ces terres amazoniennes, où s'expérimente la présence lumineuse du Ressuscité (cf. [QA](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20200202_querida-amazonia.html#57), n. 57).
+
+En déposant ces vœux aux pieds de Nossa Senhora de Nazaré, Reine de l'Amazonie — qui ne nous abandonne jamais aux heures sombres (cf. [QA](https://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20200202_querida-amazonia.html#111), n. 111) — je vous envoie de tout mon cœur, chers frères et sœurs, la Bénédiction apostolique, vous demandant également, s'il vous plaît, de continuer à prier pour moi et pour la mission que le Seigneur m'a confiée.
+
+*Rome, Saint-Jean-de-Latran, le 31 mai 2022*
+
+**François**

@@ -1,0 +1,29 @@
+ADDRESS OF HIS HOLINESS JOHN PAUL II
+
+TO H.E. Mr. SHIRCHINJAVYN YUMJAV
+
+FIRST AMBASSADOR OF MONGOLIA TO THE HOLY SEE*
+
+*Thursday, 28 October 1993*
+
+Monsieur l’Ambassadeur,
+
+1. Je suis heureux de vous accueillir aujourd'hui au Vatican, et je vous assure que c'est une source de satisfaction particulière pour moi que de recevoir les Lettres qui vous accréditent comme le premier Ambassadeur extraordinaire et plénipotentiaire de Mongolie près le Saint-Siège. Ce jour ouvre un nouveau chapitre dans les relations entre l'Église catholique et le noble peuple mongol, et j'espère que ces liens iront toujours en se renforçant. Je vous demande de bien vouloir transmettre au Président, S.E. M. Punsal‑maagiin Ochirbat, et aux membres du gouvernement, mes meilleurs vœux, et j'exprime mes sentiments d'estime et de respect pour tous vos concitoyens.
+
+La cérémonie d'aujourd'hui est étroitement liée à la transition qui s'est produite en Mongolie ces dernières années. Une juste appréciation de ce développement requiert qu'il soit considéré au sein de la totalité du processus complexe des transformations globales actuelles. Dans vos remarques Excellence, vous indiquiez l'amplitude et la profondeur des changements qui se sont produits dans votre pays. La substitution pacifique de structures démocratiques à un régime autoritaire établi depuis longtemps, la ratification d'un ordre constitutionnel qui conserve pieusement le respect des droits humains - en particulier la liberté religieuse ‑ et l'entrée de la Mongolie dans ra communauté des nations comme membre indépendant et à part entière : tous ces faits constituent des réalisations monumentales.
+
+2. Lorsque l'on pense à la Mongolie et à son avenir immédiat, une parole vient spontanément à l'esprit : développement. C'est l'aspiration de votre peuple et l'objectif avoué des dirigeants de la Mongolie. La transition d'une économie centralisée, planifiée et dirigiste à une économie de marché est un aspect important de cette croissance et de ce développement. Toutefois, comme le montrent à fa fois la raison et l'expérience, le progrès économique requiert un progrès social parallèle, avec la création de conditions éducatives, culturelles et spirituelles pour le développement personnel intégral des hommes et des femmes qui forment la communauté nationale. « Le développement concerne les personnes » (Message pour la Journée mondiale de la Paix 1987, n. 6), et les citoyens de votre pays sont à la fois le sujet et l'objectif des efforts de développement. Le gouvernement, à tous les niveaux, sert effectivement le bien commun, dans la mesure où il aide les gens à découvrir les valeurs qui leur permettront d'édifier une nouvelle vie et de prendre leur juste place dans la société avec dignité et justice (cf. ibid.). Dans une société démocratique, ce service pour le bien-être commun du corps social est la justification morale de la direction politique.
+
+3. Comme c'est souvent le cas lors de telles réalisations historiques, les récentes transformations ont apporté avec elles toute une série de nouveaux défis qu'il faut affronter de manière à amener le vaste potentiel de développement de la vie des gens, à porter des fruits. L'établissement en Mongolie d'un nouvel ordre civil est une opportunité providentielle pour ouvrir une nouvelle ère de progrès authentique. Les efforts faits pour améliorer le sort d'un peuple, en réorganisant l'économie et en faisant produire à celle-ci plus de biens et services essentiels, en garantissant un environnement sain et une gestion prudente des ressources naturelles, en accroissant le taux d'alphabétisation et en élargissant l'accès à l'éducation, en améliorant et en étendant les soins médicaux – de tels efforts resteront stériles s'il ne sont pas enracinés et guidés par une ferme croyance dans les vérités de l'ordre éthique qui devrait diriger les actions des individus et des communautés. Le respect des normes morales universelles protège « la dignité personnelle inviolable de tout homme » et sert a à la conservation même du tissu social humain, à la rectitude et à la fécondité de son développement (Encyclique Veritatis splendor, n. 97).
+
+Dans le monde interdépendant d'aujourd'hui, le développement d'un pays ne peut pas se produire sans le concours de beaucoup d'autres et sans référence à la Communauté internationale et à ses structures de commerce et de production. La construction d'un monde pacifique, un monde dans lequel la sécurité des peuples et des États sera assurée, demande une grande solidarité entre les nations développées et celles en voie de développement. A ce propos, j'exprime ardemment l'espérance que la Mongolie recevra l'aide dont elle a besoin dans sa marche enthousiaste et pleine d'engagement renouvelé, comme membre indépendant et égal de la famille des nations.
+
+4. La présence du Saint-Siège dans la Communauté internationale vise à l'édification d'un ordre international plus juste et pacifique, par la voie de la solidarité, du dialogue et de la fraternité universelle. J'ai confiance dans le fait que l'établissement de relations diplomatiques entre le Saint-Siège et la Mongolie ira dans ce sens précis. En réitérant le désir de l'Église catholique d'assister votre pays dans les circonstances particulières qu'il vit, en particulier en aidant à vaincre le vide moral et religieux laissé par les expériences du passé, je voudrais réaffirmer que l'Église sera toujours motivée par le profond respect des traditions culturelles et religieuses du peuple mongol.
+
+Tout en élevant de ferventes prières pour Votre Excellence et vos concitoyens, j'invoque d'abondantes Bénédictions divines sur votre pays, et je vous souhaite tout le bien dans l'accomplissement de votre mission diplomatique.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.45 p.7.
+
+© Copyright 1993 - Libreria Editrice Vaticana

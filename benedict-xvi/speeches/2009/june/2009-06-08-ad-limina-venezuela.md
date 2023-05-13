@@ -1,0 +1,37 @@
+***DISCOURS DU SAINT-PÈRE BENOÎT XVI***
+
+***AUX ÉVÊQUES DE LA CONFÉRENCE ÉPISCOPALE***
+
+***DU VENEZUELA EN VISITE « AD LIMINA APOSTOLORUM »***
+
+*Lundi 8 juin 2009*
+
+*Monsieur le cardinal,*
+
+*chers frères dans l'épiscopat,*
+
+1. Je vous souhaite une cordiale bienvenue, pasteurs de l'Eglise qui est au Venezuela, à cette rencontre à l'occasion de votre visite *ad limina* et, en tant que Successeur de Pierre, je remercie le Seigneur pour cette occasion de confirmer mes frères dans la foi (cf. *Lc* 22, 32) et de participer avec eux à leurs joies et à leurs préoccupations, à leurs projets et à leurs difficultés.
+
+Je remercie avant tout Mgr Ubaldo Ramón Santana Sequera, archevêque de Maracaibo et président de la conférence épiscopale du Venezuela pour ses paroles, qui expriment votre communion avec l'Evêque de Rome et le Chef du collège épiscopal, ainsi que les défis et les espérances de votre ministère pastoral.
+
+2. Les défis que vous devez affronter dans le cadre de votre tâche pastorale sont en effet toujours plus nombreux et difficiles, et ont en outre augmenté au cours des dernières années, en raison d'une grave crise économique mondiale. Le moment actuel offre toutefois également de nombreux et véritables motifs d'espérance, cette espérance capable de remplir le cœur de tous les hommes qui « *peut être seulement Dieu, le Dieu qui nous a aimés et qui nous aime toujours jusqu'au bout* » ( [*Spe salvi,* n. 27](/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20071130_spe-salvi.html)). Comme il l'a fait avec les disciples d'Emmaüs (cf. *Lc* 24, 13-35), le Seigneur ressuscité marche également à nos côtés, diffusant en nous son esprit d'amour et de force, afin que nous puissions ouvrir nos cœurs à un avenir empli d'espérance et de vie éternelle.
+
+3. Chers frères, face à vous se présente le devoir passionnant d'évangélisation et vous avez entamé la « *Mission pour le Venezuela* » dans la lignée de la Mission continentale promue par la V Conférence générale de l'épiscopat latino-américain et des Caraïbes, à Aparecida. Ces temps sont également des temps de grâce pour ceux qui se consacrent entièrement à la cause de l'Evangile. Ayez confiance dans le Seigneur. Il rendra féconds vos engagements et vos sacrifices.
+
+Je vous encourage donc à accroître les initiatives visant à faire connaître dans toute leur intégralité et leur beauté la figure et le message de Jésus Christ. C'est pourquoi, en dehors d'une bonne formation doctrinale de tout le peuple de Dieu, il est important de promouvoir une profonde vie de foi et de prière. Dans la liturgie et dans le dialogue intime de la prière personnelle ou communautaire, le Ressuscité vient à notre rencontre, transformant notre cœur à travers sa présence pleine d'amour.
+
+Je désire rappeler également la nécessité de la vie spirituelle des évêques. Ceux-ci, pleinement configurés au Christ Tête par le sacrement de l'ordre, sont dans un certain sens pour l'Eglise qui leur a été confiée un signe visible du Seigneur Jésus (cf. *[Lumen gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html),* n. 21). C'est pourquoi le ministère pastoral doit être un reflet cohérent de Jésus, serviteur de Dieu, en montrant à tous l'importance fondamentale de la foi, ainsi que le besoin de placer au premier plan la vocation à la sainteté (cf. Jean-Paul II, Exhort. apost. *[Pastores gregis](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_20031016_pastores-gregis.html),* n. 12).
+
+4. Pour accomplir une action pastorale fructueuse, il est indispensable d'établir une étroite communion affective et effective entre les pasteurs du peuple de Dieu qui doivent « *se savoir toujours unis entre eux et se montrer soucieux de toutes les Eglises* » ( *[Christus Dominus](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651028_christus-dominus_fr.html),* n. 6). Cette unité, qui, aujourd'hui et toujours, doit être promue et exprimée de manière visible, sera une source de réconfort et d'efficacité apostolique dans le ministère qui vous a été confié.
+
+5. L'esprit de communion doit vous conduire à prêter une attention particulière à vos prêtres. Ceux-ci, collaborateurs directs du ministère épiscopal, doivent être les premiers destinataires de votre attention pastorale, et doivent se sentir proches de vous et être traités avec une amitié fraternelle. Cela les aidera à accomplir avec dévouement le ministère reçu et également à accueillir avec un esprit filial, lorsque cela est nécessaire, les admonestations en ce qui concerne les aspects devant être améliorés ou corrigés. C'est pourquoi je vous encourage à redoubler vos efforts en vue d'encourager le zèle pastoral entre les prêtres, en particulier au cours de cette prochaine année sacerdotale que j'ai voulu proclamer.
+
+A cela s'ajoute l'intérêt qu'il faut manifester à l'égard du séminaire diocésain, pour encourager une sélection et une formation attentive et compétente de ceux qui ont été appelés à être les pasteurs du peuple de Dieu, sans épargner les moyens humains et matériels pour cela.
+
+6. Les fidèles laïcs, pour leur part, participent selon leur façon spécifique à la mission salvifique de l'Eglise (cf. *[Lumen gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, n. 33). En tant que disciples et missionnaires du Christ, ils sont appelés à illuminer et ordonner les réalités temporelles afin qu'elles répondent au dessein d'amour de Dieu ( *ibid.*, n. 31). C'est pourquoi, il faut des laïcs mûrs, qui témoignent fidèlement de leur foi et ressentent la joie de leur appartenance au Corps du Christ, et auxquels il est nécessaire d'offrir, entre autres, une connaissance adéquate de la doctrine sociale de l'Eglise. Dans ce sens, j'apprécie votre engagement en vue de faire rayonner la lumière de l'Evangile sur les événements de plus grande importance qui concernent votre pays, sans rechercher aucun autre intérêt que la diffusion des valeurs chrétiennes les plus authentiques, en vue également de favoriser la recherche du bien commun, la coexistence harmonieuse et la stabilité sociale.
+
+Je vous confie de façon particulière les personnes les plus indigentes. Continuez de promouvoir les multiples initiatives de charité de l'Eglise qui est au Venezuela, afin que nos frères les plus pauvres puissent faire l'expérience de la présence parmi eux de Celui qui a donné sa vie sur la Croix, pour tous les hommes.
+
+7. Je voudrais conclure par une parole d'espérance et d'encouragement pour votre devoir ; vous pouvez toujours compter sur mon soutien, sur ma sollicitude et sur ma proximité spirituelle. Je vous demande d'apporter mes salutations affectueuses à tous les membres de vos Eglises particulières : aux évêques émérites, aux prêtres, aux religieux et aux fidèles laïcs, et en particulier aux époux, aux jeunes, aux personnes âgées et aux personnes souffrantes. Avec ces sentiments, et en invoquant la protection de la Vierge Marie, Notre-Dame de Coromoto, tant aimée dans tout le Venezuela, je vous donne de tout cœur ma bénédiction apostolique.
+
+© Copyright 2009 - Libreria Editrice Vaticana

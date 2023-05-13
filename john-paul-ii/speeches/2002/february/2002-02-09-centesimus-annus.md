@@ -1,0 +1,37 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AUX MEMBRES DE LA FONDATION***
+
+***« *CENTESIMUS ANNUS - PRO PONTIFICE* »***
+
+*Samedi 9 février 2002*
+
+*Monsieur le Cardinal,*
+
+*Vénérés frères dans l'Episcopat,*
+
+*Mesdames, Messieurs !*
+
+1. C'est pour moi une joie de vous accueillir à l'occasion de cette rencontre, par laquelle vous entendez renouveler les sentiments d'affection qui vous lient au Successeur de Pierre, manifestant dans le même temps une solidarité concrète pour les besoins de l'Eglise. Merci de votre visite !
+
+Je salue cordialement Monsieur le Cardinal Agostino Cacciavillan, Président de l'Administration du Patrimoine du Siège apostolique, et je le remercie pour les nobles paroles qu'en votre nom, il vient de m'adresser. Mon salut s'étend à Mgr Claudio Maria Celli, Secrétaire de la même Administration, et à Monsieur Lorenzo Rossi di Montelera, Président de la Fondation « *Centesimus annus - Pro Pontifice* ».
+
+A tous les membres de la Fondation, je souhaite également une cordiale bienvenue, unie à une parole de vive satisfaction pour l'oeuvre accomplie au cours de l'année qui vient de se terminer. Une oeuvre de grand mérite pour l'aide apportée au Saint-Siège dans ses activités caritatives. Comment ne pas voir dans le dévouement qui est le vôtre, le désir constant de participer directement à la mission de tout le Peuple de Dieu, selon la vocation spécifique de chaque croyant ? C'est aussi pour cela que je souhaite vous manifester ma reconnaissance, conscient des motivations spirituelles qui soutiennent votre action bénéfique.
+
+J'adresse un salut particulier à toutes les personnes qui sont venues des Etats-Unis. Dans les derniers mois, votre pays bien-aimé a été très présent dans mes pensées et dans mes prières. Je souhaite également la bienvenue à toutes celles qui sont venues du Canada. Je vous remercie tous pour vos efforts afin de vous unir à la Fondation dans l'accomplissement de ses nobles objectifs.
+
+J'étends, en outre, ma gratitude aux Archevêques et Evêques qui, en Italie, en Pologne, et dans d'autres pays, dans les diocèses et les Conférences épiscopales, ont offert leur appui à la Fondation, avec l'aide des Assistants ecclésiastiques nationaux et locaux.
+
+2. A travers ses interventions dans les domaines économique et social, votre Fondation constitue une forme efficace d'apostolat laïc. Comme je l'ai dit lors de notre première rencontre, le 5 juin 1993, « *Centesimus annus - Pro Pontifice* » représente « *une expression significative de votre engagement de fidèles laïcs* ». En effet, ces derniers ont reçu la tâche de « *chercher le règne de Dieu précisément à travers la gérance des choses temporelles qu'ils ordonnent selon Dieu* » ( *[Lumen gentium](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, n. 31).
+
+Votre activité est d'autant plus d'actualité qu'elle entend accorder une attention spéciale à la famille et à la valorisation de son rôle indispensable dans la société. Une famille sereine et active devient un foyer qui rayonne au service  de  la  paix. A l'occasion du vingtième anniversaire de l'Exhortation *[Familiaris consortio](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_19811122_familiaris-consortio.html)*, célébré il y a deux mois environ, je rappelais que « *la famille quand elle vit en plénitude les exigences de l'amour et du pardon, devient la forteresse sûre de la civilisation de l'amour et une espérance pour l'avenir de l'humanité* » (ORLF n. 50 du 11 décembre 2001). C'est dans les familles saines et harmonieuses que sont ouverts les chemins de la civilisation de l'amour, grâce à l'accueil et à l'aide réciproque dont elles sont le coeur. Il ne faut donc pas cesser de prier et de d'oeuvrer, afin que la famille, en son sein et autour d'elle, soit un acteur dans le chemin constructif vers la paix.
+
+3. Il y a aujourd'hui dans le monde une grande soif de vérité, de justice et d'entente. J'ai pu encore en faire l'expérience voilà deux semaines, à Assise, quand, dans un climat d'écoute attentive et de dialogue, nous avons passé toute une journée, avec les représentants des religions, à réfléchir et à prier pour la paix.
+
+Nous nous sommes sentis les fils d'un Dieu créateur et tout-puissant, qui ont besoin de son aide bienveillante. Nous avons constaté avec inquiétude à quel point les germes de la haine et de la violence peuvent corrompre l'entente et la compréhension. Il est par contre nécessaire de promouvoir l'amour dans la société, et, pour ce faire, il faut partir de cette cellule primordiale de l'humanité qu'est la famille. Si l'on n'aide pas le foyer familial à vivre et à prospérer dans la sécurité et la sérénité, il s'affaiblit et se désagrège, entraînant des dommages pour l'individu et la société. Il est donc important que soit garanti à chaque foyer familial, entre autres choses, la sécurité nécessaire d'un point de vue économique, social, éducatif et culturel, afin qu'il puisse assumer les devoirs qui lui incombent. L'Etat doit favoriser et susciter le plus possible l'initiative responsable des familles (cf. *Familiaris consortio*, n. 45).
+
+4. Très chers frères et soeurs ! Lors du grand Jubilé de l'An 2000, vous vous êtes penchés sur le problème relatif à l'éthique et à la finance, en référence à la mondialisation de la finance, en expansion constante à travers le monde. Comme prolongement à cette réflexion, vous avez décidé cette année de réfléchir sur le principe de subsidiarité, qui est un point central de la doctrine sociale de l'Eglise. En appliquant ce principe aux rapports entre la famille et l'Etat, apparaît en premier lieu l'urgence de mettre en oeuvre tous les instruments possibles au service de la promotion de ces valeurs qui enrichissent la famille, sanctuaire de la vie et environnement dans lequel les citoyens de demain naissent et grandissent. L'Etat, quant à lui, ne peut pas ne pas avoir à l'esprit qu'« *une société d'ordre supérieur ne doit pas intervenir dans la vie interne d'une société d'un ordre inférieur, en lui enlevant ses compétences, mais elle doit plutôt la soutenir en cas de nécessité et l'aider à coordonner son action avec celle des autres éléments qui composent la société en vue du bien commun* » ( *[Centesimus annus](/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_01051991_centesimus-annus.html)*, n. 48).
+
+Votre Fondation ne manquera pas de poursuivre son engagement dans ce sens, en vue d'une solidarité authentique, qui traduise dans les faits le principe de subsidiarité. Je vous suis reconnaissant pour votre effort commun et j'espère que vous pourrez trouver un écho dans les diverses forces qui composent le tissu de la société civile. Face aux nombreux besoins qui émergent actuellement, il vous reviendra d'intensifier, de façon particulière, tout effort en vue d'un renouveau social authentique, en ayant comme référence l'enseignement éternel de l'Evangile et comme gouvernail la Doctrine sociale de l'Eglise. Que Dieu fasse que votre engagement louable et méritoire soit couronné de fruits abondants.
+
+En vous renouvelant l'expression de mon estime et de ma proximité spirituelle, je vous confie à la protection céleste de la Mère de Dieu, afin qu'elle vous protège sous son manteau maternel de grâce. Que vous accompagne aussi ma Bénédiction, que je vous donne de tout coeur, ainsi qu'à vos familles et à toutes les personnes qui vous sont chères, spécialement tous ces petits enfants qui se trouvent dans cette salle.

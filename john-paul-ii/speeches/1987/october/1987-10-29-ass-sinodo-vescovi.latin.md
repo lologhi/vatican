@@ -1,0 +1,59 @@
+***ALLOCUTIO IOANNIS PAULI PP. II***
+
+***VII EXEUNTE ORDINARIO GENERALI***
+
+***COETUI SYNODI EPISCOPORUM***
+
+*Die XXIX mensis Octobris anno MCMLXXXVII*
+
+*Dilectissimi in Domino*,
+
+**1.** Gratias agamus Deo per Iesum Christum Dominum nostrum, in dilectione Sancti Spiritus, ob actam huius septimi conventus ordinariae Synodus Episcoporum celebrationem. Haec suos explicavit labores in re tanti momenti oeconomiae salutis : in vocatione scilicet et missione laicorum in Ecclesia et in mundo huius temporis. Vere iustum est nostram gratiarum actionem ad Deum tollere : propter experientiam fraternae communionis ; ex qua his diebus viximus, propter mutuam amplificationem, quam unicuique nostrum attulit magna haec consultatio ; propter fructus quos confidimus oriri posse ex nostris his laboribus pro Regno Dei lentam in terra maturitatem assequente. Deus, qui sua bonitate nostrae operae adfuit eamque prosperavit, velit ex ea fundere messem copiosam bonorum pro Ecclesia sua dilecta.
+
+Animus meus simul gratus convertitur in unumquemque vestrum, Fratres dilectissimi, qui huc convenistis ex omni terrarum parte, huic coetui tulistis ea multa, quae vestro studio pastorali experti estis, atque per has hebdomadas, vestrae mentis et cordis vires impigre impendistis in elaborandis multiplicibus quaestionibus a vobis exquisitis. Sollicitudines et exspectationes, quae cor cuiusque movebant, in corda omnium nostrum resiluerunt ; et ita factum est ut, his diebus, manifeste senserimus illam “sollicitudinem omnium Ecclesiarum”, quae pectus Apostoli urebat ( *2 Cor*. 11, 28). Cuilibet vestrum gratias agens, velim omnes Ecclesiae filios scire cogitationem de ipsis, de eorum exspectationibus, de eorum quaestionibus constanter in hac Aula synodali conspirasse cum nostris laboribus iunctam.
+
+Aderant, ut hanc cogitationem excitarent, periti curatores variarum ecclesiasticarum necessitatum. Etiam his personis, Religiosis viris et mulieribus, Laicis item virilis et muliebris sexus, doctis varias quae gradus constituunt conventus ipsius operis introductorii. Significatione mei benevoli affectus.
+
+**2.** Haec re vera magna conquisitio est iudicanda quam, ipsa Dei gratia adiuvante, consequi potuimus. Singula profecto eiusdem deliberationis elementa inveniri possunt in sermonibus ac scriptis quae gradus constituunt conventus ipsius operis introductorii. Significare praesertim volo tum “lineamenta” Ecclesiis particularibus anno millesimo nongentesimo octogesimo quinto ineunte reddita, tum “suggestiones, animadversiones et responsa” ab iisdem vicissim in Synodi Secretariam relata, “instrumentum laboris” denique, quod, prae oculis his habitis rebus, praeparatum est ac deinceps episcopis eorumque sociis et cunctis fidelibus traditum, tempore verno huius anni. Denotare praeterea volo complures voces quae, instante synodali disceptatione, auditae sunt, deinde tum propositiones in quibus inquisitio ipsa ad effectum est adducta.
+
+Secundum Patrum synodalium optata, omnia elementa quae hoc modo collustrata sunt fundamentum constituunt ad exinde documentum post-synodale pertexendum, quod quam primum conscribere mihi in animo est. Spatium porro temporis angustum, quo necessario ipsa synodus congregatur, proprium ac definitum documentum exarare non sinit. Mihimet ipsi igitur erit curae ut, proposito ac plane manifestae voluntati Patrum annuens, hoc negotium expediar, opera videlicet usus consilii Secretariae Synodi, servatis nempe iis propriis peculiaribusque quae ad ipsam Synodum pertinent.
+
+Hoc autem modo spe equidem ducor fore ut rationes cooperationis collegialis compleri possint, quae profecto in hac novissima congressione tam manifeste ac nitide detegitur. Finis enim praecipuus, ad quem omnes contendere cupimus, in serviendo magnae Dei familiae reperitur, illi populo Dei scilicet, cuius laici magna sunt pars. Attamen in variis elementis explorandis vocationis ac muneris laicorum, semper distinctionem oportebit spectare multiplicem Communitatis Ecclesialis, quae tam clare emersit per Synodi cursum ex verbis eorum, qui interfuerunt.
+
+Hoc servitium Ecclesiae, praebitum Populo Dei peregrinanti in viis temporis versum aeternam Patriam, nostrum omnium peculiari modo est officium, qui uti membra Collegii Episcopalis, perficimus in Ecclesia munus pastorale quod ab Apostolis hereditate accepimus.
+
+**3.** A propositis futura attingentibus ad praesentia rediens, cupio meum memorem animum iterum aperire iis omnibus qui, variis modis, labori explicato in hac synodali sessione operam navarunt.
+
+Cogito imprimis de iis, qui in eam praeparationem incubuerunt. Praesertim commemoranda sunt antecedens et praesens Consilium pro Secretaria, una cum Cooperatoribus et Consiliariis. Specialis mentionis autem, etiam hoc respectu, est dignus coetus extraordinarius Synodi, anno millesimo nongentesimo octogesimo quinto celebratus ; ipse namque, reputans fructus Concilii Vaticani II vicesimo anno postquam est conclusum, substitit singulari attentione, sicut iustum erat, in munere quod Laicorum est in Ecclesia ; idemque lineamenta duxit pervestigationis, iuxta quam dein hic conventus praeparatus est.
+
+Meritum tamen praecipuum fructuum his diebus perceptorum et inde peculiare grati animi officium est a nobis tribuendum Episcopis residentialibus et Conferentiis Episcopalibus, quae quaestiones synodales inspexerunt et explicaverunt in “suis locis”, consulentes suos quisque ordines laicatus. Evidenter eiusmodi consultationis participes fuerunt etiam sacerdotes, religiosi et religiosae, qui cum laicis comuncte vivunt : iis quoque gratias ago.
+
+Mentionem specialem facere opto Consilii pro Laicis, quod optime se in hanc praeparationem inseruit, sua propria usum peritia : illud enim, per conventum Algidi (Rocca di Papa) mense Maio actum, significanter contulit ad Synodi res praecipuas.
+
+Laeto nunc volo munere fungi aperte gratias persolvendi omnibus iis, qui laboribus non parcentes, directo aedificationi “operis synodalis” in hac non facili Sessione profuerunt.
+
+Ante omnia volo significare ipsis participibus singulis huius Synodi omnem aestimationem meam tanti operis ac tantae diligentiae impensae in prosperam progressionem huius ecclesialis eventus et celebrationis. Legati Conferentiarum Episcopalium necnon Ecclesiarum Orientalium, participes a me nominati, Superiores Generales familiarum religiosarum, Praefecti officiorum Romanae Curiae : hi omnes sua propria industria cotidiana effecerunt ut Synodus ipsa fructuose celebrari posset. Cogitamus autem sacerdotes etiam Episcoporum adiutores atque animo fraterno amplexamur ex longinquo illos honoratos quidem Episcopos qui varias ob causas impediti sunt ne cum fratribus Episcopis Synodo assisterent.
+
+Gratam vero mentem testari debeo et cupio tribus quidem Praesidibus Delegatis, Venerabilibus Fratribus Pironio, Lubachivsky et Vidal-memor simul Cardinalis Trin Van Can qui interesse nobiscum Synodo non potuit-. Egregium sane opus-omnibus certe assentientibus- perfecit Relator Generalis, Cardinalis Thiandoum, Archiepiscopus Dakarensis, qui hoc scilicet modo fecit ut Ecclesia Africana suas etiam partes summi momenti adderet ad Synodi copiosos fructus. Secretarius dein peculiaris eiusque adiutores, tum clerici ac laici tum viri ac mulieres, omnes ad unum sunt laudandi quod participibus Synodi praebuerunt eximium quoddam adiumentum in quaestionibus ipsis theologicis, et quidem magna cum alacritate ac fidelitate.
+
+Certus sum omnium vestrum animum hoc temporis momento interpretandi, dum peculiares impensasque gratias ago Generali Synodi Secretario, Archiepiscopo Schotte, omnibusque in Secretaria Generali Episcoporum Synodi adiutricem operam ipsi navantibus, qui non modo communem Patrum laborem optime paraverunt, sed procedentibus hisce sessionibus nobis omnibus astiterunt, ut opus feliciter absolveretur.
+
+Merentur animi grati mei declarationem Secretarii duo adiuncti, laici illi duo hoc tempore nominati, vir ac mulier, qui expleverunt officium suum in exemplum omnibus ; ipsi insigniter demonstraverunt inter pastores ipsos magnas exspectationes ac spes laicorum, quorum testimonium fidei solidissimum luculenter reddiderunt.
+
+Nominatim porro placet commemorare Moderatores Circulorum Minorum qui ita sapienter opus dirigere poterant non modo ut fruerentur omnes facultate sese libere exprimendi, verum etiam ut sententiae in Synodo prolatae et partes variae interventuum componerentur ac veluti coniungerentur in maturum quendam synodalem consensum. Pondus autem operis et aestum portaverunt Relatores Circulorum Minorum : ipsi enim diligenter ac plene absolverunt suas relationes rerum et in primis, quia in singulis gressibus ad efficiendum synodalem consensum consociaverunt adiutricem suam operam cum Moderatore ac Secretario peculiari atque observaverunt simul sententias et pronuntiationes omnium. Plurimas horas impenderunt in hoc arduum opus conciliandi omnia ac monstraverunt eodem tempore sensum sacrificii, fidele officium erga Ecclesiam, suamque peritiam.
+
+Omnino etiam laudo specialem in modum Auditores et Auditrices, viros ac mulieres, religiosos ac religiosas, sodales Institutorum saecularium, laicos. Eorum conspectus et in Aula et minoribus in circulis novam vel maiorem processui Synodali tribuit amplitudinem.
+
+Quotquot in Aula cum Patribus Synodalibus collocuti sunt, ii, sive specialiter missi sive ut Auditores adstantes, Christianorum rem ita, ut sunt, plane expresserunt. Etenim omnes orbis terrarum laici loqui per eos potuerunt. Eorum vitae et officiorum ac fidei testimonium summis efferebatur laudibus. Eiusmodi fuerunt opera et adiumentum, quae in oblivionem adduci nequeunt Pro sua quisque parte omnes in magnam familiam Synodalem inserti sunt, duce Spiritu Sancto.
+
+**4.** Cras in Basilica Sancti Petri nos celebrantes cum magna animorum coniunctione ritum sollemnem Eucharistiae iterum gratias Domino agemus pro universis illis donis quae nobis concessit decursu superiorum dierum.
+
+Sed iam nunc praevidentes hanc actionem liturgicam ad gratias referendas atque praeparantes nosmet ipsos ad eam, permutemus inter nos signa ac testimonia mutuae affectionis ita grati animi ; prorsus sumus conscii omne datum optimum et omne donum perfectum de sursum esse ac descendere a Patre luminum, apud quem non est trasmutatio nec vicissitudinis obumbratio. Omne illud bonum ac beneficium, quod intra hunc Synodi conventum pro nobis mutuo facere potuimus, et omne illud ministerium, quod peragere similiter potuimus pro Ecclesia ac praeclara causa apostolatus laicorum, originem suam ducunt a Deo ipso, in quo fons ultimus invenitur omnium bonorum quae in tempore demonstrantur et in spatio mundi. Sed etiam bene novimus : talis laus Deo reddita non probaretur, nisi simul agnoscerentur partes suas singuli fratres et sorores impleverunt, dum consilium exsequebantur ab eodem Deo prius constitutum secundum sapientem ipsius omnipotentiam providumque amorem.
+
+Vicissim igitur inter nos gratias habemus simulque voces consociamus nostras ut sensus gratae mentis tollamus ad Eum, Deum ac Patrem Domini nostri Iesu Christi, precantes ut, qui coepit in nobis opus bonum, perficiat illud in gloriam suam atque utilitatem eorum omnium quos commendavit pastoralibus nostris curis.
+
+Utinam  “synodalitas effectiva”-sicut per analogiam possumus eam definire-quam experti sumus hisce diebus, prolongetur et continuetur in posterum tempus tamquam “synodalitas affectiva” nostramque sollertiam et operam comitetur, dum videlicet in actum effectumque convertamus singula illa quae Dominus suasit animis nostris et cordibus.
+
+Denique tandem concredimus hoc nostrum optatum et votum curae pientissimae Virginis Mariae, ut ipsa Filio suo illud exhibeat ab Eoque nobis impetret omnia auxilia necessaria ad tempus et opus post Synodum iam fructuose recteque complendum.
+
+© Copyright 1987 - Libreria Editrice Vaticana

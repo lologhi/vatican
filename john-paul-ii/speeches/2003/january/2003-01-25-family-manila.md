@@ -1,0 +1,41 @@
+IVe RENCONTRE MONDIALE DES FAMILLES
+
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+*25 janvier 2003*
+
+1. Je suis avec vous par la pensée et la prière, familles bien-aimées des Philippines et de nombreuses régions de la terre qui êtes venues à Manille pour votre IV Rencontre mondiale ; je vous salue affectueusement au nom du Seigneur.
+
+À cette occasion, je suis heureux de saluer cordialement et de bénir *toutes les familles du monde*, que vous représentez : à vous tous, « grâce, miséricorde et paix de la part de Dieu le Père et du Christ Jésus notre Seigneur » ( *1 Tm* 1, 2).
+
+Je remercie Monsieur le Cardinal Alfonso López Trujillo, Légat pontifical, des aimables paroles qu’il m’a adressées en votre nom. À lui et à ses collaborateurs du Conseil pontifical pour la Famille, je désire exprimer ma satisfaction pour l’application empressée avec laquelle ils ont préparé cette rencontre. Ma vive gratitude va aussi à Monsieur le Cardinal Jaime Sin, Archevêque de Manille, qui vous accueille avec générosité ces jours-ci.
+
+2. Je sais qu’au cours de la session théologique et pastorale qui vient de se terminer vous avez approfondi le thème de *« la famille chrétienne, bonne nouvelle pour le troisième millénaire ».* J’ai choisi ce sujet en vue de votre Rencontre mondiale, pour souligner la mission sublime de la famille qui, recevant l’Évangile et se laissant éclairer par son message, prend l’engagement d’en devenir le témoin.
+
+Chères Familles chrétiennes, annoncez avec joie au monde entier le *trésor merveilleux* dont vous êtes porteuses en tant qu’Églises domestiques ! Époux chrétiens, dans votre communion de vie et d’amour, dans votre don réciproque et dans le généreux accueil des enfants, *soyez dans le Christ la lumière du monde* ! Le Seigneur vous demande de devenir chaque jour comme la lampe qui ne reste pas cachée mais qui est mise « sur le lampadaire » et qui « brille pour tous ceux qui sont dans la maison » ( *Mt* 5, 15).
+
+3. Soyez avant tout une « *bonne nouvelle* pour le troisième millénaire » en vivant avec application votre vocation. Le mariage, que vous avez célébré il y a plus ou moins longtemps, est *votre façon spécifique d’être disciples de Jésus*, de contribuer à l’édification du Royaume de Dieu, de marcher vers la sainteté à laquelle tout chrétien est appelé. Comme l’affirme le Concile Vatican II, les époux chrétiens, en accomplissant leur devoir conjugal et familial, « parviennent toujours davantage à leur perfection personnelle et à la sanctification mutuelle » ( *[Gaudium et spes](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, n. 48).
+
+Accueillez pleinement, sans réserve, l’amour de Dieu que, dans le sacrement du mariage, il vous donne en premier et par lequel il vous rend capables d’aimer (cf. *1 Jn* 4, 19). Demeurez toujours ancrés dans cette certitude, la seule qui peut donner sens, force et joie à votre vie : *l’amour du Christ ne s’éloignera jamais de vous*, jamais ne fera défaut son alliance de paix avec vous (cf. *Is* 54, 10). Les dons et l’appel de Dieu sont irrévocables (cf. *Rm* 11, 29). Il a gravé votre nom sur les paumes de ses mains (cf. *Is* 49, 16).
+
+4. La grâce que vous avez reçue dans le mariage et qui demeure dans le temps provient du cœur transpercé du Rédempteur qui s’est immolé sur l’autel de la Croix pour l’Église, son épouse, allant à la mort pour le salut de tous.
+
+C’est pourquoi cette grâce comporte la particularité de son origine : *c’est la grâce de l’amour qui s’offre*, de l’amour qui se donne et qui pardonne ; de l’amour altruiste, qui oublie sa propre souffrance ; de l’amour fidèle jusqu’à la mort ; de l’amour qui engendre la vie. C’est la grâce de l’amour bienveillant, qui croit tout, qui supporte tout, qui espère tout, qui endure tout, qui n’a pas de fin et sans lequel tout le reste n’est rien (cf. *1 Co* 13, 7-8).
+
+Il est certain que ce n’est pas toujours facile et que dans la vie quotidienne ne manquent pas les embûches, les tensions, la souffrance et aussi la fatigue. Mais *vous n’êtes pas seuls sur votre chemin*. Avec vous Jésus est toujours présent et agissant, comme autrefois à Cana de Galilée, en un moment de difficulté pour ces nouveaux époux. En effet, comme le rappelle encore le Concile, le Sauveur vient à la rencontre des époux chrétiens et demeure avec eux afin que, de même qu’il a aimé l’Église et s’est livré pour elle, ils puissent eux aussi s’aimer l’un l’autre fidèlement, pour toujours, dans un don mutuel (cf. *[Gaudium et spes](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, n. 48).
+
+5. Époux chrétiens, soyez une « bonne nouvelle pour le troisième millénaire » en étant des témoins convaincus et cohérents de *la vérité sur la famille*.
+
+La famille fondée sur le mariage est un patrimoine de l’humanité, c’est un grand bien, un bien suprêmement appréciable, nécessaire pour la vie, le développement et l’avenir des peuples. Selon le plan de la création établi depuis le commencement (cf. *Mt* 19, 4. 8), la famille est le milieu dans lequel la personne humaine, faite à l’image et à la ressemblance de Dieu (cf. *Gn* 1, 26), est conçue, naît, croît et se développe. En tant que formatrice par excellence de personnes (cf. *[Familiaris consortio](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_19811122_familiaris-consortio.html)*, nn. 19-27), la famille est indispensable à une véritable «écologie humaine » ( *[Centesimus annus](/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_01051991_centesimus-annus.html)*, n. 39).
+
+Je vous remercie des *témoignages* que vous avez présentés ce soir et que j’ai suivis avec attention. Ils me remettent en mémoire l’expérience que j’ai moi-même acquise comme prêtre, comme Archevêque de Cracovie et au cours de ces presque vingt-cinq années de pontificat : comme j’ai eu l’occasion de le dire à plusieurs reprises, *l’avenir de l’humanité passe par la famille* (cf. *[Familiaris consortio](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_19811122_familiaris-consortio.html)*, n. 86).
+
+Chères familles chrétiennes, je vous recommande de témoigner par votre vie de chaque jour que, en dépit de beaucoup de difficultés et d’obstacles, *il est possible de vivre en plénitude le mariage* comme expérience pleine de sens et comme « bonne nouvelle » pour les hommes et les femmes de notre temps. *Soyez des protagonistes dans l’Église et dans le monde* : c’est une nécessité qui découle du mariage même que vous avez célébré, du fait que vous êtes une Église domestique, de la mission conjugale qui vous caractérise en tant que cellules primordiales de la société (cf. *[Apostolicam actuositatem](http://localhost/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651118_apostolicam-actuositatem_fr.html)*, n. 11).
+
+6. Enfin, pour être une « bonne nouvelle pour le troisième millénaire », n’oubliez pas, chers époux chrétiens, que *la prière en famille* est une garantie d’unité dans un style de vie en harmonie avec la volonté de Dieu.
+
+En proclamant récemment l’Année du Rosaire, j’ai recommandé cette dévotion mariale comme prière *de la* famille et *pour la* famille : en récitant le Rosaire, en effet, « on place Jésus au centre, on partage avec lui les joies et les souffrances, on remet entre ses mains les besoins et les projets, on reçoit de lui espérance et force pour le chemin » ( *[Rosarium Virginis Mariæ](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20021016_rosarium-virginis-mariae.html)*, n. 41).
+
+En vous confiant à Marie, Reine de la famille, afin qu’elle accompagne et soutienne votre vie, je suis heureux de vous annoncer que la cinquième Rencontre mondiale des Familles *aura lieu à Valence*, en Espagne, *en 2006*.
+
+À tous je donne maintenant ma Bénédiction, en vous laissant une consigne : avec l’aide de Dieu, *faites de l’Évangile la règle fondamentale de votre famille, et faites de votre famille une page d’Évangile écrite pour notre temps* !

@@ -1,0 +1,49 @@
+VISITE AU PRÉSIDENT DE LA RÉPUBLIQUE ITALIENNE
+
+***DISCOURS DU PAPE FRANÇOIS***
+
+*Palais du Quirinal*
+
+*Samedi, 10 juin 2017*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/6/10/visita-quirinale.html)]**
+
+* * *
+
+*Monsieur le président,*
+
+Je vous remercie des paroles cordiales de bienvenue que vous m’avez adressées au nom de tout le peuple italien. Ma visite s’inscrit dans le cadre des relations entre le Saint-Siège et l’Italie et elle veut répondre à celle que vous avez accomplie au Vatican le 18 avril 2015, peu de temps après votre élection à la plus haute charge de l’Etat.
+
+Je regarde l’Italie avec *espérance*. Une espérance qui *s’enracine dans la mémoire reconnaissante* envers les parents et les grands-parents, qui sont aussi les miens, parce que mes racines se trouvent dans ce pays. Une mémoire reconnaissante envers les générations qui nous ont précédés et qui, avec l’aide de Dieu, ont promu les valeurs fondamentales : la dignité de la personne, la famille, le travail... Et elles ont également placé ces valeurs au centre de la constitution républicaine, qui a offert et offre un cadre de référence stable pour la vie démocratique du peuple. Une espérance qui est donc fondée sur la mémoire, une mémoire reconnaissante.
+
+Nous vivons cependant à une époque où l’Italie et l’ensemble de l’Europe sont appelés à affronter des problèmes et des risques de différentes natures, comme le terrorisme international qui se nourrit du fondamentalisme ; le phénomène migratoire, accru par les guerres et par les graves déséquilibres sociaux et économiques de nombreuses régions du monde ; et la difficulté des jeunes générations à accéder à un travail stable et digne, ce qui contribue à augmenter le manque de confiance dans l’avenir et ne favorise pas la naissance de nouvelles familles et d’enfants.
+
+Mais je me réjouis de noter que l’Italie, grâce à la générosité active de ses citoyens et à l’engagement de ses institutions, et en faisant appel à ses abondantes ressources spirituelles, se prodigue pour *transformer ces défis en occasions de croissance et de nouvelles possibilités*.
+
+La preuve en est, entre autres, l’accueil de nombreux réfugiés qui débarquent sur ses côtes, l’action des premiers secours garantie par ses navires en Méditerranée, et l’engagement de groupes de bénévoles, parmi lesquels se distinguent des associations et des organismes de l’Eglise et le réseau ramifiée des paroisses. La preuve en est également le grand effort de l’Italie dans le domaine international en faveur de la paix, du maintien de la sécurité et de la coopération entre les Etats.
+
+Je voudrais également rappeler la force, animée par la foi, avec laquelle les populations du centre de l’Italie frappées par le tremblement de terre ont vécu cette expérience dramatique, avec de nombreux exemples de collaboration féconde entre la communauté ecclésiale et la communauté civile.
+
+La façon dont l’Etat et le peuple italiens affrontent la crise migratoire, ainsi que l’effort accompli pour assister de manière appropriée les populations frappées par le séisme, sont l’expression de sentiments et de comportements qui trouvent leur source la plus authentique dans la foi chrétienne, qui a façonné le caractère des Italiens et qui resplendit davantage dans les moments dramatiques.
+
+En ce qui concerne le phénomène migratoire vaste et complexe, il est clair qu’un petit nombre de pays ne peut pas le prendre entièrement en charge, en assurant une intégration ordonnée des nouveaux arrivants dans leur tissu social. C’est pourquoi il est indispensable et urgent que se développe une coopération internationale ample et décisive.
+
+Parmi les questions qui interpellent le plus aujourd’hui ceux qui ont à cœur le bien commun, et en particulier les pouvoirs publics, les entrepreneurs et les syndicats des travailleurs, se trouve celle du *travail*. J’ai eu l’occasion de l’aborder, non pas de façon théorique, mais à travers un contact direct avec les personnes, les travailleurs et les chômeurs, lors de mes visites en Italie, y [compris la plus récente, à Gênes](http://w2.vatican.va/content/francesco/fr/travels/2017/inside/documents/papa-francesco-genova_2017.html). Je renouvelle mon appel à créer et à accompagner des processus qui donnent lieu à de nouvelles possibilités de travail digne. Le malaise des jeunes, les poches de pauvreté, la difficulté que les jeunes rencontrent pour former une famille et mettre des enfants au monde trouvent un dénominateur commun dans l’insuffisance de l’offre de travail, parfois tellement précaire et tellement peu rétribué qu’il ne permet pas de faire de projets sérieux.
+
+Une alliance de synergies et d’initiatives est nécessaire pour que les ressources financières soient mises au service de cet objectif de grande ampleur et valeur sociale, et qu’elles ne soient pas en revanche détournées et dispersées dans des investissements principalement spéculatifs qui dénotent un manque de vision à long terme, une considération insuffisante du rôle véritable de l’entrepreneur et, en dernière analyse, une faiblesse et un instinct de fuite face aux défis de notre époque.
+
+Un *travail* stable ainsi qu’une politique véritablement engagée en faveur de la *famille*, premier et principal lieu où se forme la personne-en-relation, sont les conditions d’un développement durable authentique et d’une croissance harmonieuse de la société. Ce sont les deux piliers qui soutiennent la maison commune et qui la fortifient pour affronter l’avenir avec un esprit non pas résigné et craintif, mais créatif et confiant. Les nouvelles générations ont le droit de pouvoir marcher vers des objectifs importants et à la portée de leur destin, de façon à ce que, animées par de nobles idéaux, elles trouvent la force et le courage d’accomplir à leur tour les sacrifices nécessaires pour parvenir au but, pour construire un avenir digne de l’homme, dans les relations, dans le travail, dans la famille et dans la société.
+
+Dans ce but, on attend de tous ceux qui ont une responsabilité dans le domaine politique et administratif, un travail patient et humble pour le bien commun, qui cherche à *renforcer les liens entre les personnes et les institutions*, car de ce tissage tenace et de cet engagement commun se développe la vraie démocratie et s’amorcent des solutions aux questions que, du fait de leur complexité, personne ne peut prétendre résoudre tout seul.
+
+L’ *Eglise en Italie* est une réalité vivante, fortement unie à l’âme du pays, à ce que ressent la population. Elle en vit les joies et les douleurs, et elle cherche, selon ses possibilités, à en alléger les souffrances, à renforcer le lien social, à aider chacun à construire le bien commun. En cela aussi, l’Eglise s’inspire de l’enseignement de la constitution pastorale *[Gaudium et spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651207_gaudium-et-spes_fr.html)* du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm), qui souhaite la collaboration entre communauté ecclésiale et communauté politique, dans la mesure où elles sont toutes les deux au service des mêmes personnes humaines. Un enseignement qui a été consacré dans la révision du concordat de 1984, dans le premier article de l’accord, où est formulé l’engagement de l’Etat et de l’Eglise «à une collaboration réciproque pour la promotion de l’homme et le bien du pays ».
+
+Cet engagement, avec le rappel du principe de la distinction fixée par l’art. 7 de la constitution, exprime et a promu à la fois une forme particulière de *laïcité*, ni hostile ni conflictuelle, mais amicale et collaborative, bien que dans une rigoureuse distinction des compétences propres aux institutions politiques d’un côté et religieuses de l’autre. Une laïcité que mon prédécesseur Benoît XVI a définie comme « positive ». Et l’on ne peut faire à moins de constater que, grâce à elle, l’état des relations de collaboration entre l’Eglise et l’Etat en Italie, au bénéfice des personnes et de toute la communauté nationale, est excellent.
+
+L’Italie a ensuite la charge et l’honneur singuliers d’avoir, en son sein, le siège du gouvernement universel de l’Eglise catholique. Il est évident qu’en dépit des garanties offertes par le Traité de 1929, la mission du Successeur de Pierre ne serait pas facilitée sans la disponibilité et la collaboration cordiale et généreuse de l’Etat italien. On a pu en avoir une nouvelle démonstration au cours du récent jubilé extraordinaire, qui a vu tant de fidèles venir à Rome, auprès des tombeaux des apôtres Pierre et Paul, dans un esprit de réconciliation et de miséricorde. En dépit de l’insécurité de l’époque que nous vivons, les célébrations jubilaires ont pu se dérouler de façon sereine et avec un grand bénéfice spirituel. A cet égard, le Saint-Siège est pleinement conscient et sincèrement reconnaissant du grand engagement assuré par l’Italie.
+
+Monsieur le président, je suis certains que si l’Italie sait s’appuyer sur toutes ses ressources spirituelles et matérielles, dans un esprit de collaboration entre ses différentes composantes civiles, elle trouvera la bonne voie pour un développement ordonné et pour gouverner de la manière la plus appropriée les phénomènes et les problématiques qu’elle doit affronter.
+
+Le Saint-Siège, l’Eglise catholique et ses institutions assurent, dans la distinction des rôles et des responsabilités, leur collaboration effective en vue du bien commun. Dans l’Eglise catholique et dans les principes du christianisme, qui ont façonné son histoire riche et millénaire, l’Italie trouvera toujours le meilleur allié pour la croissance de la société, pour sa concorde et pour son progrès véritable.
+
+Que Dieu bénisse et protège l’Italie !

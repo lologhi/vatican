@@ -1,0 +1,21 @@
+**PAPE FRANÇOIS**
+
+MÉDITATION MATINALE EN LA CHAPELLE DE LA
+
+MAISON SAINTE-MARTHE
+
+***Des bonbons au miel***
+
+*Jeudi 10 janvier 2019*
+
+( *L'Osservatore Romano*, *Édition hebdomadaire n°004 du 22 janvier 2019*)
+
+Prier pour son prochain, même « pour cette personne qui m’est antipathique »; ne pas nourrir de « sentiments de jalousie ou d’envie »; et, surtout, éviter les médisances, parce que les bavardages sont comme les bonbons au miel, « qui sont effectivement bons », mais ensuite abîment l’estomac. Ce sont les trois “signes” indiqués par le Pape pour discerner la capacité d’une personne à aimer les autres et en conséquence à aimer Dieu.
+
+Pour sa réflexion le Pape s’est inspiré de la liturgie de la Parole, en privilégiant la première lecture, tirée de la première lettre de saint Jean apôtre (4, 19 — 5, 4), dans laquelle l’auteur « parle de mondanité, de l’esprit du monde », en disant que «“ceux qui sont engendrés par Dieu, sont capables de vaincre le monde”. C’est la lutte de tous les jours, la lutte contre la mondanité, l’esprit du monde ». En effet, « l’esprit du monde qui est menteur, est un esprit d’apparence, sans consistance, il n’est pas véridique », alors que « l’Esprit de Dieu est véridique ».
+
+Et à ce propos François a proposé un exemple tiré de la vie quotidienne. « Au Carnaval, il y a la tradition d’offrir des crêpes comme dessert : vous les connaissez tous. Il y en a certaines qui, en dialecte, s’appellent “les mensonges”: elles sont rondes », mais ne sont pas “consistantes”, étant vides, “pleines d’air”. Et « l’esprit du monde est ainsi : plein d’air. Il ne sert pas. Il se dégonflera. Mais entre temps, il lutte » et « il trompe, car il est l’esprit du mensonge ; il est le fils du père du mensonge ». Au contraire, a fait remarquer le Pape, « l’apôtre a l’Esprit de Dieu et il nous donne, à nous, la voie du caractère concret de l’Esprit de Dieu ». Du reste, « l’Esprit de Dieu est toujours concret ». Dans cette optique « concrète, Jean dit une chose très quotidienne »: « Celui qui n’aime pas son propre frère qu’il voit, ne peut pas aimer Dieu, qu’il ne voit pas ». « Si quelqu’un dit : “j’aime Dieu” et qu’il hait son frère, c’est un menteur », c’est-à-dire « un fils de l’Esprit du monde, qui est pur mensonge, pure apparence ».
+
+D’où l’invitation à un approfondissement. « C’est une chose sur laquelle nous ferions bien de réfléchir : est-ce que j’aime Dieu ? Allons à la pierre de comparaison et voyons comment tu aimes ton frère : voyons comment tu l’aimes ». Voilà alors la nécessité de la question : « comment puis-je comprendre si j’aime mon frère ?». Et dans la réponse, François a développé « deux-trois choses qui peuvent nous aider. Tout d’abord : est-ce que je prie pour mon frère ? Est-ce que je prie pour mon prochain ? Est-ce que je prie pour cette personne qui m’est antipathique et qui, je le sais, ne m’aime pas ? Premièrement : si je ne prie pas, ce n’est pas bon signe ; c’est le signe que tu n’aimes pas. Mais prier également pour celui qui me hait ? Oui, aussi pour lui. Pour tous. Alors que « le second signe est quand je sens en moi des sentiments de jalousie, d’envie et que j’ai envie de lui souhaiter du mal ou pas... c’est un signe que tu n’aimes pas. Arrête-toi là. Ne laisse pas grandir ces sentiments : ils sont dangereux ». Enfin, « le signe le plus quotidien que je n’aime pas mon prochain et donc que je ne peux pas dire que j’aime Dieu, est la médisance ». Avec une recommandation : « Mettons-nous clairement dans le cœur et dans la tête : si je fais des bavardages, je n’aime pas Dieu parce qu’avec les médisances je détruis cette personne. Les médisances sont comme les bonbons au miel, qui effectivement sont bons, en manger me donne envie d’un autre et d’un autre encore, mais ensuite cela fait mal à l’estomac. Et c’est le signe que tu n’aimes pas ».
+
+Avec ce passage de la première lettre de saint Jean apôtre, le Seigneur nous demande d’être concrets dans l’amour. Aimer Dieu : mais si tu n’aimes pas ton frère, tu ne peux pas aimer Dieu. Et si tu dis aimer ton frère, mais qu’en vérité tu ne l’aimes pas, que tu le hais, tu es un menteur ».

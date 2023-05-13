@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE PIE XII***
+
+***AU NOUVEL AMBASSADEUR D'ESPAGNE PRÈS LE SAINT-SIÈGE,***
+
+***S.E.M. JOAQUÍN RUIZ-GIMÉNEZ CORTÉS****
+
+*Dimanche 12 décembre 1948*
+
+La discrète présentation que Votre Excellence vient de Nous faire d’Elle-même n’aurait pas été nécessaire, s’il ne se fut agi d’une très opportune référence personnelle, car il ne s’était pas effacé de Notre mémoire le souvenir de son intelligente activité en face de l’organisation internationale des intellectuels catholiques. De cette activité, la promotion à la haute charge qu’Elle commence à exercer en ce moment, peut être considérée comme le prix et la couronne.
+
+À cause de cela, en l’accueillant comme le successeur d’un expert et prudent diplomate, qui Nous laisse un si agréable souvenir, et en recevant les Lettres de Créance qui l’accréditent comme le représentant du chef de l’État espagnol, Nous Nous réjouissons d’une manière spéciale, car Nous connaissons déjà les très nobles idéaux qui ont été le guide et le but de la multiple activité organisatrice, directrice et professorale, qui ont rempli la vie, pas encore tellement longue, de Votre Excellence.
+
+Parmi tous ces sublimes idéaux, Monsieur l’Ambassadeur, un Nous semble les résumer tous : apporter au monde intellectuel les bienfaits de la vérité catholique, afin qu’ensuite celui-ci, faisant de cette vérité l’origine de son inspiration, la source de sa fécondité et le centre de son unité, puisse les communiquer – du haut de la chaire ou de la tribune, dans les pages du livre, de la revue ou du journal – à l’humanité assoiffée, afin qu’elle trouve en cette doctrine salutaire la source inépuisable de la vérité, le principe de tout progrès authentique et la base de toute harmonie stable et durable.
+
+Votre Excellence, en expert connaisseur de l’ambiance où Elle vit, sait qu’il ne manque pas aujourd’hui non plus d’esprits droits, qui cherchent sincèrement la lumière pour eux-mêmes, la fraternité pour ceux qui vivent ensemble dans les mêmes frontières et, pour les relations entre les peuples, l’accord et la paix. Mais peut-être aussi aura-t-Elle déploré plus d’une fois que ces efforts s’estompent dans le mirage des vérités apparentes, sous les dogmatismes raisonneurs de fausses conceptions, entre les broussailles enchevêtrées des concupiscences ou des exigences du moment, qui ne semblent tenir compte que de ses propres intérêts ou de la prompte libération du compromis actuel. On dirait que les grandes normes, les éternels principes, n’existent pas pour eux, et pour cela même leurs efforts sont voués à la stérilité.
+
+Après tout cela, Monsieur l’Ambassadeur, vous comprendrez mieux encore avec quelle satisfaction Nous vous avons entendu faire allusion à une jeunesse espagnole et à un peuple espagnol qui veulent toujours garder devant les yeux la vérité catholique, pénétrant la vie publique et sociale de tous et de chacun, inspirant les décisions de ses plus hauts Conseils et vivifiant toutes les manifestations d’une nation qui se glorifie d’être et de paraître une fille fidèle de l’Église et de ce Saint Siège apostolique. Mais Nous, si Votre Excellence y consent, Nous ajouterions qu’il fallait qu’il en fût ainsi, parce que à cette vérité, comme il a été justement observé, cette nation doit la cohésion même de sa précoce nationalité, l’inspiration de ses grands artistes, les recherches de ses profonds penseurs, les très hautes envolées de ses incomparables mystiques et jusqu’à une bonne partie de cet élan qui la poussa à rompre avec les limites du connu pour pouvoir apporter cette doctrine et ce salut à un Monde Nouveau, que Votre Excellence vient de parcourir et où Elle a dû pouvoir constater que le plus précieux héritage que la Mère Patrie a légué à ses filles est la fidélité sans réserve au Christ et à son Église.
+
+Puissent ces grandes vérités de notre sainte religion, Monsieur l’Ambassadeur, s’enfoncer chaque jour davantage dans l’âme du peuple espagnol, contribuant à l’élévation constante, morale et matérielle de ses plus humbles classes, comme elle constitue Notre incessante préoccupation, conservant dans la vie familiale le précieux héritage des anciennes traditions, fermant l’entrée à la convoitise des richesses – tentation facile en des temps difficiles –, amortissant les haines et conduisant, en tout, à pleine maturité son riche printemps spirituel. Ainsi l’Église, se servant aussi du généreux appui que ses  œuvres rencontrent parmi vous, libre des préoccupations et d’entraves, fera constater une fois de plus l’efficacité de sa doctrine au service du bonheur terrestre et supraterrestre, de la prospérité et de la paix.
+
+Soyez donc le bienvenu, Monsieur l’Ambassadeur, et soyez assuré que vos souhaits d’intensifier les relations extérieures entre votre patrie et ce Siège apostolique, trouveront en Nous la plus ardente correspondance. Et pour ce labeur, de même que pour le commun effort en faveur de la pacification du monde et pour tout ce qui peut concerner le meilleur accomplissement de votre mission, vous pouvez être certain de trouver sans cesse en Nous l’accueil le plus bienveillant.
+
+* * *
+
+** Documents Pontificaux* 1948, p.432-434.

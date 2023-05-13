@@ -1,0 +1,17 @@
+**IOANNES PP. XXIII**
+
+**LITTERAE APOSTOLICAE**
+
+***PRAEFERVIDUM ERGA***
+
+BEATA MARIA VIRGO « AFRORUM DOMINA »
+
+PRAECIPUA PATRONA TOTIUS ARCHIDIOECESIS ALGERIENSIS DECLARATUR
+
+Ad perpetuam rei memoriam. — Praefervidum erga intaminatam Dei Genetricem amorem etiam in repositis terris inter omnes constat vigere. Iam inde antiquitus in regione Algeriensi, quemadmodum ad Nos allatum est, praecipua pietate feruntur Christifideles in Almam Deiparam, et anno MDCCCXXXX primus Algeriensis Episcopus ritu sollemni lustravit simulacrum ex aere factum, civitatis Lugdunensis a Pueris Mariae dono datum, dioecesmque suam Mariae a prima labe immuni dicavit. Anno MDCCCLXXVI Decessor Noster ven. mem. Pius Pp. IX ecclesiam, quam antea aedificandam curaverat secundus Praesul eiusdem dioecesis, ad Basilicae Minoris honorem et dignitatem evexit, et statuam Beatae Mariae Virginis aurea corona, suo nomine et auctoritate, redimiri iussit. Exinde vel in longinquis ecclesiis paroecialibus Dei Genetricis cultus crevit. Exemplis suis, verbis, hortamentis alii in Algeriensi Cathedra successores Marialem pietatem fovendam ac sol, lemniora reddenda festa curarunt. In civitate episcopali fideles excubias in sacra aede agunt et quamplurimi illam unoquoque die invisunt turmatim, quos inter etiam Mahumedana gens. Clementissima vero Dei Genetrix supplicum votis, interdum prodigiali etiam modo, obsecundat ; nec desinit Christifidelibus adesse ut Mater opifera, quae salutem tegit illius Ecclesiae et civitatis hisce turbidis temporibus. Anno piaculari Nostro Episcopali, Nos ipsi, die XIX mensis Martii MDCCCCL, sanctuarium Mariale Icosii lustravimus, et una cum clero, regionis dignitatibus populoque Dominae Nostrae cumulate gratias egimus. Laetum hunc eventum animo retinentes, Nos libenter statuimus obsecundare precibus. quas Venerabilis Frater Leo Stephanus Duval, Archiepiscopus Algeriensis et Juliae Caesareaensis, vota expromens universi Cleri omniumque fidelium suae archidioecesis, Nobis fudit. Quam ob rem Nos, a Beata Virgine Maria, quae gallico sermone « Notre-Dame d'Afrique » vocatur, votis quoque precibusque Nostris salutem et veri nominis pacem pro universo Algeriensi populo exposcentes, audito dilecto filio Ferdinando Antonelli, O. F. M., Fidei Promotore Generali, certa scientia ac matura deliberatione Nostra deque Apostolicae potestatis plenitudine, harum Litterarum vi perpetuumque in modum, Beatam Mariam Virginem Afrorum Dominam praecipuam apud Deum Patronam totius Algeriensis archidioecesis constituimus ac declaramus, omnibus adiectis honoribus ac privilegiis liturgicis principalibus dioecesium Patronis competentibus. Contrariis quibusvis nihil obstantibus. Haec edicimus, statuimus, decernentes praesentes Litteras firmas, validas atque efficaces iugiter exstare ae permanere : suosque plenos atque integros effectus sortiri et obtinere ; illisque. ad quos spectant seu spectare poterunt, nunc et in posterum plenissime suffragari ; sicque rite iudicandum esse ac definiendum ; irritumque ex nunc et inane fieri, si quidquam secus, super his, a quovis, auctoritate qualibet, scienter sive ignoranter attentari contigerit.
+
+*Datum Romae, apud Sanctum Petrum, sub anulo Piscatoris, die XXIII mensis Novembris, anno MDCCCCLX, Pontificatus Nostri tertio.*
+
+D. Card. TARDINI
+
+*a publicis Ecclesiae negotiis*

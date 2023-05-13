@@ -1,0 +1,33 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS À LA RÉUNION***
+
+***DE L'ASSOCIATION RURALE CATHOLIQUE INTERNATIONALE (ICRA)***
+
+*Salle du Consistoire*
+
+*Samedi, 10 décembre 2016*
+
+[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/12/10/riunione-icra.html)**]
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je suis heureux de cette rencontre, au terme de votre convention sur les problèmes du monde rural mais surtout sur la réalité de tous ceux qui travaillent quotidiennement dans l’agriculture. Un travail souvent fatigant, mais accompli avec la conscience de faire quelque chose pour les autres, en cultivant avec passion la terre afin d’en garantir les fruits, en suivant les cycles des saisons et en affrontant les désagrément dus aux changements climatiques, malheureusement aggravés par la négligence humaine.
+
+Avec l’attention au monde rural enracinée dans la vision de l’enseignement social de l’Église, vous représentez bien cet impératif de « cultiver et entretenir le jardin du monde » (Enc. [*Laudato si’*, n. 67](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html#67.)), auquel nous sommes appelés si nous voulons donner une continuité à l’action créatrice de Dieu et protéger la maison commune.
+
+Nous vivons le paradoxe d’une agriculture qui n’est plus considérée comme secteur primaire de l’économie, mais qui garde une importance évidente dans les politiques de développement, dans les équilibres de la sécurité alimentaire aussi bien que dans la vie des communautés rurales. En effet, dans certaines zones géographiques, le développement agricole est la principale réponse possible à la pauvreté et au manque de nourriture. Toutefois, cela signifie remédier à la carence des appareils institutionnels, à l’achat injuste des terres dont le produit est substitué aux légitimes bénéficiaires, aux méthodes spéculatives injustes ou au manque de politiques spécifiques, nationales et internationales.
+
+En regardant le monde rural d’aujourd’hui, apparaît la priorité de la dimension du marché qui oriente les actions et les décisions. Les affaires avant tout ! Même au prix de sacrifier les rythmes de la vie agricole, avec ses alternances de travail et de temps libre, de repos hebdomadaire et de soin de la famille. Pour tous ceux qui vivent la réalité rurale, cela signifie que le développement n’est pas égal pour tous, comme si la vie des communautés des champs avait une moindre valeur. La solidarité, largement évoquée comme remède, n’est pas suffisante si elle n’est pas accompagnée de justice dans l’attribution des terres, dans les salaires agricoles, ou dans l’accès au marché. Pour les petits paysans, la participation aux décisions reste lointaine, à cause de l’absence d’institutions locales et du manque de règles fixes qui reconnaissent comme valeurs l’honnêteté et surtout la loyauté.
+
+Que faire ? L’histoire de l’ICRA montre qu’il est possible d’être chrétien et d’agir en chrétien dans la réalité du monde agricole, où le sens de la personne humaine, la dimension familiale et sociale, et le sens de la solidarité sont des valeurs essentielles, même dans les situations de sous développement et de pauvreté majeures. Votre structure mondiale, les relations avec les grandes organisations internationales, sont des moyens à partir desquels il est possible, pour une ONG d’inspiration chrétienne comme la vôtre, de réagir aux défis et de répondre aux besoins. Mais pour cela il faut un supplément d’humanité, fait avant tout de choix courageux et de compétences constamment mises à jour, afin de coopérer avec les institutions d’Etat et internationales, dans la mise en place de techniques et pour apporter des solutions aux problèmes, toujours de façon humaine. Un rôle positif, donc, qui aide le monde rural à ne pas rester en marge des décisions politiques, des plans normatifs ou de l’action dans les différents secteurs de la vie sociale et de l’économie.
+
+Dans vos projets de formation, vous êtes à juste titre critiques sur le modèle orienté vers l’ *agrobusiness*, et vous mettez plutôt l’accent sur les besoins réels, selon les conditions des personnes et des lieux. Ceci permet non seulement d’éviter des pertes et des déchets dans la production, mais aussi l’imprudent recours à des techniques qui, au nom de l’abondance des récoltes, peuvent éliminer la variété des espèces et la richesse de la biodiversité; en outre on n’en connaît pas les conséquences sur la vie humaine. Quand nous voyons tant de « maladies rares » dont on ne connaît pas l’origine, nous devons réfléchir… Que nous ne soyons pas des « témoins muets de très graves injustices », comme quand « certains prétendent obtenir d’importants bénéfices en faisant payer au reste de l’humanité, présente et future, les coûts très élevés de la dégradation de l’environnement » (Enc. [*Laudato si’*, n. 36](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html#36.)).
+
+Dans sa contribution à l’action des institutions internationales, le rôle d’une ONG solidement ancrée dans la doctrine sociale de l’Église est avant tout de construire des ponts, en partant d’une connaissance approfondie de ses propres racines, en ne se limitant pas à participer aux processus, mais en agissant pour un changement de stratégies et de projets. Pour cela, une compétence qui se substitue à l’improvisation et qui exprime une bonne volonté et un sens de l’altruisme fort est nécessaire. En tant que membres de l’ICRA vous êtes appelés à proposer un style de vie sobre et une culture du travail agricole qui ait ses fondements, aussi bien que ses objectifs, dans la centralité de la personne, dans la disponibilité à l’autre et dans la gratuité.
+
+Je me permets une anecdote personnelle : il y a un peu plus d’un mois j’ai eu une conversation avec un paysan. Il me racontait comment il élaguait les oliviers. Un simple paysan, qui cultivait les olives. Et quand il me racontait la manière avec laquelle il le faisait, je vous assure que j’ai vu de la tendresse ; il avait ce rapport avec la nature. Il élaguait ses arbres comme s’ils étaient son père, avec tendresse. Que ne se perde pas ce rapport avec la nature, avec la création ! Ceci nous assure à tous la dignité.
+
+Je bénis de tout mon cœur votre engagement, je prie avec vous le Seigneur de veiller sur tous les travailleurs de la terre, sur les familles rurales et sur ceux qui agissent dans le monde agricole. S’il vous plaît, je vous demande de vous rappeler de moi dans vos prières, parce que j’en ai besoin. Merci.

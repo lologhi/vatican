@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AU PERSONNEL DE L'INSTITUT PÉNITENTIAIRE « REGINA COELI » DE ROM*** ***E***
+
+*Salle Paul VI*
+
+*Jeudi 7 février 2019*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/2/7/personale-reginacoeli.html)]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je suis heureux de vous rencontrer et je vous salue tous cordialement, à commencer par l’aumônier, le père Vittorio Trani et la directrice, Mme Silvana Sergi, que je remercie pour leurs paroles. Vous représentez la communauté de travail qui se met au service des détenus de la prison romaine « Regina Coeli »: gardiens, personnel administratif, médecins, éducateurs, aumôniers et bénévoles, accompagnés de vos proches. J’exprime à chacun ma reconnaissance et celle de l’Eglise pour votre travail auprès des détenus : celui-ci exige une force intérieure, de la persévérance et la conscience de la mission spécifique à laquelle vous êtes appelés. Et une autre chose. Il faut prier tous les jours afin que le Seigneur vous donne du bon sens : le bon sens dans les différentes situations dans lesquelles vous vous trouverez.
+
+La prison est le lieu de la peine dans le double sens de punition et de souffrance et elle a besoin de beaucoup d’attention et d’humanité. C’est un lieu où tous, police pénitentiaire, aumôniers, éducateurs et bénévoles, sont appelés à la difficile tâche de soigner les blessures de ceux qui, à cause des erreurs qu’ils ont commises, sont privés de leur liberté personnelle. On sait qu’une bonne collaboration entre les différents services dans la prison accomplit une action d’un grand soutien pour la rééducation des détenus. Toutefois, à cause de la carence de personnel et du surpeuplement chronique, le travail difficile et délicat risque de devenir en partie vain.
+
+Le stress du travail, déterminé par des roulements serrés et souvent l’éloignement des familles représentent des facteurs qui rendent plus lourd un travail qui comporte déjà en soi une certaine fatigue psychologique. C’est pourquoi, des figures professionnelles comme les vôtres nécessitent un équilibre personnel et des motivations fortes et constamment renouvelées ; en effet, vous êtes appelés non seulement à garantir la surveillance, l’ordre et la sécurité de l’institut, mais aussi très souvent à panser les blessures d’hommes et de femmes que vous rencontrez quotidiennement dans leurs secteurs.
+
+Personne ne peut condamner l’autre pour les erreurs qu’il a commises, et encore moins infliger des souffrances en offensant la dignité humaine. Les prisons ont besoin d’être toujours plus humanisées et il est douloureux d’entendre dire, au contraire, que très souvent, elles sont considérées comme des lieux de violence et d’illégalité, où sévissent les méchancetés humaines. En même temps, nous ne devons pas oublier que beaucoup de détenus sont pauvres, n’ont pas de références, n’ont pas de sécurités, n’ont pas de famille, n’ont pas les moyens de défendre leurs droits, sont marginalisés et abandonnés à leur destin. Pour la société, les détenus sont des individus qui dérangent, ils sont un rebut, un poids. Cela est douloureux, mais l’inconscient collectif nous conduit là.
+
+Mais l’expérience montre que la prison, avec l’aide du personnel pénitentiaire, peut véritablement devenir un lieu de rachat, de résurrection et de changement de vie : et tout cela est possible à travers des parcours de foi, de travail et de formation professionnelle, mais surtout de proximité spirituelle et de compassion, à l’exemple du bon Samaritain, qui s’est penché pour soigner son frère blessé. Cette attitude de proximité, qui trouve sa racine dans l’amour du Christ, peut favoriser chez nombre de détenus la confiance, la conscience et la certitude d’être aimés.
+
+En outre la peine, toute peine, ne peut être fermée, elle doit toujours avoir « la fenêtre ouverte » à l’espérance, tant du côté de la prison que de chaque personne. Chacun doit toujours avoir l’espérance de la réinsertion partielle. Pensons aux condamnés à perpétuité, eux aussi : « Par mon travail en prison...». Donner, exécuter des travaux... Toujours l’espérance de la réinsertion. Une peine sans espérance ne sert pas, elle n’aide pas, elle provoque dans le cœur des sentiments de rancœur, très souvent de vengeance et la personne sort en étant pire que lorsqu’elle est entrée. Non. Il faut toujours faire en sorte qu’il y ait l’espérance et aider à toujours voir au-delà de la fenêtre, en espérant la réinsertion. Je sais que vous travaillez beaucoup, en regardant cet avenir pour réinsérer chacun de ceux qui sont en prison.
+
+Je vous encourage à accomplir votre œuvre importante avec des sentiments de concorde et d’unité. Tous ensemble, direction, police pénitentiaire, aumôniers, secteur éducatif, bénévoles et communauté extérieure, vous êtes appelés à marcher dans une unique direction pour aider à se relever et à grandir dans l’espérance ceux qui, malheureusement, sont tombés dans le piège du mal.
+
+Pour ma part, je vous accompagne de mon affection, qui est sincère. Je me sens très proche des détenus et des personnes qui travaillent dans les prisons. Soyez assurés de mon affection et ma prière pour que vous puissiez contribuer, à travers votre travail, à faire en sorte que la prison, lieu de peine et de souffrance, soit aussi un laboratoire d’humanité et d’espérance. Dans l’autre diocèse [Buenos Aires], j’allais souvent dans les prisons ; et maintenant, tous les quinze jours, le dimanche, je téléphone à un groupe de détenus dans une prison que je visitais fréquemment. Je suis proche. Et j’ai toujours eu une sensation quand j’entrais dans la prison : « Pourquoi eux et pas moi ?» Cette pensée m’a fait beaucoup de bien. Pourquoi eux et pas moi ? J’aurais pu être là, et en fait non, le Seigneur m’a donné la grâce que mes péchés et mes manques soient pardonnés et n’aient pas été vus, je ne sais pas. Mais cette question aide beaucoup : pourquoi eux et pas moi ?
+
+Je vous bénis tous, ainsi que vos proches, de tout cœur ; et je vous demande, s’il vous plaît, de prier pour moi, qui en ai besoin. Merci !

@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE FRANÇOIS*** ***AUX INSTITUTS DU PRADO***
+
+*Salle du Consistoire*
+
+*Samedi 7 avril 2018*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/4/7/associazione-pretidelprado.html)]**
+
+* * *
+
+*Chers frères et sœurs*,
+
+Je suis très heureux de vous recevoir à l’occasion de votre pèlerinage à Rome, membres de la famille du Prado qui donnez quotidiennement votre vie à la suite et à l’exemple du Père Antoine Chevrier au service des plus pauvres. Cette rencontre est pour moi l’occasion de rendre grâce avec vous au Seigneur pour le chemin parcouru depuis le temps où votre bienheureux fondateur, saisi par la détresse des plus déshérités de son temps, décida de se rendre proche d’eux afin de leur faire connaître et aimer Jésus-Christ. La plante s’est depuis admirablement développée : vous êtes désormais une belle famille de prêtres, de sœurs et de femmes laïques consacrées, répartis dans de nombreux pays, habités du même amour de Jésus qui s’est fait pauvre parmi les pauvres, et de la même ardeur évangélisatrice.
+
+Notre époque connaît, elle aussi, ses pauvretés, anciennes et nouvelles, matérielles et spirituelles, et nombreux sont ceux et celles autour de nous qui connaissent la souffrance, les blessures, les détresses et les angoisses de toutes sortes. Elles sont bien souvent loin de l’Eglise, ignorant tout de la joie et de la consolation que procure l’Evangile. La mission à accomplir auprès d’eux est immense et l’Eglise est heureuse de pouvoir compter sur l’appui des disciples du Père Chevrier. Je ne peux, en effet, qu’approuver et encourager l’action pastorale que vous développez selon le charisme propre de vos instituts, un charisme qui me touche personnellement et qui est au cœur du renouveau missionnaire auquel toute l’Eglise est appelée ; car il existe « une connexion intime entre évangélisation et promotion humaine, qui doit nécessairement s’exprimer et se développer dans toute action évangélisatrice » ( *[Evangelii gaudium](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#1._Les_répercussions_communautaires_et_sociales_du_kérygme)*, n. 178).
+
+Le saint Pape Jean-Paul II, à l’occasion de la béatification du Père Chevrier, en 1986 à Lion, vous avait proposé diverses orientations, que vous connaissez bien, pour renforcer votre dynamisme, et que je ne peux que renouveler. Pour reprendre seulement l’une d’entre elles, il vous demandait de « parler de Jésus-Christ avec la même intensité de foi que le Père Chevrier […] Les Pauvres ont le droit qu’on leur parle de Jésus-Christ. Ils ont le droit à l’Evangile et à la totalité de l’Evangile » ( *[Discours à l’Institut du Prado](http://w2.vatican.va/content/john-paul-ii/fr/speeches/1986/october/documents/hf_jp-ii_spe_19861007_lione-ist-prado-francia.html)*, 7 octobre 1986). J’aime rappeler, en effet, que l’immense majorité des pauvres a une ouverture particulière à la foi ; ils ont besoin de Dieu, et le manque d’attention spirituelle à leur égard constitue la pire discrimination : « L’option préférentielle pour les pauvres doit se traduire principalement par une attention religieuse privilégiée et prioritaire » ( *[Evangelii gaudium](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#La_place_privilégiée_des_pauvres_dans_le_peuple_de_Dieu)*, n. 200).
+
+Chers frères et sœurs, je vous invite à revenir sans cesse à la figure magnifique de votre fondateur, à méditer sa vie, à demander son intercession. L’expérience spirituelle authentique qu’il a intensément vécue - une immense compassion envers les pauvres, la compréhension et le partage de leurs souffrance, et en même temps une contemplation du dépouillement du Christ qui s’est fait l’un d’eux - a été la source de son ardeur apostolique. Elle sera celle de votre dynamisme missionnaire.
+
+Que le Saint-Esprit vous éclaire sur les chemins que vous avez à parcourir, qu’il vous rassure devant les défis et les difficultés. Confiant vos Instituts et tous leurs membres à l’intercession du Bienheureux Antoine Chevrier, je prie la Vierge Marie de les garder sous sa maternelle protection, et je vous donne de grand cœur la Bénédiction Apostolique.

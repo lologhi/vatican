@@ -1,0 +1,23 @@
+[MESSE DE LA NUIT](http://www.vatican.va/news_services/liturgy/libretti/2015/20151224-libretto-natale-notte.pdf)
+
+**NOËL**
+
+***HOMÉLIE DU PAPE FRANÇOIS***
+
+*Basilique vaticane*
+
+*Jeudi 24 décembre 2015*
+
+[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/12/24/messanatale.html)**]
+
+* * *
+
+En cette nuit, resplendit une « grande lumière » ( *Is* 9, 1) ; sur nous tous brille la lumière de la naissance de Jésus. Comme les paroles du prophète Isaïe que nous avons écoutées sont vraies et actuelles : « Tu as prodigué la joie, tu as fait grandir l’allégresse » (9, 2) ! Notre cœur était déjà rempli de joie par l’attente de ce moment, mais maintenant, ce sentiment est multiplié et surabonde, parce que la promesse s’est accomplie, finalement elle s’est réalisée. Joie et allégresse nous assurent que le message contenu dans le mystère de cette nuit vient vraiment de Dieu. Il n’y a pas de place pour le doute ; laissons-le aux sceptiques qui, pour interroger seulement la raison, ne trouvent jamais la vérité. Il n’y a pas de place pour l’indifférence qui domine dans le cœur de celui qui ne réussit pas à aimer parce qu’il a peur de perdre quelque chose. Toute tristesse est bannie, parce que l’Enfant Jésus est le véritable consolateur du cœur.
+
+Aujourd’hui, le Fils de Dieu est né : tout change. Le Sauveur du monde vient pour se faire participant de notre nature humaine ; nous ne sommes plus seuls ni abandonnés. La Vierge nous offre son Fils comme principe d’une vie nouvelle. La lumière vient éclairer notre existence, souvent enfermée dans l’ombre du péché. Aujourd’hui découvrons d’une façon nouvelle qui nous sommes ! En cette nuit, nous est rendu manifeste le chemin à parcourir pour rejoindre le but. Maintenant, toute peur et toute frayeur doivent cesser, parce que la lumière nous indique la route vers Bethléem. Nous ne pouvons demeurer inertes. Il ne nous est pas permis de rester arrêtés. Nous devons aller voir notre Sauveur déposé dans une mangeoire. Voilà le motif de la joie et de l’allégresse : cet Enfant est « né *pour nous* », il nous est « donné *à nous* », comme l’annonce Isaïe (cf. 9, 5). À un peuple qui depuis deux mille ans parcourt toutes les routes du monde pour rendre chaque homme participant de cette joie, est confiée la mission de faire connaître le « Prince de la paix » et devenir son instrument efficace au milieu des nations.
+
+Et donc, quand nous entendons parler de la naissance du Christ, restons en silence et laissons parler cet Enfant ; imprimons dans notre cœur ses paroles sans détourner notre regard de son visage. Si nous le prenons dans nos bras et si nous nous laissons embrasser par lui, il nous apportera la paix du cœur qui n’aura jamais de fin. Cet Enfant nous enseigne quelle est la chose vraiment essentielle dans notre vie. Il naît dans la pauvreté du monde, parce qu’il n’y a pas de place à l’hôtellerie pour lui et sa famille. Il trouve abri et soutien dans une étable, et il est déposé dans une mangeoire pour animaux. Pourtant, de ce rien, émerge la lumière de la gloire de Dieu. À partir de là, pour les hommes au cœur simple, commence le chemin de la libération véritable et du rachat éternel. De cet Enfant, qui porte imprimés sur son visage les traits de la bonté, de la miséricorde et de l’amour de Dieu le Père, jaillit pour nous tous, ses disciples, comme l’enseigne l’apôtre Paul, l’engagement à « renoncer à l’impiété » et à la richesse du monde, pour vivre « de manière raisonnable, avec justice et piété » ( *Tt* 2, 12).
+
+Dans une société souvent éprise de consommation et de plaisir, d’abondance et de luxe, d’apparence et de narcissisme, Lui nous appelle à un comportement *sobre*, c’est-à-dire simple, équilibré, cohérent, capable de saisir et de vivre l’essentiel. Dans un monde qui est trop souvent dur avec le pécheur et mou avec le péché, il faut cultiver un fort sens de la justice, de la recherche et de la mise en pratique de la volonté de Dieu. Dans une culture de l’indifférence qui finit souvent par être impitoyable, que notre style de vie soit au contraire plein de *piété*, d’empathie, de compassion, de miséricorde, puisées chaque jour au puits de la prière.
+
+Comme pour les bergers de Bethléem, que nos yeux puissent aussi être pleins d’étonnement et d’émerveillement, contemplant dans l’Enfant-Jésus le Fils de Dieu. Et, devant Lui, que jaillisse de nos cœurs l’invocation : « Montre-nous, Seigneur, ta miséricorde, et donne-nous ton salut » ( *Ps* 85, 8).

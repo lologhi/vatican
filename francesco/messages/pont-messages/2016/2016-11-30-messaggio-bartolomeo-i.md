@@ -1,0 +1,23 @@
+. ***MESSAGE DU PAPE FRANÇOIS***
+
+***À SA SAINTETÉ BARTHOLOMÉE, PATRIARCHE ŒCUMÉNIQUE,***
+
+***POUR LA FÊTE DE SAINT ANDRÉ***
+
+*A Sa Sainteté Bartholomée Archevêque de Constantinople Patriarche œcuménique*
+
+C’est pour moi une grande joie, Votre Sainteté, de renouveler la tradition de l’envoi d’une délégation à la célébration solennelle de la fête de l’apôtre saint André, patron du patriarcat œcuménique, afin de vous transmettre mes meilleurs vœux, bien-aimé frère dans le Christ, ainsi qu’aux membres du Saint-Synode, au clergé et à tous les fidèles rassemblés pour commémorer saint André. Je suis heureux de répondre de cette façon à votre habitude d’envoyer une délégation de l’Église de Constantinople pour la fête des saints Pierre et Paul, saints patrons de l’Église de Rome.
+
+L’échange de délégations entre Rome et Constantinople à l’occasion des fêtes respectives en l’honneur des frères apôtres Pierre et André est un signe visible des liens profonds qui nous unissent déjà. C’est également une expression de notre désir ardent d’une communion plus profonde, jusqu’au jour où, si Dieu le veut, nous pourrons témoigner de notre amour réciproque en partageant la même table eucharistique. Sur ce chemin vers le rétablissement de la communion eucharistique entre nous, nous sommes non seulement soutenus par l’intercession de nos saints patrons, mais par l’assemblée des martyrs de tous les temps, qui « malgré le drame de la division […] ont gardé en eux-mêmes un attachement si radical et absolu au Christ et au Père qu’ils ont pu aller jusqu’à l’effusion du sang » (Pape saint Jean-Paul II, *[Ut unum sint](/content/john-paul-ii/fr/encyclicals/documents/hf_jp-ii_enc_25051995_ut-unum-sint.html)*, n. 83).
+
+C’est pour les catholiques une source de réel encouragement que le fort engagement pour le rétablissement de l’unité des chrétiens ait été confirmé lors du grand et saint concile qui a eu lieu en juin dernier en Crète. Toujours fidèle à sa tradition, Votre Sainteté est toujours restée consciente des difficultés existantes pour l’unité et ne s’est jamais lassée de soutenir des initiatives en mesure de promouvoir la rencontre et le dialogue. L’histoire des relations entre chrétiens a cependant été tristement marquée par des conflits qui ont laissé une empreinte profonde dans la mémoire des fidèles. C’est pour cette raison que certains demeurent attachés à des attitudes du passé. Nous savons que seuls la prière, les bonnes œuvres communes et le dialogue peuvent nous permettre de dépasser la division et de nous rapprocher les uns des autres.
+
+Grâce au processus de dialogue, au cours de ces dernières décennies les catholiques et les orthodoxes ont commencé à se reconnaître réciproquement comme des frères et sœurs et à estimer les dons les uns des autres, et ils ont proclamé ensemble l’Évangile, servi l’humanité et la cause de la paix, promu la dignité de l’être humain et la valeur inestimable de la famille, pris soin des plus nécessiteux, ainsi que de la création, notre maison commune. Le dialogue théologique entrepris par la Commission mixte internationale a lui aussi apporté une contribution significative à la compréhension mutuelle. Le récent document sur *Synodalité et primat pendant le premier millénaire. Vers une compréhension commune dans le service à l’unité de l’Église*, est le fruit d’une étude longue et approfondie de la part des membres de la Commission mixte internationale, auxquels j’adresse ma sincère gratitude. Bien que de nombreuses questions demeurent, la réflexion commune sur la relation entre la synodalité et le primat durant le premier millénaire peut offrir un fondement sûr pour discerner des façons selon lesquelles le primat pourra être exercé dans l’Église lorsque tous les chrétiens d’Orient et d’Occident seront enfin réconciliés.
+
+Je me souviens avec une grande affection de notre récente rencontre à Assise avec d’autres chrétiens et représentants de traditions religieuses, rassemblés pour offrir un appel commun à la paix dans le monde entier. Notre rassemblement a été une joyeuse occasion d’approfondir notre amitié, qui trouve son expression dans une vision partagée des grandes questions qui touchent la vie de l’Église et de toute la société.
+
+Voilà, Votre Sainteté, quelques-unes de mes espérances profondes, que j’ai voulu exprimer dans un esprit de sincère fraternité. En vous assurant de mon souvenir quotidien dans la prière, je vous renouvelle mes meilleurs vœux de paix, de santé et des bénédictions abondantes, ainsi qu’à tous ceux qui sont confiés à vos soins. Avec des sentiments d’affection fraternelle et de proximité spirituelle, j’échange avec Votre Sainteté un baiser de paix dans le Seigneur.
+
+Du Vatican, le 30 novembre 2016
+
+François

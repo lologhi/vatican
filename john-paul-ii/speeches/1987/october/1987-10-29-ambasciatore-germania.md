@@ -1,0 +1,31 @@
+***Discurso al Embajador de la República Federal de ALEMANIA,** **Excmo. Sr. Don Paul VERBEEK****
+
+*29 de octubre de 1987*
+
+Monsieur l'Ambassadeur,
+
+Je Vous remercie sincèrement pour les aimables paroles que vous m’avez adressées en me présentant les Lettres qui vous accréditent comme Ambassadeur Extraordinaire et Plénipotentiaire de la République Fédérale Allemande près le Saint-Siège.
+
+Je Vous souhaite cordialement la bienvenue au Vatican, l'accompagnant de mes meilleurs vœux pour l'heureux succès de votre honorable et responsable mission.
+
+1. Notre première rencontre a lieu alors que nous sommes encore, comme Vous l'avez vous-même rappelé, sous la vive impression de la visite pastorale que j'ai faite cette année en Allemagne Fédérale. A ceci vient s'ajouter notre affliction pour la récente disparition, si douloureuse, du Cardinal Joseph Höffner, Archevêque de Cologne qui a été pendant de nombreuses années Président de la Conférence Episcopale d'Allemagne. En ce moment, ces deux événements m'unissent tout particulièrement à l'Eglise et à la population de votre bien-aimé pays. Ils provoquent en moi un sentiment de profonde reconnaissance envers la divine Providence qui a également guidé mon voyage pastoral à travers différents diocèses d'Allemagne en compagnie du cher Cardinal Höffner. Et je remercie tout particulièrement le Seigneur pour avoir conservé si longtemps les forces pastorales de ce valeureux et méritoire serviteur de l'Eglise. Sous sa prudente direction et avec sa multiple action pastorale, les liens entre l'Eglise locale allemande et le Saint-Siège sont devenus plus étroits et plus solides que jamais. C'est pourquoi nous devons lui vouer une reconnaissance infinie.
+
+A juste titre, vous avez souligné dans votre discours les étroites et fructueuses « *relations confiantes* » qui depuis bien longtemps existent entre la République Fédérale d'Allemagne et le Saint-Siège. En entreprenant aujourd'hui votre mission d'Ambassadeur, vous donnez suite à une tradition déjà ancienne de mutuelle collaboration solidaire et vous renforcez notre commune volonté de déployer et approfondir toujours davantage ces efforts à l'avenir.
+
+2. Cette collaboration active de l'État et de l'Église intéresse non seulement le cadre intérieur de votre pays, mais s'étend également aux besoins urgents de la communauté internationale des peuples. Vous avez vous-même souligné, Monsieur l'Ambassadeur, qu'elle est indispensable et inéluctable pour garantir la paix mondiale, pour triompher de la misère principalement dans les pays du Tiers-Monde, pour promouvoir les Droits de l'homme et les défendre et pour parvenir au rétablissement d'une sainte physique et morale du monde dans lequel l'homme doit vivre. Soyez donc convaincu, Monsieur l'Ambassadeur, que dans sa lutte pour le bien-être de l'humanité, Votre Gouvernement trouvera toujours dans le Saint-Siège un inlassable soutien et un partenaire franc et décidé. En effet celui-ci soutient toujours et encourage selon ses possibilités tous les efforts qui tendent honnêtement à assurer le bien-être général, à édifier un monde plus juste qui puisse assurer un véritable développement de la personne, et où l'on puisse vivre ensemble dans la paix et la liberté. Comme vous le savez, l'Église a toujours été convaincue que l'édification d'une société digne de l'homme est possible seulement sur la base et la promotion des valeurs morales fondamentales.
+
+3. Comme je l'ai constaté au cours de ma récente visite pastorale, l'histoire récente de votre peuple indique précisément que seuls des hommes doués de grande vigueur morale, pleinement résolus, sont capables de résister avec efficacité aux velléités de la morale et de la politique purement arbitraires, aux puissances de destruction inhumaines. Bienheureux Rupert Mayer et l'Illustre Cardinal Archevêque de Galen se présentent, en tous lieux et époques, à ceux qui au nom de Dieu ou de l'humanité, luttent courageusement contre la dégradation morale, l'injustice et l'oppression. Comme je l'ai dit, « ils sont pour nous des signes d'espérance et de responsabilité pour le témoignage qui s'impose aujourd'hui en faveur du droit et de la justice dans notre société, pour la défense des droits de l'homme toujours plus menacés et de sa vocation surnaturelle où trouvent leurs moyens et leurs objectifs tous les intérêts humains » (Discours à l'aéroport de Cologne/Bonn, le 30 avril 1987). Les deux prochaines béatifications des religieuses Ulrika Nisch et Blandine Maerten, le jour de la fête solennelle de Toussaint, les associent à ce groupe de témoins de l'authentique dignité et de la vraie grandeur de l'homme, dont les racines les plus profondes plongent dans le lien de la moralité avec leur union avec Dieu ; deux nouveaux modèles qui ont jailli du peuple allemand.
+
+4. Puisse la collaboration, consciemment responsable, qui existe actuellement chez vous entre l'État et l'Église, contribuer efficacement à la rénovation morale des personnes et de la société, comme l'exige impérieusement notre époque ; un renouveau sans lequel il ne sera pas possible de résoudre efficacement les problèmes qui menacent dangereusement l'humanité. Les fraternelles relations diplomatiques qui existent entre la République Fédérale d'Allemagne et le Saint-Siège peuvent constituer à cet effet une précieuse condition préalable et une aide extrêmement efficace.
+
+Maintenant, je désire vous assurer à nouveau de ma sincère reconnaissance pour les bons vœux que vous m'avez transmis de la part de Monsieur le Président de la République et vous prie de lui transmettre mes plus sincères souhaits en échange…
+
+En même temps j'implore la 1umière divine pour votre importante mission, pour vous-même et tous vos collaborateurs et demande au Seigneur qu'il vous accorde ses plus abondantes faveurs pour vous et votre famille.
+
+En gage de quoi je vous donne de tout cœur à tous ma particulière Bénédiction Apostolique !
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.49 p.11.
+
+© Copyright 1987 - Libreria Editrice Vaticana

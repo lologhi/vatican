@@ -1,0 +1,17 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AUX PETITES SŒURS DE JÉSUS***
+
+*Samedi 27 septembre 1986*
+
+*Chères Petites Sœurs de Jésus,*
+
+Depuis bientôt 40 ans, vous avez coutume de prononcer vos vœux perpétuels à la tombe de l’Apôtre Pierre. Certes, vous accomplissez cette démarche selon l’esprit foucauldien, en cherchant à passer inaperçues. Pourtant le symbolisme est hautement significatif et toujours nouveau pour les Petites Sœurs faisant profession à vie. Vous voulez participer à l’annonce de la Bonne Nouvelle aux plus défavorisés, en liens profonds avec l’Eglise et ses pasteurs, avec cette Eglise issue du Cœur transpercé de Jésus et poursuivant, jusqu’à la fin des siècles, sa mission de vérité et d’amour, de justice et de paix.
+
+Notre rencontre familiale me rappelle l’après-midi du 22 décembre dernier à Tre Fontane. Merci encore de votre accueil si simple et si priant ! Aujourd’hui, je ne puis oublier que vous allez bientôt célébrer le centième anniversaire de la conversion de Charles de Foucauld. Je veux relire avec vous un passage très émouvant de ses Ecrits spirituels : “Au commencement d’octobre 1886, vous me fîtes, ô mon Dieu, quatre grâces... La quatrième fut la grâce incomparable de m’adresser, pour avoir des leçons, à l’Abbé Huvelin. En me faisant entrer dans son confessionnal, un des derniers jours d’octobre, entre le 27 et le 30, je crois, vous m’avez donné tous les biens... Dupuis ce jour, ma vie n’a été qu’un enchaînement de bénédictions”  (cf. “Ecrits spirituels”, éd. de Gigord 1923, pp. 80-85).  C’est pourquoi, au nom de l’Eglise, j’adresse à toutes les Petites Sœurs un appel à la conversion, un appel à aller plus avant dans le mystère de votre vocation spécifique, faite de contemplation ardente du Seigneur Jésus et d’incarnation humble et cachée au milieu des plus accablés de nos frères.
+
+L’adoration prolongée de la Présence réelle vous situe si bien à votre place de Petites Sœurs ! Votre personne est prosternée ou assise à même le sol ; votre visage fixe la sainte Réserve avec une foi ardente, comme Frère Charles de Jésus vous en a donné l’exemple. Cette adoration purifié et transforme votre regard sur les personnes et les événements qui font votre vie quotidienne. Cette adoration renouvelle votre cœur, vous donne en quelque sorte le cœur du Christ Jésus pour rencontrer, écouter, aimer les pauvres du Tiers monde et du Quart monde. L’adoration eucharistique est constitutive de votre apostolat. Elle fait de vos personnes des êtres livrés, rompus en quelque sorte, pour le salut des plus pauvres. Selon votre spiritualité propre, la contemplation et l’action, si elles sont deux réalités distinctes, s’interpénètrent mystérieusement. Et plus les situations concrètes des fraternités sont difficiles, comme au Moyen-Orient, en Amérique du Centre et du Sud, en certaines régions d’Afrique, en Asie, plus la contemplation doit informer la présence aux pauvres et aux opprimés.
+
+Que le Seigneur trouve en toute Petite Sœur une âme disposée à la conversion, comme Charles de Foucauld ! Conversion à l’intériorité et à l’adoration, à la pauvreté et à la solidarité, à la sérénité et à l’espérance ! Qua travers le visage de toute Petite Sœur et de chaque Fraternité, le vrai visage de Dieu, celui de l’amour, soit mieux connu ! Je vous bénis affectueusement, ainsi que toutes les familles religieuses ou séculières qui se rattachent à Charles de Foucauld.
+
+© Copyright 1986 - Libreria Editrice Vaticana

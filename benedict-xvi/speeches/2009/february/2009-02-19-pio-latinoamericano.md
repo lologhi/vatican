@@ -1,0 +1,37 @@
+***DISCOURS DU PAPE BENOÎT XVI**AUX MEMBRES DU COLLÈGE PONTIFICAL***
+
+***PIE LATINO AMÉRICAIN DE ROME***
+
+*Salle Clémentine*
+
+*Jeudi 19 février 2009*
+
+*Vénérés frères dans l'épiscopat,*
+
+*cher père recteur, chers supérieurs,*
+
+*religieux et élèves du Collège pontifical pie latino-américain de Rome,*
+
+1. Je remercie pour les paroles cordiales que m'a adressées, au nom de tous, Mgr Carlos José Ñáñez, archevêque de Cordoba et président de la commission épiscopale du Collège pontifical pie latino-américain. Je suis heureux de vous recevoir, alors que vous célébrez les 150 ans de la fondation de cette institution de grand mérite.
+
+Le 27 novembre 1858, commença le chemin fécond de ce collège comme précieux centre de formation, d'abord de séminaristes, puis, depuis un peu plus de trois décennies, de diacres et de prêtres. Aujourd'hui, plus de quatre mille élèves se sentent membres de cette grande famille. Ils ont tous nourri pour cette grande alma mater une profonde affection, car elle s'est distinguée dès le début par son atmosphère de simplicité, d'accueil, de prière et de fidélité au magistère du Souverain Pontife, qui contribue fortement à faire en sorte que chez les élèves croissent l'amour pour le Christ et le désir de servir humblement l'Eglise, en cherchant toujours la gloire suprême de Dieu et le bien des âmes.
+
+2. Vous êtes, chers élèves du Collège pontifical pie latino-américain, les héritiers de ce riche patrimoine humain et spirituel qu'il faut perpétuer et enrichir à travers une étude sérieuse des diverses disciplines ecclésiastiques et la belle expérience de l'universalité de l'Eglise. Ici, dans cette ville, les apôtres Pierre et Paul proclamèrent avec courage l'Evangile et posèrent les fondements solides pour le diffuser dans le monde entier, en accomplissant le mandat du Maître :  « *Allez donc, de toutes les nations faites des disciples, les baptisant au nom du Père et du Fils et du Saint Esprit, et leur apprenant à observer tout ce que je vous ai prescrit. Et voici que je suis avec vous pour toujours jusqu'à la fin du monde* » ( *Mt* 28, 19-20).
+
+Vous-mêmes êtes le fruit de cette merveilleuse semence du message rédempteur du Christ au cours de l'histoire. En effet, vous provenez de divers pays dans lesquels, il y a plus de cinq cents ans, plusieurs missionnaires valeureux firent connaître Jésus, notre Sauveur. De cette façon, au moyen du Baptême, ces peuples s'ouvrirent à la vie de la grâce qui fit d'eux des fils de Dieu par adoption et en outre, ils reçurent l'Esprit Saint, qui féconda leur culture, en les purifiant et en faisant croître les semences que le Verbe incarné avait placées en elles, les orientant ainsi le long des voies de l'Evangile (cf. *[Discours lors de la session inaugurale de la V Conférence générale de l'épiscopat latino-américain et des Caraïbes](/content/benedict-xvi/fr/speeches/2007/may/documents/hf_ben-xvi_spe_20070513_conference-aparecida.html)*, n. 1).
+
+A Rome, près de la Chaire du Prince des Apôtres, vous avez une occasion privilégiée de forger votre cœur de véritables apôtres, dans lequel l'être et l'action soient fermement ancrés dans le Seigneur, qui doit être toujours pour vous la base, la boussole et l'objectif de vos efforts. Le collège vous permet en outre de partager de façon fraternelle votre expérience humaine et sacerdotale et vous offre une opportunité propice pour vous ouvrir de façon permanente à la connaissance des autres cultures et expressions ecclésiales. Cela vous aidera à être d'authentiques disciples de Jésus Christ, et d'intrépides missionnaires de sa Parole, avec largeur de vues et grandeur d'âme. De cette façon, vous serez davantage capables d'être des hommes de Dieu qui le connaissent en profondeur, des ouvriers généreux dans sa vigne et des dispensateurs ardents de la charité de Jésus Christ envers ceux qui sont le plus dans le besoin.
+
+3. Vos évêques vous ont envoyés au Collège pontifical pie latino-américain afin que vous soyez emplis de la sagesse du Christ crucifié, de sorte que, une fois rentrés dans votre diocèse, vous puissiez mettre ce trésor à la disposition des autres dans les diverses fonctions qui vous seront confiées. Pour ce faire, vous devez bien mettre à profit le temps de votre séjour à Rome. La constance dans les études et la recherche rigoureuse, vous feront non seulement connaître les mystères de la foi, et la vérité sur l'homme à la lumière de l'Evangile et de la tradition de l'Eglise, mais encouragera également en vous une vie spirituelle enracinée dans la Parole de Dieu et alimentée toujours par la richesse insondable des sacrements.
+
+4. L'amour et l'adhésion au Siège apostolique sont parmi les caractéristiques les plus importantes des peuples latino-américains et des Caraïbes. Pour cette raison, ma rencontre avec vous me rappelle les jours que j'ai passés à Aparecida, lorsque j'ai assisté avec émotion aux manifestations de collégialité et de communion fraternelle dans le ministère épiscopal des représentants des conférences épiscopales de ces nobles pays. A travers ma présence, j'ai voulu encourager les évêques dans leur réflexion sur un aspect fondamental pour raviver la foi de l'Eglise en pèlerinage sur ces terres bien-aimées :  conduire tous nos fidèles à être « *disciples et missionnaires de Jésus Christ, afin que nos peuples aient la vie en Lui* » ( *Jn* 14, 6).
+
+Je vous invite à vous unir avec enthousiasme à cet esprit, exprimé dans le dynamisme avec lequel tous ces diocèses ont commencé, ou commencent, la « *Mission continentale* » promue à Aparecida ; une initiative qui facilitera l'application de programmes catéchétiques et pastoraux destinés à la formation et au développement de communautés chrétiennes évangélisatrices et missionnaires. Accompagnez ces propositions de votre prière fervente, afin que les fidèles connaissent, se consacrent et imitent toujours davantage Jésus Christ, en participant fréquemment aux célébrations du dimanche de chaque communauté et en lui rendant témoignage, afin de devenir des instruments efficaces de la « *nouvelle évangélisation* », à laquelle a invité à plusieurs reprises le serviteur de Dieu [Jean-Paul II](/content/john-paul-ii/fr.html), mon vénéré prédécesseur.
+
+5. En concluant cette rencontre, je désire renouveler mes remerciements cordiaux à toutes les personnes présentes, en particulier à la commission épiscopale pour le collège, qui a la mission d'encourager ses élèves et de renforcer leur sens de la communion et de la fidélité au Souverain Pontife et à leurs pasteurs. Dans le même temps, je désire manifester à travers les supérieurs du Collège ma reconnaissance à la Compagnie de Jésus, à laquelle mon prédécesseur saint [Pie X](/content/pius-x/fr.html) confia la direction perpétuelle de cette éminente institution, ainsi que les religieuses et les personnes qui suivent ces jeunes avec attention et joie. Je pense également avec gratitude à ceux qui apportent une aide financière à travers leur contribution économique et soutiennent par leur générosité et leur prière cette œuvre ecclésiale.
+
+6. Je vous confie tous, ainsi que vos familles et vos communautés d'origine, à la Très Sainte Vierge Marie, Notre-Dame de Guadalupe, afin que par sa protection maternelle, elle vous assiste avec amour dans vos fonctions et vous aide à vous enraciner profondément dans son Fils, notre Seigneur Jésus Christ, fruit béni de son sein.
+
+Merci.
+
+© Copyright 2009 - Libreria Editrice Vaticana

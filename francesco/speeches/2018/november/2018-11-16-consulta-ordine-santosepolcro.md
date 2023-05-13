@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX MEMBRES DU CONSEIL***
+
+***DE L’ORDRE ÉQUESTRE DU SAINT-SÉPULCRE DE JÉRUSALEM***
+
+*Salle Clémentine*
+
+*Vendredi 16 novembre 2018*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/11/16/ordineequestre-santosepolcro.html)]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je vous accueille en conclusion du conseil des membres du grand magistère et des lieutenants de l’Ordre équestre du Saint-Sépulcre de Jérusalem. Je salue et je remercie le cardinal Edwin O’Brien, grand maître, et le pro-grand prieur, Mgr Pierbattista Pizzaballa ; je salue les membres du grand magistère, ainsi que les lieutenants des pays et des lieux où l’Ordre est présent. Et avec vous, je salue également toute la famille des chevaliers et des dames du monde entier. J’adresse à tous ma pensée reconnaissante pour les multiples activités spirituelles et caritatives que vous accomplissez au bénéfice des populations de Terre Sainte.
+
+Vous vous êtes réunis pour les travaux de votre conseil, l’assemblée générale que vous tenez tous les cinq ans auprès du siège de Pierre. Ici, au Vatican, vous êtes d’une certaine façon chez vous, dans la mesure où vous constituez une antique institution pontificale placée sous la protection du Saint-Siège. Depuis le dernier conseil de 2013, l’Ordre a grandi par le nombre de ses membres, par son expansion géographique avec l’établissement de nouvelles présences dans les périphéries, dans l’assistance matérielle qu’il a offerte à l’Eglise en Terre Sainte et par le nombre des pèlerinages accomplis par vos membres. Je vous remercie pour votre soutien aux programmes d’utilité pastorale et culturelle et je vous encourage à poursuivre votre engagement, aux côtés du patriarcat latin, à faire face à la crise des réfugiés qui, ces cinq dernières années, a conduit l’Eglise à fournir une réponse humanitaire significative dans toute la région.
+
+C’est un beau signe que vos initiatives dans le domaine de la formation et de l’assistance médicale soient ouvertes à tous, indépendamment des communautés d’appartenance et de la religion professée. De cette façon, vous contribuez à aplanir la route à la connaissance des valeurs chrétiennes, à la promotion du dialogue interreligieux, au respect mutuel et à la compréhension réciproque. En d’autres termes, par votre engagement méritoire, vous apportez vous aussi votre contribution à la construction de ce chemin qui conduira, nous l’espérons tous, à l’obtention de la paix dans toute la région.
+
+Je sais qu’au cours de cette semaine, vous avez porté votre attention sur le rôle des dirigeants locaux, ou lieutenants, présents dans plus de trente pays et régions du monde où votre Ordre est actif. La croissance continue de l’Ordre dépend assurément de votre engagement incessant et toujours renouvelé. A cet égard, il est important de ne pas oublier que l’objectif principal de votre Ordre réside dans la croissance spirituelle de ses membres. Par conséquent, le succès de vos initiatives ne peut pas faire abstraction de programmes de formation religieuse adaptés, adressés à chaque chevalier et à chaque dame, afin qu’il consolide sa relation indispensable avec le Seigneur Jésus, en particulier dans la prière, dans la méditation des Saintes Ecritures et dans l’approfondissement de la doctrine de l’Eglise. Vous, dirigeants, avez surtout comme devoir d’offrir l’exemple d’une vie spirituelle intense et d’une adhésion concrète au Seigneur : vous pourrez ainsi rendre un service d’autorité efficace à tous ceux qui sont sous votre direction.
+
+Ensuite, en ce qui concerne votre mission dans le monde, n’oubliez pas que vous n’êtes pas un organisme philanthropique engagé dans la promotion d’une meilleure situation matérielle et sociale des destinataires. Vous êtes appelés à placer au centre de vos œuvres, et comme leur but final, l’amour évangélique pour votre prochain, afin de témoigner partout de la bonté et de l’attention avec lesquelles Dieu aime tout le monde. L’admission d’évêques, de prêtres et de diacres dans votre Ordre ne représente absolument pas un titre honorifique. Ils ont pour devoir dans leur service pastoral d’assister tous ceux qui, parmi vous, ont un rôle de responsabilité, en fournissant des occasions de prière communautaire et liturgique à tous les niveaux, des opportunités de spiritualité et de catéchèse continues pour la formation permanente et pour la croissance de tous les membres de l’Ordre.
+
+La situation dramatique des chrétiens qui sont persécutés et tués en nombre toujours plus grand est sous les yeux du monde entier — qui trop souvent tourne le regard de l’autre côté. Outre le martyre du sang, il existe aussi le « martyre blanc », comme par exemple celui qui a lieu dans les pays démocratiques quand la liberté de religion est limitée. Tel est le martyre blanc quotidien de l’Eglise en ces lieux. A l’œuvre de secours matériel envers les populations si durement éprouvées, je vous exhorte à associer toujours la prière, à invoquer constamment la Vierge, que vous vénérez sous le titre de « Notre-Dame de Palestine ». Elle est la Mère attentive et l’Aide des chrétiens, pour lesquels elle obtient du Seigneur force et réconfort dans la douleur.
+
+Que l’icône de Notre-Dame des chrétiens persécutés, que je bénirai d’ici quelques instants et que vous recevrez pour l’apporter dans chacune de vos lieutenances, accompagne votre chemin. Invoquons ensemble la sollicitude de Marie pour l’Eglise en Terre Sainte et, plus généralement, au Moyen-Orient, ainsi que son intercession spéciale pour ceux dont la vie et la liberté sont en danger. J’accompagne votre œuvre précieuse et inlassable de ma Bénédiction, et je vous demande, s’il vous plaît, de prier pour moi. Merci.

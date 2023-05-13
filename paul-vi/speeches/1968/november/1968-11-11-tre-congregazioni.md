@@ -1,0 +1,47 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX MEMBRES DES CHAPITRES GÉNÉRAUX***
+
+***DE TROIS CONGRÉGATIONS :***
+
+***BÉNÉDICTINS OLIVÉTAINS, PÈRE DU SAINT-ESPRIT***
+
+***ET FRÈRES MARISTES DES ÉCOLES***
+
+*Lundi 11 novembre 1968*
+
+*Chers Fils,*
+
+Un horaire malheureusement très chargé Nous prive du plaisir de recevoir séparément les membres des Chapitres Généraux de chacune de vos trois Congrégations. Mais n’êtes-vous pas tous animés par un même idéal, celui de la perfection religieuse ? Et si vos trois familles - Bénédictins Olivétains, Père du Saint- Esprit, Frères Maristes des Ecoles - sont actuellement réunies en Chapitre Général, n’est-ce pas précisément pour réviser leurs Constitutions particulières à la lumière de cet unique idéal, compte tenu des conditions présentes de la vie de l’Eglise ? Vous permettrez donc que Nous retenions ce facteur commun pour y puiser le thème des brèves paroles de bienvenue et d’encouragement que Nous désirons vous adresser.
+
+RENONCEMENT ET AMOUR
+
+I. Vous êtes des religieux. Vous voulez être d’authentiques religieux. Dans la vaste mutation de la société à laquelle nous assistons aujourd’hui, il est plus important que jamais de s’interroger sur ce qui est essentiel et irremplaçable dans le genre de vie que vous avez embrassé, et sur ce qui peut ou doit changer selon les circonstances des temps et des lieux. Qu’est-ce donc, d’abord, qui ne doit pas changer ? Qu’est-ce qui caractérise une véritable et authentique vie religieuse, en tous temps et en tous lieux ?
+
+Ce sont les deux directives fondamentales proposées par le Christ dans l’Evangile à ceux qui veulent le suivre de plus près ; deux directives qui s’expriment en deux mots très simples, mais lourds de contenu, et que vous avez tous médités bien souvent : renoncement et amour.
+
+Renoncement d’abord. « *Qui non renuntiat omnibus quae possidet non potest meus esse discipulus*» ( *Luc*. 14, 33). Le religieux est un homme détaché, un homme séparé, un homme qui ne partage pas la forme commune de vie fondée sur la poursuite du bien-être et de la prospérité temporelle : il fuit ce que le monde recherche. Par contre, il recherche ce que le monde fuit : la pénitence, la pauvreté, le recueillement, la vie chaste, la soumission aux supérieurs. Ce qui polarise l’existence du religieux, en effet, ce n’est pas ce qui se voit, c’est ce qui ne se voit pas. Témoin de l’invisible, il prend à son compte l’expérience de Saint Paul et de tous les Saints, et redit avec eux : « *Non contemplantibus nobis quae videntur, sed quae non videntur. Quae enim videntur temporalia sunt, quae autem non videntur aeterna sunt*» ( *2 Cor*. 4, 18). L’axe de sa vie, c’est la prière, la recherche de Dieu. Et nous touchons ici au second élément - plus fondamental encore que le premier - de toute vie religieuse : l’amour. Renoncement et amour : c’est comme l’envers et l’endroit d’une belle étoffe. Par le renoncement au monde, à ses plaisirs, à ses honneurs, à ses richesses, le religieux a aplani le terrain dans sa marche vers Dieu. Mais c’est l’amour qui l’attire et qui le stimule : l’amour que Dieu a pour lui - amour reçu -, l’amour qu’il a lui-,même pour Dieu - amour donné -. L’amour, c’est la perfection ; c’est le sommet ; c’est ce qui vaut, ce qui demeurera éternellement.
+
+C’est donc là ce qui est premier. Et c’est pourquoi il faut réagir contre une tendance moderne qui consisterait à faire passer au second rang, dans la vie religieuse, le colloque avec Dieu, tant intérieur que communautaire, ainsi que le rit liturgique et sacramentel, pour donner la primauté et la préférence à d’autres fins humaines, bonnes en elles-mêmes, certes, et dignes d’êtres poursuivies, mais toujours en dépendance de la fin première, proprement religieuse, qui doit inspirer, pénétrer et sanctifier tout le reste.
+
+LA RÉFORME DE CE QUI DOIT CHANGER
+
+II. Une fois assurées les bases de ce qui doit demeurer, on peut sans crainte aborder la réforme de ce qui doit changer. L’Eglise non seulement l’autorise, mais elle y exhorte. Certaines formes contingentes de la vie religieuse sont effectivement le fruit d’un contexte historique ou géographique aujourd’hui dépassé; non seulement il n’y a pas d’inconvénient, mais il y a souvent avantage à procéder aux modifications nécessaires.
+
+L’entreprise n’est pas sans risques, vous êtes sans doute les premiers à vous en rendre compte : on quitte des rives connues, familières, sans voir toujours avec précision où l’on abordera. C’est une navigation périlleuse, qui doit se garder à la fois de deux écueils : l’un serait un attachement aveugle et passionné à la lettre de ce qu’on a toujours pratiqué dans l’Institut, une fidélité purement textuelle et matérielle ; l’autre, ce serait la voie facile, et plus dangereuse encore, de la transformation arbitraire, suggérée non pas tant par l’esprit de Dieu et par de vraies nécessités, que par l’envahissement de l’esprit naturel et mondain. Chaque Congrégation a son esprit, son style : il faut qu’elle le conserve, mais d’une manière adaptée, qui soit conforme à ses possibilités et à ce que lui imposent ses activités spécifiques dans la communauté ecclésiale. C’est l’œuvre même de vos chapitres généraux : que Dieu l’inspire et la bénisse !
+
+TOTALE ET GÉNÉREUSE FIDÉLITÉ À L'EGLISE
+
+III. Un mot encore, chers Fils, qui Nous est suggéré par les conditions particulières de ce lendemain de Concile. Laissez-Nous vous dire que ce que Nous attendons des Religieux avant tout, dans le moment présent, ce qui, Nous semble-t-il, doit être, dans le monde d’aujourd’hui, votre joie, votre fierté, votre honneur, c’est une totale, une généreuse fidélité à l’Eglise. Non pas à une église imaginaire, que chacun concevrait et organiserait à son idée, mais à l’Eglise catholique telle qu’elle est, telle que le Christ l’a voulue et instituée, avec ses finalités, ses lois, ses moyens de salut, ses indispensables structures. Ce qu’on est en droit d’attendre aujourd’hui du religieux, c’est qu’il vivifie par l’intérieur cette unique et véritable Eglise du Christ, qu’il la fortifie et l’enrichisse par son adhésion, par son obéissance, par ses vertus ascétiques et pratiques, par la sainteté de sa vie, par sa façon de s’acquitter des services qui lui sont demandés.
+
+Chers Fils, ayez toujours devant les yeux les grands besoins de l’Eglise : aimez-la dans ses nécessités ; aimez-la en l’aidant de vos services ; aimez-la dans sa structure hiérarchique et fraternelle. Que bien loin de vous décourager, les difficultés du temps présent vous stimulent et redoublent vos forces !
+
+*Speciali saluti alle tre Famiglie Religiose*
+
+A tous, maintenant, Notre salut et Notre Bénédiction. A vous, Membres de la Congrégation du Saint-Esprit, fils du Vénérable Libermann, Nous disons la reconnaissance de l’Eglise pour l’œuvre admirable que vous accomplissez, notamment en Afrique noire. Ne laissez pas se ralentir votre élan missionnaire ! Que les adaptations nécessaires ne visent qu’à le rendre plus ardent et plus efficace ! C’est ce que Nous attendons de votre présent Chapitre. C’est ce que vous aurez à cœur de réaliser, Nous en sommes sûr, sous la direction du nouveau Supérieur Général que vous venez d’élire et auquel Nous sommes heureux d’offrir Nos vœux cordiaux de fécond Généralat.
+
+A vous aussi, Frères Maristes des Ecoles, Fils du Bienheureux Champagnat, le souhait d’une fécondité missionnaire toujours croissante, surtout en faveur des enfants pauvres, dans la fidélité à l’esprit de votre Fondateur ! Nous savons avec quel zèle vous vous dépensez, partout dans le monde, pour la grande cause de l’école chrétienne, et combien vous avez pris a cœur votre « aggiornamento » au tours de ce long et laborieux Chapitre Général. Que Dieu vous bénisse tous, spécialement vos frères lointains, en Chine, au Congo, et, au Nigéria, dans la région du Biafra !
+
+E a voi, infine, diletti Figli della Congregazione Benedettina Olivetana, diciamo la Nostra compiacenza nel vedere la mirabile rifioritura presente del vostro antico glorioso ceppo, che, dopo tante prove, rimane fedelissimo alle consegne del Beato Bernardo Tolomei, e cerca di viverle integralmente nello spirito dei tempi nuovi. Ci ha dato grande consolazione apprendere come i capisaldi della vostra spiritualità monastica siano, adesso come allora, la preminenza dell’Ufficio Divino, la devozione filiale alla celeste Regina dell’Ordine, l’attaccamento alla Sede di Pietro, i mutui rapporti di familiare pietà, rafforzati dall’obbedienza e, soprattutto, dalla vita interiore e sacrificata, nello spirito di carità evangelica, che dominano sovrani nelle vostre Case. Continuate, diletti Figli, su questa linea regale, su cui raggiungerete le vette della perfezione, conquistando quella perla preziosa, per il cui possesso avete fatto getto di ogni cosa, e di voi stessi, secondo l’insegnamento di Cristo (cfr. *Matth*. 13, 45).
+
+Ed è quanto auguriamo di cuore a tutte codeste dilette rappresentanze di Famiglie Religiose, che sono qui riunite attorno a Noi, in una tregua serena dei loro lavori : ritornando fra i vostri Confratelli, dite che tutti li portiamo nel cuore, tutti li ringraziamo per l’aiuto che portano all’opera della Chiesa nel mondo, tutti li esortiamo a vivere a fondo la propria vocazione, come fermi e conquidenti testimoni dell’amore di Cristo e delle realtà future. Su tutti scendano copiose le effusioni della grazia divina, di cui vuole essere pegno ed auspicio la Nostra Apostolica Benedizione.

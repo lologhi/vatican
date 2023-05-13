@@ -1,0 +1,35 @@
+***LETTRE DU SAINT-PÈRE***
+
+***AU GRAND CHANCELIER DE L'UNIVERSITÉ PONTIFICALE DU LATRAN***
+
+***À L'OCCASION DE L’OUVERTURE DE L’ANNÉE ACADÉMIQUE***
+
+***ET DE L'INSTITUTION D'UN CYCLES D'ÉTUDES EN « SCIENCES DE LA PAIX******»***
+
+*A mon vénéré frère*
+
+*le cardinal Angelo De Donatis*
+
+*Grand chancelier de l’Académie pontificale du Latran*
+
+1. Le désir de paix qui s’élève de la famille humaine a vu depuis toujours l’Eglise se prodiguer et accomplir tout les efforts possibles pour contribuer à libérer des hommes et des femmes des tragédies de la guerre et pour en alléger les dangereuses conséquences. A notre époque aussi, où augmente la nécessité de prévenir et de résoudre des conflits, l’Eglise, à la lumière de l’Evangile, se sent interpellée pour inspirer et soutenir toutes les initiatives qui assurent aux différents peuples et pays un chemin de paix, fruit du dialogue authentique capable d’éteindre la haine, d’abandonner les égoïsmes et l’autoréférence, de surmonter les désirs de pouvoir et d’abus des plus faibles et des plus petits.
+
+Cette intention suppose avant tout un effort d’éducation à l’écoute et à la compréhension, mais aussi à la connaissance et à l’étude du patrimoine de valeurs, des notions et des instruments capables d’abattre les tendances à l’isolement, à la fermeture et à des logiques de puissance porteuses de violences et de destructions. Les moyens de conciliation, les formes de justice de transition, les garanties de développement durable, la protection et la sauvegarde de la création, sont aujourd’hui quelques-uns des instruments en mesure d’ouvrir la voie à des formes de solution pacifique des conflits, d’éliminer les carriérismes et les positions dominantes et de former ainsi des personnes dévouées sans réserve au service de la cause de l’homme.
+
+Pour être une médiatrice crédible face à l’opinion publique mondiale, l’Eglise est appelée à favoriser « la solution de problèmes qui concernent la paix, la concorde, l’environnement, la défense de la vie, les droits humains et civils » (Exhort. ap. [*Evangelii gaudium*, n. 65](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#Quelques_défis_culturels)). Une tâche qui se réalise aussi à travers l’action que le Saint-Siège mène au sein de la communauté internationale et dans ses institutions, en œuvrant avec les instruments de la diplomatie pour surmonter les conflits par des moyens pacifiques et la médiation, la promotion et le respect des droits humains fondamentaux, ainsi que le développement intégral des peuples et des pays.
+
+2. Dans la poursuite de cet objectif, un rôle central revient au monde universitaire, lieu symbole de l’humanisme intégral qui nécessite continuellement d’être renouvelé et enrichi, pour qu’il sache produire un courageux renouveau culturel que requiert le moment actuel. Ce défi interpelle aussi l’Eglise qui, avec à travers son réseau mondial d’universités ecclésiastiques, peut « apporter la contribution décisive du levain, du sel et de la lumière de l’Evangile de Jésus Christ et de la Tradition vivante de l’Eglise toujours ouverte à de nouveaux scénarios et de nouvelles propositions », comme je l’ai récemment rappelé en réformant le système des études académiques dans les institutions ecclésiastiques (cf. Const. ap. *[Veritatis gaudium](http://w2.vatican.va/content/francesco/fr/apost_constitutions/documents/papa-francesco_costituzione-ap_20171208_veritatis-gaudium.html)*, n. 3). Cela ne signifie certes pas altérer le sens institutionnel et les traditions consolidées de nos réalités académiques, mais plutôt en orienter la fonction dans la perspective d’une Eglise davantage « en sortie » et missionnaire. En effet, il est possible d’affronter les défis du monde contemporain avec une capacité de réponse adéquate dans les contenus et compatible dans le langage, en s’adressant avant tout aux nouvelles générations. Telle est donc la tâche qui nous est confiée : incarner la Parole de Dieu pour l’Eglise et pour l’humanité du troisième millénaire. Et, ce faisant, il est important que les étudiants et les enseignants se sentent pèlerins appelés à annoncer la Bonne Nouvelle à tous les peuples, en n’ayant pas peur de risquer et de rêver la paix pour toutes les personnes et toutes les nations.
+
+3. C’est pourquoi, animé du désir de transposer dans le monde académique et de doter d’une méthode scientifique ce patrimoine de valeurs et d’actions, j’institue dans cette université pontificale qui participe de façon spécifique à la mission de l’Evêque de Rome, un cycle d’études en *Sciences de la paix*, en tant que parcours académique vers lequel convergent les domaines théologique, philosophique, juridique, économique et social selon le critère de *l’inter- et trans-disciplinarité*(cf. *ibid*. n. 4, c). La structure du programme bénéficiera donc de la contribution d’enseignements donnés par les facultés et par les instituts de l’université du Latran pour conférer les diplômes académiques du baccalauréat et de la licence à l’issue, respectivement, d’un premier cycle de trois ans et d’une spécialisation de deux ans.
+
+4. A travers vous, Monsieur le cardinal, je confie le nouveau parcours d’études à l’université, en assignant la direction au recteur magnifique afin que soit garantie une formation scientifique spécifique de prêtres, de consacrés et de laïcs. Les évêques diocésains, les évêques aux armées, les conférences épiscopales, les supérieurs des différentes formes de vie consacrée féminine et masculine, les responsables d’associations et de mouvements de laïcs, ainsi que tous ceux qui le désirent, pourront se tourner avec confiance vers les sciences de la paix, pour promouvoir une préparation adéquate d’artisans de paix actuels et à venir.
+
+Face à cette tâche, je forme le vœu que, dans le service quotidien rendu au Siège de Pierre, toute la communauté universitaire du Latran — enseignants, étudiants et tout le personnel — se sente impliquée pour jeter les semences de la culture de la paix. Une œuvre qui commence par l’écoute, le professionnalisme et le dévouement, toujours accompagnés par l’humilité, la douceur et la volonté de se faire tout à tous.
+
+Je place sous la protection de mes deux saints prédécesseurs, [Jean XXIII](https://w2.vatican.va/content/john-xxiii/fr.html) et [Paul VI](https://w2.vatican.va/content/paul-vi/fr.html), véritables hérauts de la paix dans le monde, et qui ont tant contribué au développement du magistère dans ce domaine, ce nouveau fruit de la sollicitude de l’Eglise, en le confiant à Marie *Reine de la Paix*, pour qu’elle nous aide à comprendre et à vivre cette fraternité que demande le cœur de son Fils et de laquelle découle la véritable paix.
+
+*Du Vatican, le 12 novembre 2018*
+
+*mémoire du bienheureux Jean de la Paix*
+
+**François**

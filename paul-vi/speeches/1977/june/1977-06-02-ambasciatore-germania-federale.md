@@ -1,0 +1,23 @@
+***Discours à l’Ambassadeur d’Allemagne,***
+
+***S.E.M. Walter Gehlhoff****
+
+*Jeudi 2 juin 1977*
+
+*Monsieur l’Ambassadeur*,
+
+C’est une grande joie pour nous de pouvoir vous accueillir aujourd’hui à l’occasion de la remise des Lettres qui vous accréditent comme Ambassadeur Extraordinaire et Plénipotentiaire de la République d’Allemagne près le Saint-Siège. Pour votre première visite officielle, ici, au Vatican, nous vous souhaitons sincèrement la bienvenue et nous vous assurons que nous répondons cordialement aux sentiments d’affection et d’estime que vous venez d’exprimer dans votre discours.
+
+Votre nomination d’Ambassadeur près le Saint-Siège ne peut que renforcer les relations confiantes existant actuellement. Il en est de même de nos rencontres très amicales avec de nombreuses personnalités allemandes appartenant au monde :de la politique ou de la culture qui nous ont rendu visite durant notre pontificat. Tout ceci constitue un éloquent témoignage, non seulement des bonnes relations entre la République Fédérale d’Allemagne et le Saint-Siège, mais également des rapports bien ordonnés et de la fructueuse collaboration entre l’Etat et l’Eglise dans votre pays. Nous voulons en la circonstance présente, le confirmer avec une toute particulière satisfaction et reconnaissance. La raison fondamentale qui, encore aujourd’hui, favorise cette collaboration entre l’Eglise et les Etats modernes vient heureusement de ce que la plupart de ceux-ci ont inscrit dans leur Constitution des objectifs comme la protection des droits de l’homme, la promotion de la justice, le progrès social, la paix et l’entente entre les peuples, et, à de nombreux égards, ces buts correspondent à ceux que l’Eglise poursuit conformément à sa mission dans le monde temporel et dans la société.
+
+Dans cette communauté, nous reconnaissons, comme vous venez de l’exprimer vous-même, l’écho d’une tradition chrétienne séculaire. Les relations amicales que le Saint-Siège entretient avec de nombreux pays reposent principalement - sur la confiance placée dans la fructueuse coopération de l’Eglise à la promotion et à la sauvegarde des communes valeurs spirituelles et morales sans lesquelles il n’est pas possible d’édifier une société ou un Etat vraiment dignes de l’homme.
+
+Dans cet esprit de solidarité et de confiance mutuelle, l’Eglise et le Saint-Siège offrent à votre pays et à son gouvernement leur collaboration empressée et loyale. Nous suivons avec grande attention et confiance les très importantes discussions actuellement en cours entre les responsables de l’Etat et ceux de l’Eglise au sujet de la juste reconnaissance et de la défense dont la société ne saurait se passer qu’il s’agisse de la protection de la famille ou du progrès de la morale publique. Dans les limites de ses possibilités, le Saint-Siège soutient les aspirations légitimes du peuple allemand, tant à l’intérieur du pays que dans la communauté internationale des nations. De la même manière, il compte de son côté sur le serviable soutien et sur la collaboration du gouvernement fédéral, pour que, grâce à des efforts universels communs, l’aspiration fondamentale de l’humanité à un ordre social plus juste et à une paix durable puissent être partout réalisés. Les nombreuses initiatives et interventions charitables réalisées dans le passé par la République Fédérale, et notamment par les catholiques allemands, en faveur des besoins et du progrès des peuples du Tiers-monde, assurent à votre pays une place d’honneur dans la lutte décisive pour un monde futur plus fraternel et plus digne de l’homme.
+
+Monsieur l’Ambassadeur, notre voeu le plus cher est que grâce à l’activité diplomatique que vous entreprenez officiellement aujourd’hui comme Ambassadeur près le Saint- Siège, la bonne entente qui, jusqu’à présent, a régné entre la République Fédérale Allemande et le Saint-Siège, ainsi que la collaboration confiante dans les relations mutuelles et dans les importantes questions internationales se développent toujours plus étroitement et profondément. A cet égard, nous vous promettons un appui identique à celui que nous avons réservé à votre éminent prédécesseur et nous accompagnerons votre future activité de nos meilleurs souhaits, et de nos prières.
+
+Entre temps nous vous remercions très cordialement pour les voeux que vous nous avez transmis de la part de Monsieur le Président de la République Fédérale et nous implorons pour vous et pour vos collaborateurs une assistance et un appui divins tout particuliers.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française,* n.24 p.2.

@@ -1,0 +1,49 @@
+***MIGRANTS EN SITUATION IRRÉGULIÈRE***
+
+**Message du Pape Jean Paul II pour la Journée Mondiale des Migrants**
+
+*Très chers frères et soeurs,*
+
+1. Le phènomène des migrations, avec sa problématique complexe, interpelle, aujourd'hui plus que jamais, la Communauté internationale et chaque Etat. Ces derniers tendent en général à intervenir par le biais du durcissement des lois sur les migrants et du renforcement des systèmes de contrôle aux frontières ; les migrations perdent ainsi la dimension de développement économique, social et culturel qu'elles possèdent historiquement. En effet, on parle toujours moins de la situation d'«émigrants » dans les pays de provenance, et toujours plus d'« immigrés », en référence aux problèmes qu'ils suscitent dans les pays où ils s'établissent.
+
+La migration est en train de prendre le caractère d'une urgence sociale, surtout en raison de l'augmentation des *migrants en situation irrégulière* qui, malgré les restrictions mises en place, apparaît incontrôlable. L'immigration illégale a toujours existé et a souvent été tolérée car elle favorise une réserve de personnel où l'on peut puiser au fur et à mesure que les migrants en situation régulière s'élèvent dans l'échelle sociale et s'insèrent de façon stable dans le monde du travail.
+
+2. Aujourd'hui le phénomène des migrants en situation irrégulière a pris des proportions importantes, tant parce que l'offre de main d'œuvre étrangère devient disproportionnée par rapport aux exigences de l'économie qui a déjà du mal à absorber l'offre interne, qu'en raison de l'amplification des migrations forcées. La prudence nécessaire qui doit accompagner l'analyse d'un problème aussi délicat, ne peut pas s'accompagner de réticence ou devenir évasive ; surtout parce que ce sont des milliers de personnes, victimes de situations qui semblent destinées à s'aggraver au lieu de se résoudre, qui en subissent les conséquences. La situation d'irrégularité légale n'autorise pas à négliger la dignité du migrant, qui possède des droits inaliénables, qui ne peuvent être ni violés ni ignorés.
+
+L'immigration illégale doit être prévenue, mais il faut aussi combattre de façon énergique les initiatives criminelles qui exploitent l'expatriation clandestine. Le choix le plus approprié, destiné à porter des fruits importants et durables à long terme, est celui de la coopération internationale, qui vise à promouvoir la stabilité politique et à éliminer le sous-développement. Le déséquilibre économique et social actuel, qui alimente pour une grande part les courants de migration, ne doit pas être envisagé comme une fatalité, mais comme un défi au sens de responsabilité du genre humain.
+
+3. L'Eglise considère le problème des migrants en situation irrégulière dans la perspective du Christ, qui est mort pour rassembler dans l'unité les enfants de Dieu dispersés (cf. Jn 11, 52), pour accueillir les exclus et rapprocher ceux qui se sont éloignés, pour intégrer toutes les personnes dans une communion qui n'est pas fondée sur l'appartenance ethnique, culturelle et sociale, mais sur la volonté commune d'accueillir la parole de Dieu et de rechercher la justice. « Dieu ne fait pas acception des personnes, mais en toute nation celui qui le craint et pratique la justice lui est agréable » (Ac 10, 34-35).
+
+L'Eglise agit en continuité avec la mission du Christ. Elle se demande en particulier comment aider, dans le respect des lois, les personnes dont la présence sur le territoire national est défendue ; elle s'interroge, en outre, sur la valeur du droit à l'émigration en l'absence d'un droit correspondant à l'immigration. Le problème est de savoir comment associer à cette œuvre de solidarité les communautés chrétiennes souvent gagnées par une opinion publique parfois hostile envers les immigrés.
+
+La première façon d'aider ces personnes consiste à les écouter pour connaître leur situation et leur assurer, quelle que soit leur position juridique face à la législation du pays, les moyens de subsistance nécessaires.
+
+Il est donc important d'aider le migrant en situation irrégulière à effectuer les démarches administratives pour obtenir le permis de séjour. Les institutions à caractère social et caritatif peuvent prendre contact avec les autorités pour chercher, dans le respect de la légalité, les solutions adaptées aux différents cas. Un effort de ce genre doit être en particulier effectué en faveur de ceux qui, après un long séjour, se sont établis de façon telle dans la société locale qu'un retour au pays d'origine équivaudrait à une forme d'émigration en sens inverse, ayant de graves conséquences, en particulier pour leurs enfants.
+
+4. Lorsqu'aucune solution n'est envisageable, ce sont ces institutions elles-mêmes qui devraient orienter leurs assistés, en leur fournissant éventuellement aussi une aide, soit matérielle, soit pour chercher accueil dans d'autres pays ou pour reprendre le chemin du retour dans leur patrie.
+
+Le problème des migrations en général, et des migrants en situation irrégulière en particulier, est un problème dont la solution dépend dans une grande mesure de l'attitude de la société où ils arrivent. Dans cette perspective, il est très important que l'opinion publique soit bien informée sur les conditions réelles dans lesquelles se trouvent les pays d'origine des migrants, sur les drames qu'ils doivent affronter et sur les risques que comporterait leur retour. La misère et les malheurs qui les frappent constituent une raison de plus pour aller généreusement à la rencontre des immigrés.
+
+Il est nécessaire de prévenir l'apparition de formes de néoracisme ou de comportement xénophobe, qui cherchent à transformer nos frères en boucs émissaires face aux situations locales, parfois difficiles, qui peuvent exister.
+
+En raison des proportions importantes qu'a pris le phénomène des migrants, il faut que les législations des pays intéressés soient, dans la mesure du possible, coordonnées, notamment dans le but de mieux répartir le poids d'une solution équilibrée. Il faut éviter d'avoir recours à l'utilisation des règlements administratifs, visant à réduire les critères de l'appartenance à la famille, et ayant pour conséquence de mettre hors la loi, de facon injustifiée, des personnes auxquelles aucune loi ne peut nier le droit à la coexistence familiale.
+
+Une protection adéquate doit être assurée à ceux qui, même s'ils ont fui leur pays pour des raisons qui ne sont pas prévues par les Conventions internationales, pourraient dans les faits courir un sérieux danger pour leur vie s'ils étaient forcés à retourner dans leur patrie.
+
+5. J'exhorte les Eglises particulières à inciter à la réflexion, à donnerdes directives et à fournir des informations pour aider les agents de la pastorale et du domaine social à agir avec discernement dans un cadre aussi délicat et complexe.
+
+Lorsque la compréhension du problème est conditionnée par les préjugés et des attitudes xénophobes, l'Eglise ne doit pas manquer de faire entendre la voix de la fraternité, en l'accompagnant de gestes qui attestent du primat de la charité.
+
+La grande importance que prennent, dans cette situation de précarité, les aspects liés à l'assistance, ne doit pas faire passer au second plan le fait qu'un grand nombre d'immigrés en situation irrégulière sont également des chrétiens catholiques qui souvent, au nom de la foi, cherchent des pasteurs d'âmes et des endroits où prier, écouter la parole de Dieu et célébrer les mystères du Seigneur. Il est du devoir des diocèses de répondre à ces attentes.
+
+Dans l'Eglise, nul n'est étranger et l'Eglise n'est étrangère à aucun homme ni à aucun lieu. En tant que sacrement d'unité, et donc signe et force de regroupement de tout le genre humain, I'Eglise est le lieu où les immigrés en situation illégale eux aussi sont reconnus et accueillis comme des frères. Les différents diocèses ont le devoir de se mobiliser pour que ces personnes, contraintes à vivre en dehors de la protection de la société civile, trouvent un sentiment de fraternité dans la communauté chrétienne.
+
+La solidarité est une prise de responsabilité à l'égard de ceux qui sont en difficulté. Pour le chrétien, le migrant n'est pas simplement un individu à respecter selon des normes fixées par la loi, mais une personne dont la présence l'interpelle et dont les besoins deviennent un engagement dont il est responsable. « Qu'as-tu fait de ton frère ? » (cf. Jn 4, 9). La réponse ne doit pas être donnée dans les limites imposées par la loi, mais dans l'optique de la solidarité.
+
+6. L'homme, surtout s'il est faible, sans défense, mis au ban de la société, est le sacrement de la présence du Christ (cf. Mt 25, 40-45). « Mais cette foule qui ne connaît pas la Loi, ce sont des maudits ! » (Jn 7, 49), avaient décrété les pharisiens en faisant référence à ceux que Jésus secourait même au-delà des limites établies par leurs lois. En effet, il est venu chercher et sauver celui qui était perdu (cf. Lc 19, 10), récupérer l'exclus, l'abandonné, celui que la société a refusé.
+
+« J'étais un étranger et vous m'avez accueilli » (Mt 25, 35). La tâche de l'Eglise est non seulement de reproposer sans cesse cet enseignement de foi du Seigneur, mais aussi d'en indiquer l'application adaptée aux différentes situations que l'évolution des temps continue de créer. Aujourd'hui, le migrant en situation irrégulière se présente à nous comme cet « étranger » en qui Jésus demande à être reconnu. L'accueillir et être solidaire de lui est un devoir d'hospitalité et une façon de se montrer fidèle à sa propre identité de chrétiens.
+
+Avec ces souhaits, je donne ma Bénédiction apostolique à ceux qui sont engagés dans le domaine des migrations, en gage d'abondantes récompenses célestes.
+
+*Du Vatican, le 25 juillet 1995, dix-septième année de mon pontificat.*

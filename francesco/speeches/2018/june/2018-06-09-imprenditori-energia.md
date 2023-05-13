@@ -1,0 +1,81 @@
+***DISCOURS DU PAPE FRANÇOIS*** ***AUX PARTICIPANTS À LA RENCONTRE DES DIRIGEANTS***
+
+***DES GRANDS GROUPES DU SECTEUR PÉTROLIER, DU GAZ NATUREL ET DE L'ÉNERGIE***
+
+*Salle Clémentine*
+
+*Samedi 9 juin 2018*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/6/9/imprenditori-energia.html)]**
+
+* * *
+
+*Monsieur le cardinal,*
+
+*Messieurs les administrateurs, investisseurs et experts,*
+
+*Mesdames et Messieurs,*
+
+Je vous souhaite une cordiale bienvenue au terme du symposium consacré aux thèmes de la transition énergétique et de la sauvegarde de la maison commune, qui s’est tenu ici au Vatican.
+
+Il est très positif que ceux qui ont un rôle important pour orienter les choix, les initiatives et les investissements dans le secteur énergétique aient l’opportunité d’un échange fructueux d’opinions et de connaissances. Je vous remercie pour votre présence qualifiée et j’espère que, dans l’écoute réciproque, vous avez pu faire une analyse approfondie et prendre en compte de nouvelles perspectives.
+
+Les progrès techniques et scientifiques rendent tout type de communication toujours plus rapide. Une nouvelle, qu’elle soit vraie ou fausse ; une idée, qu’elle soit bonne ou mauvaise ; une méthode, qu’elle soit efficace ou trompeuse, une fois lancées, se diffusent en quelques secondes. Les personnes peuvent elles aussi se rencontrer et les marchandises être échangées à un rythme, une vitesse et une intensité auparavant inconcevables, en franchissant rapidement les océans et les continents. Nos sociétés sont toujours plus interconnectées.
+
+Cet intense mouvement de masses d’informations, de personnes et de choses, a besoin de beaucoup d’énergie, un besoin supérieur à toutes les époques passées. Une grande partie des domaines de notre vie sont conditionnés par l’énergie, et malheureusement, nous devons constater que trop de personnes n’ont toujours pas accès à l’électricité: leur nombre atteindrait plus d’un milliard de personnes.
+
+D’où le défi de réussir à garantir l’immense quantité d’énergie nécessaire pour tous, avec des modalités d’exploitation des ressources qui évitent de produire des déséquilibres environnementaux tels qu’ils provoquent un processus de dégradation et de pollution, qui infligerait de graves blessures à l’humanité tout entière d’aujourd’hui et de demain.
+
+La qualité de l’air, le niveau des mers, le volume des réserves d’eau douce, le climat et l’équilibre d’écosystèmes délicats, ne peuvent manquer de ressentir les effets des modalités à travers lesquelles les êtres humains comblent leur « soif » d’énergie, malheureusement avec de lourdes inégalités.
+
+Pour étancher cette « soif », il n’est pas licite d’augmenter la véritable soif d’eau, ou la pauvreté ou l’exclusion sociale. La nécessité d’avoir à disposition des quantités croissantes d’énergie pour le fonctionnement des machines ne peut être satisfaite au prix d’empoisonner l’air que nous respirons. Le besoin d’occuper des espaces pour les activités humaines ne peut se réaliser en mettant en grave danger l’existence de notre espèce et des autres espèces d’êtres vivants sur terre.
+
+C’est un « faux présupposé qu’il existe une quantité illimitée d’énergie et de ressources à utiliser, que leur régénération est possible dans l’immédiat et que les effets négatifs des manipulations de l’ordre naturel peuvent être facilement absorbés » (Lett. enc. *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, 106).
+
+La question énergétique est donc devenue l’un des principaux défis, théoriques et pratiques, pour la communauté internationale. C’est de la façon dont il sera géré que dépendra la qualité de la vie et si les conflits en cours dans diverses régions de la planète trouveront une solution plus facile ou si ceux-ci, à cause des profonds déséquilibres environnementaux et de la pénurie d’énergie, trouveront un nouveau combustible pour s’alimenter, brûlant la stabilité sociale et les vies humaines.
+
+Il faut donc identifier une stratégie globale à long terme, qui offre une sécurité énergétique et qui favorise de cette façon la stabilité économique, protège la santé et l’environnement, et promeuve le développement humain intégral, en établissant des engagements précis pour affronter le problème des changements climatiques.
+
+Dans l’encyclique *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)* j’ai fait appel à toutes les personnes de bonne volonté (cf. nn. 3 ; 62-64) pour la sauvegarde de la maison commune et, précisément, pour une « transition énergétique » (n. 165) pour éviter des changements climatiques désastreux qui pourraient compromettre le bien-être et l’avenir de la famille humaine et de sa maison commune. Dans ce contexte, il est important que, à travers un engagement sérieux, on avance vers une transition qui fasse constamment croître l’emploi d’énergies à haute efficacité et à taux de pollution bas.
+
+Il s’agit d’un défi historique, mais également d’une grande opportunité, dans laquelle il faut avoir particulièrement à cœur les efforts en vue d’un meilleur accès à l’énergie des pays les plus vulnérables, en particulier dans les zones rurales, et en vue d’une diversification des sources d’énergie, en accélérant également le développement durable d’énergies renouvelables.
+
+Nous sommes conscients que les défis à affronter sont liés entre eux. En effet, si nous voulons éliminer la pauvreté et la faim, comme le requièrent les objectifs de développement durable des Nations unies, le milliard et plus de personnes qui ne disposent pas d’électricité aujourd’hui doit pouvoir l’avoir de façon accessible. Mais dans le même temps, il est bon que cette énergie soit propre, en limitant l’usage systématique de combustibles fossiles. La perspective souhaitable d’une *énergie pour tous* ne peut conduire à une spirale non souhaitable de changements climatiques toujours plus graves, à travers une hausse dangereuse des températures de la planète, des conditions environnementales plus difficiles et une augmentation des niveaux de pauvreté.
+
+Comme vous le savez, en décembre 2015, 196 pays ont négocié et adopté l’Accord de Paris avec la ferme intention de limiter la croissance du réchauffement de la planète au dessous de 2°C par rapport aux niveaux pré-industriels et, si possible, au-dessous de 1,5°C. Deux ans plus tard, les émissions de CO2 et les concentrations atmosphériques dues aux gaz à effet de serre sont toujours très élevées. Cela est plutôt inquiétant et préoccupant.
+
+Les constantes explorations pour trouver de nouvelles réserves de combustible fossile sont également préoccupantes, alors que l’Accord de Paris conseille clairement de maintenir dans le sous-sol la majorité du carburant fossile. Voilà pourquoi il y a besoin de discuter ensemble — industriels, investisseurs, chercheurs et usagers — en ce qui concerne la transition et la recherche d’alternatives. La civilisation requiert de l’énergie, mais l’utilisation de l’énergie ne doit pas détruire la civilisation !
+
+L’identification d’un bouquet énergétique adéquat est fondamental pour combattre la pollution, déraciner la pauvreté et promouvoir l’équité sociale. Ces aspects se renforcent souvent réciproquement, étant donné que la coopération dans le domaine énergétique est destinée à influer sur le soulagement de la pauvreté, sur la promotion de l’inclusion sociale et sur la protection de l’environnement. Il s’agit d’objectifs dont la réalisation exige d’assumer la perspective des droits des peuples et des cultures (cf. *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, n. 144).
+
+Les instruments fiscaux et économiques, le transfert de capacités technologiques et en général la coopération régionale et internationale, comme l’accès à l’information, devraient être cohérents avec ces objectifs, qui ne doivent pas être considérés comme le fruit d’une idéologie particulière ; mais des objectifs de civilisation, qui promeuvent également la croissance économique et l’ordre social.
+
+Une exploitation de l’environnement qui en revanche, ne tienne pas compte des questions à long terme ne pourrait que tenter de favoriser une croissance économique à court terme, mais avec un impact négatif certain sur une période de temps plus longue, avec des répercussions sur l’égalité entre générations ainsi que sur le processus de développement.
+
+Une évaluation attentive de l’impact des décisions de nature économique sur l’environnement est toujours nécessaire, pour bien considérer les coûts humains et environnementaux à long terme, en incluant le plus possible dans les processus de décision les institutions et les communautés locales.
+
+A travers vos efforts, de véritables progrès ont été accomplis. Les compagnies de pétrole et de gaz développent des approches plus approfondies pour évaluer le risque climatique et modifier par conséquent leurs projets d’entreprise. Cela est digne de louange. Les investisseurs mondiaux revoient actuellement leurs stratégies d’investissement pour tenir compte de considérations de nature environnementale. De nouvelles approches à la « finance verte » continuent d’apparaître.
+
+Des progrès ont certainement été accomplis. Mais cela est-il suffisant ? Avons-nous changé de cap à temps ? Personne ne peut répondre avec certitude à cette question, mais chaque mois qui passe, le défi de la transition énergétique devient toujours plus pressant.
+
+Tant les décisions politiques que les responsabilités sociales des entreprises et les critères d’investissement doivent bien avoir à l’esprit la poursuite du bien commun à long terme, afin qu’il existe une solidarité concrète entre les générations, en évitant les attitudes opportunistes et cyniques, visant à obtenir à court terme de petits résultats partiels, mais qui se répercuteraient à l’avenir à travers des coûts très élevés et des dommages tout aussi importants.
+
+Il existe en outre également certaines motivations éthiques profondes pour entreprendre une transition énergétique mondiale avec urgence. Comme nous le savons, nous sommes frappés par les crises climatiques. Toutefois, les effets du changement climatique ne sont pas distribués de façon uniforme. Ce sont les pauvres qui souffrent davantage des dévastations du réchauffement mondial, avec les perturbations croissantes dans le domaine agricole, l’insécurité de la disponibilité d’eau et l’exposition à de graves phénomènes météorologiques. Un grand nombre de ceux qui peuvent à peine se le permettre sont déjà contraints d’abandonner leurs foyers et de migrer dans d’autres lieux, sans savoir comment ils seront accueillis. Bien plus de personnes encore devront le faire à l’avenir. La transition vers l’énergie accessible et propre est une responsabilité que nous avons à l’égard de millions de nos frères et sœurs dans le monde, à l’égard des pays pauvres et des générations qui viendront.
+
+On ne pourra pas avancer de façon résolue sur ce chemin sans la conscience accrue de faire tous partie d’une unique famille humaine liée par des liens de fraternité et de solidarité. Ce n’est qu’en pensant et en agissant avec une attention constante à cette unité fondamentale qui dépasse toutes les différences, ce n’est qu’en cultivant un sens de solidarité universelle et intergénérationnelle que l’on pourra véritablement avancer de façon résolue sur la voie indiquée.
+
+Un monde interdépendant oblige à penser et à poursuivre un projet commun à long terme qui investit aujourd’hui pour construire demain. L’air et l’eau ne suivent pas des lois diverses selon les pays qu’ils traversent ; les substances polluantes n’adoptent pas de comportements différents selon les latitudes, mais ont des règles univoques. Les problèmes environnementaux et énergétiques ont désormais un impact et une dimension mondiale. Pour cela, ils exigent des réponses mondiales, recherchées avec patience et dialogue, et poursuivies avec rationalité et constance.
+
+Une foi absolue dans les marchés et dans la technologie a conduit de nombreuses personnes à croire que les changements dans les systèmes économiques ou technologiques suffiront à apporter un remède aux déséquilibres écologiques et sociaux actuels. Toutefois, nous devons reconnaître que la demande d’une croissance économique constante a comporté de graves conséquences écologiques et sociales, étant donné que le progrès de notre système économique actuel repose toujours plus sur l’augmentation des extractions, sur la consommation et sur le gaspillage.
+
+« Le problème est que nous n’avons pas encore la culture nécessaire pour faire face à cette crise ; et il faut construire des *leaderships* qui tracent des chemins, en cherchant à répondre aux besoins des générations actuelles comme en incluant tout le monde, sans nuire aux générations futures » ( *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, n. 53).
+
+La réflexion sur ces thèmes culturels plus profonds et plus fondamentaux nous conduit à reconsidérer l’objectif fondamental de la vie. « Il n’y aura pas de nouvelle relation avec la nature sans un être humain nouveau » ( *ibid*., n. 118). Un tel renouveau exige une nouvelle forme de *leadership*, et de tels *leaders* exigent une compréhension profonde et aiguë du fait que la terre constitue un unique système et que l’humanité, de même, est un unique ensemble. Le Pape Benoît XVI a affirmé que « le livre de la nature est unique et indivisible, qu’il s’agisse de l’environnement comme de la vie, de la sexualité, du mariage, de la famille, des relations sociales, en un mot du développement humain intégral. Les devoirs que nous avons vis-à-vis de l’environnement sont liés aux devoirs que nous avons envers la personne considérée en elle-même et dans sa relation avec les autres. On ne peut exiger les uns et piétiner les autres. C’est là une grave antinomie de la mentalité et de la praxis actuelle qui avilit la personne, bouleverse l’environnement et détériore la société» (Lett. enc. *[Caritas in veritate](http://w2.vatican.va/content/benedict-xvi/fr/encyclicals/documents/hf_ben-xvi_enc_20090629_caritas-in-veritate.html)*, n. 51).
+
+Chers frères et sœurs, je m’adresse en particulier à vous, qui avez reçu tant de capacité et d’expérience. Je voudrais vous exhorter afin que ceux qui ont démontré leur aptitude à l’innovation et à améliorer la qualité de la vie de nombreuses personnes à travers leur génie et leurs compétences professionnelles, puissent y contribuer ultérieurement en plaçant leurs capacités au service de deux grandes fragilités du monde actuel : les pauvres et l’environnement. Je vous invite à être le noyau d’un groupe de *leaders* qui imagine la transition énergétique mondiale de façon à ce qu’elle tienne compte de tous les peuples de la terre, ainsi que des générations futures, et de toutes les espèces et écosystèmes. Que cela soit considéré comme la plus grande opportunité de *leadership* en vue d’influer de façon durable en faveur de la famille humaine, une opportunité qui fait appel à votre imagination la plus audacieuse. Ce n’est pas quelque chose que vous pouvez faire seuls ou que vos industries individuelles peuvent faire seules. Toutefois, ensemble, et en collaborant avec d’autres, il existe au moins la possibilité d’une nouvelle approche qui n’a pas été mise en évidence jusqu’à maintenant.
+
+Répondre à cet appel comporte une grande responsabilité, qui exige la bénédiction et la grâce de Dieu, ainsi que la bonne volonté d’hommes et de femmes sous toutes les latitudes.
+
+Il n’y a pas de temps à perdre : nous avons reçu la Terre du Créateur comme une maison-jardin, ne la transmettons pas aux générations futures comme un lieu sauvage (cf. *[Laudato si’](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html)*, n. 160).
+
+Avec reconnaissance, je vous bénis et je prie pour que Dieu tout-puissant accorde à chacun de vous une grande détermination et courage pour servir la maison commune sous une forme renouvelée de coopération.

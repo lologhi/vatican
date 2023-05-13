@@ -1,0 +1,51 @@
+CHAPELLE PAPALE POUR LA BÉATIFICATION DES SERVITEURS DE DIEU
+
+LUIGI BELTRAME QUATTROCCHI ET MARIA CORSINI, ÉPOUX
+
+***HOMÉLIE DU PAPE JEAN PAUL II***
+
+*Dimanche 21 octobre 2001**Journée Mondiale des Missions*
+
+1. « *Mais le Fils de l'homme, quand il viendra, trouvera-t-il la foi sur la terre ?* » ( *Lc* 18, 8).
+
+La question par laquelle Jésus conclut la parabole sur la nécessité de prier « *sans cesse et ne pas se décourager* » ( *Lc* 18, 1), ébranle notre âme. C'est une question qui n'est pas suivie d'une réponse :  en effet, elle entend interpeller chaque personne, chaque communauté ecclésiale, chaque génération humaine. La réponse doit être donnée par chacun de nous. Le Christ désire nous rappeler que l'existence de l'homme est orientée vers la rencontre avec Dieu ; mais précisément dans cette perspective, il se demande si, à son retour, il trouvera les âmes prêtes à l'attendre, pour entrer avec lui dans la maison du Père. C'est pourquoi il dit à tous :  « *Veillez donc, car vous ne savez ni le jour ni l'heure* » ( *Mt* 25, 13).
+
+*Chers frères et soeurs !*
+
+*Très chères familles !*
+
+Aujourd'hui, nous nous sommes donné rendez-vous pour la béatification de deux époux :  Luigi et Maria Beltrame Quattrocchi. A travers cet acte ecclésial solennel, nous entendons mettre en lumière un exemple de réponse affirmative à la question du Christ. La réponse est donnée par deux époux, qui ont vécu à Rome dans la première moitié du vingtième siècle, un siècle au cours duquel la foi dans le Christ a été mise à dure épreuve. Egalement au cours de ces années difficiles, les deux époux Luigi et Maria ont gardé allumée la lampe de la foi - *lumen Christi* - et l'ont transmise à leurs quatre enfants, dont trois sont aujourd'hui présents dans cette Basilique. Très chers amis, votre Mère écrivait ce qui suit à votre propos :  « *Nous les avons élevés dans la foi, afin qu'ils connaissent Dieu et qu'ils l'aiment* » ( *La chaîne et la trame*, p. 9). Mais vos parents ont également transmis cette flamme vive à leurs amis, à leurs connaissances, à leurs collègues... A présent, du Ciel, ils la donnent à toute l'Eglise.
+
+Je salue les parents et les amis des nouveaux bienheureux, ainsi que les Autorités religieuses qui participent à cette célébration, à commencer par le Cardinal Camillo Ruini et les autres cardinaux, archevêques et évêques présents. Je salue, en outre, les Autorités civiles, parmi lesquelles le Président de la République italienne et la Reine de Belgique.
+
+2. Il ne pouvait pas exister d'occasion plus heureuse et significative que celle d'aujourd'hui, pour célébrer les vingt ans de l'Exhortation apostolique " *Familiaris consortio*« *. Ce document, qui est aujourd'hui encore d'une grande actualité, illustre non seulement la valeur du mariage et les devoirs de la famille, mais il invite à un engagement particulier sur le chemin de sainteté auquel les époux sont invités en vertu de la grâce sacramentelle, qui * »n'est pas épuisée dans la célébration du sacrement de mariage, mais accompagne les époux tout au long de leur existence" ( *Familiaris consortio*, n. 56). La beauté de ce chemin resplendit dans le témoignage des bienheureux Luigi et Maria, expression exemplaire du peuple italien, qui doit tant au mariage et aux familles fondées sur celui-ci.
+
+Ces époux ont vécu, dans la lumière de l'Evangile et avec une grande intensité humaine, l'amour conjugal et le service à la vie. Ils ont assumé de façon pleinement responsable la tâche de collaborer avec Dieu dans la procréation, en se consacrant généreusement à leurs enfants pour les éduquer, les guider, les orienter à la découverte de son dessein d'amour. De ce terrain spirituel si fertile sont nées des vocations au sacerdoce et à la vie consacrée, qui démontrent combien le mariage et la virginité, à partir de leur enracinement commun dans l'amour sponsal du Seigneur, sont intimement liés et s'illuminent réciproquement.
+
+En puisant à la Parole de Dieu et au témoignage des saints, les bienheureux époux ont vécu une vie ordinaire d'une façon extraordinaire. Parmi les joies et les soucis d'une famille normale, ils ont su réaliser une existence extraordinairement riche de spiritualité. Au centre, l'Eucharistie quotidienne, à laquelle s'ajoutait la dévotion filiale à la Vierge Marie, invoquée avec le Rosaire récité chaque soir, et la référence à de sages conseillers spirituels. Ils ont ainsi su accompagner leurs enfants dans le discernement de leur vocation, en les entraînant à évaluer chaque chose « *du toit vers le haut* », comme ils aimaient souvent à le souligner de façon amicale.
+
+3. La richesse de foi et d'amour des époux Luigi et Maria Beltrame Quattrocchi est une démonstration vivante de ce que le Concile Vatican II a affirmé à propos de l'appel de tous les fidèles à la sainteté, en spécifiant que les époux poursuivent cet objectif " *propriam viam sequentes*« *, * »en suivant leur propre voie" ( *Lumen gentium*, n. 41). Cette indication précise du Concile trouve aujourd'hui sa réalisation effective avec la première béatification d'un couple d'époux :  leur fidélité à l'Evangile et l'héroïcité de leurs vertus ont été constatées à partir de leur vie comme époux et comme parents.
+
+Dans leur vie, ainsi que dans celle de tant d'autres couples d'époux qui accomplissent chaque jour avec dévouement leurs tâches de parents, on peut contempler la révélation sacramentelle de l'amour du Christ pour l'Eglise. En effet, les époux, « *en accomplissant leur mission conjugale et familiale avec la force de ce sacrement, pénétrés de l'Esprit du Christ qui imprègne toute leur vie de foi, d'espérance et de charité, parviennent de plus en plus à leur perfection personnelle et à leur sanctification mutuelle ; c'est ainsi qu'ensemble, ils contribuent à la glorification de Dieu* » ( *Gaudium et spes*, n. 48).
+
+Chères familles, nous avons aujourd'hui une confirmation singulière du fait que le chemin de sainteté accompli ensemble, comme couple, est possible, beau, extraordinairement fécond et qu'il est fondamental pour le bien de la famille, de l'Eglise et de la société.
+
+Cela nous invite à invoquer le Seigneur, pour que soient toujours plus nombreux les couples d'époux en mesure de faire transparaître, dans la sainteté de leur vie, le « *grand mystère* » de l'amour conjugal, qui tire son origine de la création et qui s'accomplit dans l'union du Christ avec l'Eglise (cf. *Ep* 5, 22-23).
+
+4. Chers époux, comme tout chemin de sanctification, le vôtre n'est pas facile non plus. Chaque jour, vous affrontez des difficultés et des épreuves pour être fidèles à votre vocation, pour cultiver l'harmonie conjugale et familiale, pour accomplir la mission de parents et pour participer à la vie sociale.
+
+Sachez chercher dans la Parole de Dieu la réponse aux nombreuses interrogations que la vie quotidienne vous pose. Dans la deuxième lecture, saint Paul nous a rappelé que « *toute Ecriture est inspirée de Dieu et utile pour enseigner, réfuter, redresser, former à la justice* » (2 *Tm* 3, 16). Soutenus par la force de cette parole, vous pourrez insister ensemble avec vos enfants « *à temps et à contretemps* », en les admonestant et en les exhortant « *avec une patience inlassable et le souci d'instruire* » (2 *Tm* 4, 2).
+
+La vie conjugale et familiale peut également connaître des moments d'égarement. Nous savons que de nombreuses familles cèdent au découragement dans ces cas. Je pense, en particulier, à ceux qui vivent le drame de la séparation ; je pense à ceux qui doivent affronter la maladie et à ceux qui souffrent de la disparition prématurée de leur conjoint ou d'un enfant. Dans ces situations, on peut également apporter un grand témoignage de fidélité dans l'amour, rendu encore plus significatif par la purification à travers le passage dans le creuset de la douleur.
+
+5. Je confie toutes les familles éprouvées à la main providentielle de Dieu et aux soins pleins d'amour de Marie, modèle sublime d'épouse et de mère, qui connut bien la souffrance et la fatigue de suivre le Christ jusqu'au pied de la Croix. Très chers époux, ne vous laissez jamais vaincre par le découragement :  la grâce du sacrement vous soutient et vous aide à élever sans cesse les bras vers le ciel comme Moïse, dont nous a parlé la première Lecture (cf. *Ex* 17, 11-12). L'Eglise est proche de vous et vous aide par sa prière, en particulier dans les moments difficiles.
+
+Dans le même temps, je demande à toutes les familles de soutenir à leur tour les bras de l'Eglise, afin qu'elle ne vienne jamais à manquer à sa mission d'intercéder, de consoler, de guider et d'encourager. Chères familles, je vous remercie pour le soutien que vous m'apportez, également à moi, dans mon service à l'Eglise et à l'humanité. Chaque jour, je prie le Seigneur afin qu'il aide de nombreuses familles blessées par la misère et par l'injustice et qu'il fasse croître la civilisation de l'amour.
+
+6. Très chers amis, l'Eglise a confiance en vous, pour affronter les défis qui l'attendent en ce nouveau millénaire. Parmi les voies de sa mission, « *la famille est la première et la plus importante* » ( *Lettre aux Familles*, n. 2); l'Eglise compte sur elle, l'appelant à être « *un sujet actif d'évangélisation et d'apostolat* » ( *ibid*., n. 16).
+
+Je suis certain que vous serez à la hauteur de la tâche qui vous attend, en tout lieu et en chaque circonstance. Chers époux, je vous encourage à assumer pleinement votre rôle et vos respon-sabilités. Renouvelez en vous-mêmes l'élan missionnaire, en faisant de vos foyers des lieux privilégiés pour l'annonce et l'accueil de l'Evangile, dans un climat de prière et dans l'exercice concret de la solidarité chrétienne.
+
+Que l'Esprit Saint, qui a comblé le coeur de Marie afin que, dans la plénitude des temps, elle conçoive le Verbe de la vie et qu'elle l'accueille en même temps que son époux Joseph, vous soutienne et vous fortifie. Qu'il comble vos coeurs de joie et de paix, afin que vous sachiez rendre louange chaque jour au Père céleste, dont découle toute grâce et bénédiction.
+
+Amen !

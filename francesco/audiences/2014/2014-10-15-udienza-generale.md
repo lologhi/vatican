@@ -1,0 +1,25 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Place Saint-Pierre*
+
+*Mercredi 15 octobre 2014*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_POBOWN8E)**
+
+*Chers frères et sœurs, bonjour.*
+
+Ces derniers temps, nous avons parlé de l’Église, de notre sainte Mère l’Église hiérarchique, le peuple de Dieu en marche. Aujourd’hui, nous voulons nous demander : à la fin, qu’en sera-t-il du peuple de Dieu ? Qu’en sera-t-il de chacun de nous ? Que devons-nous nous attendre ? L’apôtre Paul réconfortait les chrétiens de la communauté de Thessalonique, qui se posaient les mêmes questions, et après son explication, ils disaient ces paroles qui sont parmi les plus belles du Nouveau Testament : « Ainsi, nous serons pour toujours avec le Seigneur » (1 *Th* 4, 17). Ce sont des paroles simples, mais d’un très grand contenu d’espérance ! Il est emblématique que dans le livre de l’Apocalypse, Jean, en reprenant l’intuition des prophètes, décrive la dimension ultime, définitive, dans les termes de la « Jérusalem nouvelle, je l’ai vue qui descendait du ciel, d’auprès de Dieu, prête pour les noces, comme une épouse parée pour son mari » ( *Ap* 21, 12). Voici alors ce qui nous attend ! Voici alors, qui est l’Église : c’est le peuple de Dieu qui suit le Seigneur Jésus et qui se prépare jour après jour à la rencontre avec lui, comme une épouse avec son époux. Ce n’est pas seulement une façon de parler : ce seront de véritables noces ! Oui, parce que le Christ, en se faisant homme comme nous et en faisant de nous tous un avec lui, avec sa mort et sa résurrection, nous a véritablement épousés et a fait de nous, en tant que peuple, son épouse. Et cela n’est autre que l’accomplissement du dessein de communion et d’amour tissé par Dieu au cours de toute l’histoire, l’histoire du peuple de Dieu et également l’histoire de chacun de nous. C’est le Seigneur qui accomplit cela.
+
+Il existe un autre élément, toutefois, qui nous réconforte encore plus et qui nous ouvre le cœur : Jean nous dit que dans l’Église, épouse du Christ, est rendue visible la « Jérusalem nouvelle ». Cela signifie que l’Église, outre l’épouse, est appelée à devenir cité, symbole par excellence de la coexistence et de la relation humaine. Qu’il est beau, alors, de pouvoir déjà contempler, selon une autre image très suggestive de l’Apocalypse, toutes les nations et tous les peuples rassemblés ensemble dans cette ville, comme dans une tente, « la tente de Dieu » (cf. *Ap* 21, 3) ! Et dans ce cadre glorieux, il n’y aura plus d’isolements, de malhonnêtetés ni de distinctions d’aucun genre — de nature sociale, ethnique ou religieuse — mais nous serons tous un dans le Christ.
+
+Face à ce scénario inouï et merveilleux, notre cœur ne peut manquer de se sentir profondément confirmé dans l’espérance. Voyez, l’espérance chrétienne n’est pas simplement un désir, un vœu, ce n’est pas de l’optimisme : pour un chrétien, l’espérance est attente, attente fervente, passionnée de l’accomplissement ultime et définitif d’un mystère, le mystère de l’amour de Dieu, dans lequel nous renaissons et dans lequel nous vivons déjà. Et il est attente de quelqu’un qui va arriver : c’est le Christ Seigneur qui se fait toujours plus proche de nous, jour après jour, et qui vient nous introduire enfin dans la plénitude de sa communion et de sa paix. L’Église a alors le devoir de maintenir allumée et bien visible la lampe de l’espérance, afin qu’elle puisse continuer de resplendir comme un signe certain de salut et qu’elle puisse illuminer pour toute l’humanité le chemin qui conduit à la rencontre avec le visage miséricordieux de Dieu.
+
+Chers frères et sœurs, voilà alors ce que nous attendons : que Jésus revienne ! L’Église épouse attend son époux ! Nous devons toutefois nous demander, avec une grande sincérité : sommes-nous véritablement des témoins lumineux et crédibles de cette attente, de cette espérance ? Nos communautés vivent-elles encore sous le signe de la présence du Seigneur Jésus et dans l’attente chaleureuse de sa venue, ou bien apparaissent-elles lasses, engourdies, sous le poids de la fatigue et de la résignation ? Courons-nous nous aussi le risque d’épuiser l’huile de la foi, et l’huile de la joie ? Faisons attention !
+
+Invoquons la Vierge Marie, Mère de l’espérance et Reine du ciel, pour qu’elle nous maintienne toujours dans une attitude d’écoute et d’attente, afin de pouvoir être d’ores et déjà empreints de l’amour du Christ et de prendre part un jour à la joie sans fin, dans la pleine communion de Dieu, et n’oubliez pas, n’oubliez jamais : « Ainsi, nous serons pour toujours avec le Seigneur » (1 *Th* 4, 17)».
+
+* * *
+
+Je salue cordialement les personnes de langue française, en particulier les pèlerins de Sées et de Cahors venus avec leurs évêques, ainsi que le collège Calvin, de Genève, et les Petites Sœurs de Jésus. Que votre pèlerinage à Rome vous aide à être des témoins chaleureux et authentiques de l’espérance et de la joie de la foi ! Que Dieu vous bénisse !

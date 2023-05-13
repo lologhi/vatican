@@ -1,0 +1,27 @@
+***MESSAGE******DU PAPE JEAN PAUL II******AUX PARTICIPANTS AU CONGRÈS SUR LE THÈME:***
+
+***"RÉGULATION NATURELLE DE LA FERTILITÉ ET***
+
+***CULTURE DE LA VIE"***
+
+*Mesdames et Messieurs !*
+
+1. Je suis heureux de vous faire parvenir une pensée cordiale à tous, participants au Congrès international sur le thème *« *Régulation naturelle de la fertilité et culture de la vie* »*, qui se déroule à Rome ces jours-ci. Je transmets à chacun mon salut affectueux. J'exprime ma profonde reconnaissance à ceux qui ont collaboré à la réalisation de cette initiative, et en premier lieu au Centre d'études pour la Régulation naturelle de la Fertilité, aux Facultés de Médecine et de Chirurgie des diverses Universités romaines, au Ministère italien de la Santé, à l'Institut italien de Médecine sociale et au Bureau pour la Pastorale universitaire du Vicariat de Rome.
+
+Cette rencontre aborde des thèmes actuels très intéressants pour le développement des rapports entre science et éthique. Le Magistère de l'Eglise a suivi avec une profonde sollicitude le développement de ce que nous pourrions appeler la culture de la procréation responsable, et a encouragé la connaissance et la diffusion des méthodes appelées « naturelles » de régulation de la fertilité. Mes vénérés prédécesseurs, de Pie XII à Paul VI, ont encouragé à plusieurs reprises la recherche dans ce domaine, précisément afin d'offrir des bases scientifiques toujours plus solides pour une régulation des naissances qui respecte la personne et le dessein de Dieu sur le couple humain et sur la procréation. Ces dernières années, grâce à la contribution d'innombrables couples chrétiens dans beaucoup de régions du monde, les méthodes naturelles sont entrées dans l'expérience et dans la réflexion des groupes, des mouvements familiaux et des associations ecclésiales.
+
+2. Nous assistons aujourd'hui à la consolidation d'une mentalité qui, d'un côté, apparaît presque intimidée face à la responsabilité de la procréation et, de l'autre, voudrait dominer et manipuler la vie. Il est donc urgent d'insister sur une action culturelle qui aide à surmonter, dans ce domaine, les lieux communs et les mystifications, très souvent amplifiées par une certaine propagande. Dans le même temps, il faut développer une ample oeuvre éducative et de formation à l'égard des conjoints, des fiancés, des jeunes en général, ainsi que des agents sociaux et pastoraux pour illustrer de façon adéquate tous les aspects de la régulation naturelle de la fertilité dans ses fondements et dans ses motivations, ainsi que dans ses aspects pratiques.
+
+Les centres d'étude et d'enseignement de ces méthodes constitueront un soutien précieux à la maternité et à la paternité responsables, en oeuvrant afin que chaque personne, en commençant par l'enfant, soit reconnue et respectée pour elle-même, et que chaque choix soit animé et guidé par le critère du don sincère de soi.
+
+Il est clair que, lorsque l'on parle de régulation « naturelle », on ne parle pas seulement du seul respect du rythme biologique. Il s'agit, de façon beaucoup plus complexe, de répondre à la vérité de la personne dans son unité intime d'esprit, de psyché et de corps, unité qui ne peut jamais être réduite à un simple ensemble de mécanismes biologiques. Ce n'est que dans le contexte de l'amour réciproque, total et sans réserve des conjoints, que peut être vécu dans toute sa dignité l'événement de donner la vie, auquel est lié l'avenir même de l'humanité. C'est pourquoi, non seulement les médecins et les chercheurs, mais également les agents pastoraux et les Autorités politiques sont à juste titre appelés à offrir, chacun dans leur domaine respectif de compétence, leur contribution responsable à un événement aussi fondamental.
+
+3. Le fait que le Congrès soit promu par des Facultés de Médecine m'offre l'occasion de souligner de façon particulière le rôle des médecins dans ce domaine délicat. Je voudrais renouveler ici l'expression de l'estime que l'Eglise nourrit depuis toujours à l'égard de ceux qui, dans le monde de la santé, s'efforcent d'être cohérents avec leur vocation de serviteurs de la vie. Je pense en particulier aux hommes et aux femmes de science qui, illuminés par la foi, se consacrent à la recherche et à la diffusion des méthodes naturelles de régulation de la fertilité, en promouvant dans le même temps une éducation aux valeurs morales que suppose le recours à de telles méthodes. Le rôle et la responsabilité des Universités apparaissent décisives pour la promotion de programmes de recherches dans ce domaine, ainsi que pour la formation de futurs professionnels capables d'aider les jeunes et les couples à accomplir des choix  toujours plus conscients et responsables.
+
+Je souhaite que cette rencontre puisse marquer une étape supplémentaire sur ce chemin, en offrant un approfondissement complet du thème sous ses divers aspects scientifiques, culturels, psycho-sociaux et de formation. Elle ne manquera pas d'offrir l'opportunité d'une mise à jour sur la situation de l'enseignement des méthodes naturelles au niveau mondial, et en particulier dans les Facultés européennes de Médecine.
+
+En assurant chacun des participants au Congrès de ma proximité spirituelle, je souhaite le plus grand succès à ces journées d'étude si intenses. Avec ces sentiments, tandis que j'invoque sur les travaux l'assistance spéciale de la Très Sainte Vierge Marie, je donne volontiers à chacun une Bénédiction apostolique particulière.
+
+*Du Vatican, le 28 janvier 2004*
+
+**IOANNES PAULUS II**

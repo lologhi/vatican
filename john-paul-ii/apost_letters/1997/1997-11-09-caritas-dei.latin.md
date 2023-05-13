@@ -1,0 +1,27 @@
+**IOANNES PAULUS PP. II**
+
+**LITTERAE** **APOSTOLICAE**
+
+***CARITAS DEI***
+
+VENERABILI DEI SERVAE MARIAE VINCENTIAE A SANCTA
+
+DOROTHEA CHÁVEZ OROZCO BEATORUM HONORES DECERNUNTUR
+
+Ad perpetuam rei memoriam. - « Caritas Dei diffusa est in cordibus nostris per Spiritum Sanctum, qui datus est nobis »( *Rom* 5, 5). Dei caritatis praeclarum templum fuit humile forteque Matris Vincentiae a Sancta Dorothea cor, quae Christo colendo ac laudando sese addixit, Evangelii semitas cum decurreret itemque misericordiae opera cum faceret pro iis qui potissimum a Domino diliguntur, qui sunt aegroti, pauperes, maerentes. Haec languentis humanitatis benefica mulier die VI mensis Februarii anno MDCCCLXVII in Mexico orta est, in oppido Cotija provinciae Michoacan, parentibus Aloisio Chávez et Benigna Iesu Orozco, humilibus coniugibus ac ferventibus fidelibus, qui eidem Baptismatis fonte auctoratae nomen Dorotheam indiderunt. Puella et adulescens vitam in recessu exegit, Dei Ecclesiaeque leges servans ac simul sui spiritalis aedificii fundamenta iaciens, quod in Dei voluntate tenenda innitebatur. Guadalaiarae, quam eius familia petiverat, sese Deo devovere aegrotisque inservire decrevit. Anno ideo MDCCCXCII ut aegrotorum ministra Sanctissimae Trinitatis paroeciale valetudinarium ingressa est. Inibi, complures post difficultates et vicissitudines, orta est Congregatio Ancillarum a Sanctissima Trinitate et a Pauperibus, cuius Venerabilis Dei Serva habita est conditrix. Anno MCMX vota temporalia professa est, nomen sibi adiciens Sororem Mariam Vincentiam a Sancta Dorothea. In religiosa familia officia singulari praestantia sustinuit. Magistra namque fuit noviciarum, antistita magni valetudinarii Zapotlán El Grande atque ex anno MCMXIII generalis antistita. Anno MCMXV vota sollemnia nuncupavit. Eius regimen spiritalibus fructibus caritatisque operibus eminuit ac simul offensionibus aerumnisque, quas ipsa remisso animo toleravit. Apud crucem suam consecrationem studiose coluit, Dei gloriam et Ecclesiae, pauperum, aegrotorum suique Instituti bonum usque persequendo, quod Domino favente ac prudenter Conditrice moderante, celeriter increvit. Peculiari cura sui Instituti Sorores doctrina, scriptis, suae vitae exemplo, coluit. Regulam votaque religiosa servavit, quod socias etiam docuit. Scripsit : « Tria vota religiosa fiunt perfectum holocautoma omnium rerum quae haberi possunt : per paupertatis votum extraria fortunae bona, castitate personalia corporis bona et oboedientia intima animae bona postferuntur, ideo anima religiosa in vita consecrata virginitatis simul et martyrii palmam consequi potest ». His effatis fidelis, vitam suam Deo proximoque devovit. Atque id perseveranter magnaque cum fiducia de Dei auxilio fecit, quod per fructuosam celebrationum liturgicarum participationem, Dei verbi meditationem, assiduam precationem, ferventem Passionis Iesu, Eucharistiae Redemptorisque Matris devotionem, missionis Ecclesiae coniunctionem, mereri studuit. Novissimis suae vitae annis, cum iam generalis antistitae haud gereret officium, sese impensius precationi et contemplationi addixit atque ita se ad Dominum conveniendum comparavit, qui ad se die XXX mensis Iulii anno MCMXLIX eam vocavit.
+
+Sanctitatis fama, qua vivens fruebatur, post eius mortem perstitit, ideo Archiepiscopus Guadalaiarensis anno MCMLXVI Beatificationis Canonizationisque Causam incohavit. A iure praescriptis perfectis rebus, Nobis coram, die XXI mensis Decembris anno MCMXCI, decretum prodiit, quo declaravimus Dei Servam heroum in modum virtutes theologales, cardinales hiisque adnexas exercuisse. Die VII mensis Iulii anno MCMXCVII decretum evulgatum est super miraculum, intercessioni eiusdem venerabilis adscriptum. Statuimus igitur ut Beatificationis ritus Romae celebraretur die IX mensis Novembris eiusdem anni.
+
+Hodie igitur, in foro ad Vaticanam Basilicam Sancti Petri spectante, inter Missarum sollemnia hanc ediximus formulam : Nos, vota Fratrum Nostrorum Ludovici Pápai, Episcopi Iauriensis, Luciani Monari, Episcopi Placentini-Bobiensis, et Ioannis Cardinalis Sandoval Íñiguez, Archiepiscopi Guadalaiarensis, necnon plurimorum aliorum Fratrum in episcopatu multorumque christifidelium explentes, de Congregationis de Causis Sanctorum consulto, auctoritate Nostra Apostolica facultatem facimus ut Venerabiles Servi Dei Guillelmus Apor, Ioannes Baptista Scalabrini et Maria Vincentia a Sancta Dorothea Chávez Orozco Beatorum nomine in posterum appellentur, eorumque festum : Guillelmi Apor die vicesima tertia Maii, Ioannis Baptistae Scalabrini die prima Iunii et Mariae Vincentiae a Sancta Dorothea Chávez Orozco die undevicesima Iulii in locis et modis iure statutis quotannis celebrari possit. In nomine Patris et Filii et Spiritus Sancti ».
+
+Eximia haec mulier claras dedit religiosae pietatis operumque bonorum testificationes, quae totam suam vitam Deo omnino addixit idque ceteras sorores docuit. Exoptamus igitur ut salutifera Domini dona et Evangelii beneficia non modo sorores ipsae verum et homines complures affatim adipiscantur eiusdem incitati exemplo.
+
+Quae autem his Litteris decrevimus nunc et in posterum rata et firma esse volumus, contrariis rebus minime obstantibus.
+
+*Datum Romae, apud Sanctum Petrum, sub anulo Piscatoris, die IX mensis Novembris, anno MCMXCVII, Pontificatus Nostri vicesimo.*
+
+*De mandato Summi Pontificis*
+
+ANGELUS card. SODANO
+
+© Copyright 1997 - Libreria Editrice Vaticana

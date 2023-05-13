@@ -1,0 +1,31 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***LORS DE LA VISITE DU PRÉSIDENT DES ÉTATS-UNIS,***
+
+***S.E. M. GEORGES WALKER BUSH***Castel Gandolfo -  Lundi 23 juillet 2001*
+
+*Monsieur le Président,*
+
+1. C'est avec beaucoup de plaisir que je vous accueille à l'occasion de votre première visite depuis votre élection à la présidence des Etats-Unis. Je salue chaleureusement votre épouse et les membres de votre entourage. Je forme des voeux sincères afin que votre présidence renforce l'engagement de votre pays en faveur des principes qui inspirent la démocratie américaine depuis ses débuts et soutiennent la nation dans sa croissance remarquable. Ces principes demeurent toujours aussi valables, au moment où vous affrontez les défis du nouveau siècle qui s'ouvre devant nous.
+
+Les pères fondateurs de votre nation, conscients des immenses ressources naturelles et humaines dont le Créateur a comblé votre pays, ont été guidés par un profond sens de responsabilité envers le bien commun, qui doit être poursuivi dans le respect de la dignité qui vient de Dieu et des droits inaliénables de tous. L'Amérique continue à se mesurer avec noblesse à sa vision fondatrice en édifiant une société de liberté, d'égalité et de justice régie par le droit. Au cours du siècle qui vient de s'achever, ces mêmes idéaux ont poussé le peuple américain à résister à deux systèmes totalitaires fondés sur une vision athée de l'homme et de la société.
+
+2. Au début du nouveau siècle, qui marque aussi le début du troisième millénaire du christianisme, le monde continue à se tourner vers l'Amérique avec espoir. Mais il le fait maintenant avec en plus la conscience de la crise des valeurs qui frappe la société occidentale, toujours plus fragile face aux décisions éthiques indispensables pour l'avenir de l'humanité.
+
+Au cours de ces derniers jours, l'attention du monde s'est concentrée sur le processus de mondialisation qui s'est tant accéléré au cours des dix dernières années et dont vous avez discuté à Gênes avec les autres responsables des pays industrialisés. Tout en appréciant les opportunités qu'offre ce processus pour la croissance économique et la prospérité matérielle, l'Eglise ne peut manquer d'exprimer sa préoccupation profonde pour le fait que notre monde continue d'être divisé, non plus entre les anciens blocs politiques et militaires, mais par une tragique ligne de partage entre ceux qui peuvent bénéficier de ces opportunités et ceux qui s'en voient privés. La révolution de la liberté, que j'évoquais devant les Nations unies en 1995, doit maintenant être suivie d'une révolution de l'opportunité, dans laquelle tous les peuples du monde contribuent activement à la prospérité économique et partagent ses fruits. Ceci requiert l'orientation de la part des nations dont les traditions religieuses et culturelles devraient rendre plus attentives à la dimension morale des problèmes posés.
+
+3. Le respect de la dignité humaine et la croyance en l'égale dignité de tous les membres de la famille humaine requièrent des politiques permettant à tous d'avoir accès aux moyens nécessaires pour améliorer leur vie, y compris en termes de technologies et de compétences liées au développement. Le respect pour la nature de la part de tous, une politique d'ouverture envers les migrants, l'annulation ou une réduction significative de la dette des nations les plus pauvres, la promotion de la paix par le dialogue et la négociation, la primauté du droit :  telles sont les priorités que les responsables des pays développés ne peuvent ignorer. Un monde global est d'abord un monde de solidarité! Du fait de l'importance de ses ressources, de ses traditions culturelles et de ses valeurs religieuses, l'Amérique a une responsabilité spéciale à cet égard.
+
+Le respect de la dignité humaine trouve l'une de ses expressions les plus élevées dans la liberté religieuse. Ce droit est le premier inscrit dans la Déclaration des Droits de votre pays et il est significatif que la promotion de la liberté religieuse continue d'être un objectif important de la politique américaine au sein de la Communauté internationale. Je suis heureux d'exprimer la gratitude de l'Eglise catholique tout entière pour l'engagement de l'Amérique à cet égard.
+
+4. Un autre secteur dans lequel les choix politiques et moraux ont les conséquences les plus importantes pour l'avenir de la civilisation est celui du respect du plus fondamental des droits de l'homme, le droit à la vie lui-même. L'expérience a déjà montré comment un tragique brouillage des consciences accompagne l'attaque contre la vie humaine innocente dans le sein maternel, conduisant au compromis et à l'acceptation d'autres maux tels que l'euthanasie, l'infanticide, et, plus récemment, de propositions visant à la création d'embryons humains pour la recherche, destinés à être détruits au cours du processus. Une société libre et vertueuse, telle que l'Amérique aspire à être, doit rejeter ces pratiques qui dégradent et violent la vie humaine à toutes ses étapes, de sa conception à sa mort naturelle. En défendant le droit à la vie, dans le droit et à travers une vigoureuse culture de la vie, l'Amérique peut montrer au monde le chemin d'un avenir véritablement humain dans lequel l'homme demeure le maître, et non le produit, de sa technologie.
+
+Monsieur le Président, alors que vous assumez les devoirs de vos hautes fonctions, auxquelles vous a appelé le peuple américain, je vous assure de mon souvenir dans mes prières. J'espère qu'au cours de votre mandat, votre pays continuera à se servir de son héritage et de ses ressources pour aider à édifier un monde dans lequel chaque membre de la famille humaine puisse croître et vivre d'une manière conforme à sa dignité innée. Avec ces sentiments, j'invoque cordialement sur vous et sur le bien-aimé peuple américain, les Bénédictions de sagesse, de force et de paix de Dieu.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.31 p.3.
+
+*La* *Documentation Catholique*  n.2255 p. 821-822.
+
+© Copyright 2001 - Libreria Editrice Vaticana

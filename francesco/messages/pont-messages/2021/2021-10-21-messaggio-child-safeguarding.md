@@ -1,0 +1,25 @@
+***MESSAGE DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU CONGRÈS*** ***« PROMOUVOIR* CHILD SAFEGUARDING *EN TEMPS DE COVID-19 ET APRÈS »***
+
+[Rome, 4 novembre 2021]
+
+___________________________________
+
+Je vous adresse mon salut à vous tous qui participez — en présentiel et en liaison — au Congrès « Promouvoir child safeguarding en temps de covid-19 et après », organisé par la Communauté Pape Jean XXIII avec l’Action catholique italienne et le Centre sportif italien, en collaboration avec le Centre pour la victimologie et la sécurité de l’université de Bologne.  Je salue avec gratitude les représentants du parlement européen et du parlement italien ainsi que d’autres institutions, en particulier de la police postale.
+
+Comme je l’ai dit dans la Lettre au Peuple de Dieu (20 août 2018), « considérant l’avenir, rien ne doit être négligé pour promouvoir une culture capable non seulement de faire en sorte que de telles situations ne se reproduisent pas mais encore que celles-ci ne puissent trouver de terrains propices pour être dissimulées et perpétuées ». Aujourd’hui, vous devez réfléchir ensemble et recueillir les fruits de deux années d’écoute, de recherche et de formation. Ce travail est parti « du bas », en tant qu’expression de la participation active du peuple de Dieu au chemin de conversion personnelle et communautaire. Un chemin que, en tant qu’Eglise, nous sommes appelés à accomplir tous ensemble, sollicités par la douleur et par la honte de n’avoir pas toujours été de bons gardiens dans la protection des mineurs qui nous étaient confiés dans nos activités éducatives et sociales.
+
+Ce processus de conversion exige l’urgence d’une  formation renouvelée de tous ceux qui revêtent des res-ponsabilités éducatives et prêtent service dans des secteurs  au contact de mineurs, dans l’Eglise, dans la société, dans la famille.  Ce n’est qu’ainsi, à travers une action systématique d’alliance préventive, qu’il sera possible de déraciner la culture de mort que comporte toute forme d’abus, sexuel, de conscience, de pouvoir.
+
+Si l’abus est un acte de trahison de la confiance, qui condamne à mort celui qui le subit et provoque des fissures profondes dans le contexte dans lequel il se produit, la prévention doit être un parcours permanent de promotion d’une confiance toujours renouvelée et certaine envers la vie et l’avenir, sur laquelle les mineurs doivent pouvoir compter. Et nous, en tant qu’adultes, nous sommes appelés à leur garantir cela, en redécouvrant la vocation d’« artisans de l’éducation » et en nous efforçant d’y être fidèles.  Cela signifie favoriser l’expression des  talents de ceux que nous accompagnons ; respecter leurs temps, leur liberté et leur dignité; lutter par tous les moyens contre les tentations de séduction et d’incitation, qui ne peuvent qu’en apparence faciliter les relations avec les jeunes générations.
+
+Je me tourne avec confiance et espoir, en particulier, vers les nombreux jeunes qui ont été formés dans le cadre de votre projet. Ce sont eux en particulier qui nous demandent d’accomplir des pas décisifs de renouveau face aux blessures des abus provoquées chez les jeunes de leur âge. Il me vient à l’esprit l’expression de saint Paul vi : « Des jeunes apôtres des jeunes » (cf. Exhort. apost. *Evangelii nuntiandi*, 72), et je pense qu’elle peut s’appliquer également dans ce sens, comme proximité spirituelle et solidaire.  De plus, la contribution des jeunes sera précieuse pour reconnaître les situations à risque et pour rappeler avec courage toute la communauté à sa responsabilité en matière de  protection des mineurs, et à revoir ses rapports avec les  jeunes générations, afin que que l’on puisse à nouveau leur garantir la beauté de se rencontrer, de dialoguer, de jouer et de rêver.
+
+Aux adultes qui ont accompli ce parcours avec les jeunes, je souhaite de continuer à être crédibles, c’est-à-dire responsables dans le soin et cohérents dans le témoignage. Puissent-ils être des promoteurs et des gardiens d’une alliance éducative renouvelée entre les générations et entre les divers milieux de croissance des mineurs, capables de stimuler un lien génératif et protecteur entre eux, surtout en cette période complexe de pandémie.
+
+Enfin, en tant qu’associations laïques, je vous exhorte à persévérer dans cette action de formation à la coresponsabilité, au dialogue et à la transparence. Que la protection des mineurs soit toujours plus concrètement une priorité ordinaire dans l’action éducative de l’Eglise ; qu’elle promeuve un service ouvert, fiable et reconnu, fermement opposé à toute forme de domination, de violation de l’intimité et de silence complice.
+
+Chers frères et sœurs, je vous souhaite un congrès fructueux, qui constitue une base solide pour poursuivre ensemble le service aux enfants et aux jeunes, aux familles et à toute la communauté ecclésiale et civile. Je vous assure de ma prière  et je vous bénis de tout cœur.
+
+*Fait à Rome, à  Saint-Jean-de-Latran, le 21 octobre 2021.*

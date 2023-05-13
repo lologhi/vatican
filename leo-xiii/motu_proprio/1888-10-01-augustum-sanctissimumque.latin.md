@@ -1,0 +1,23 @@
+MOTU PROPRIO
+
+***AUGUSTUM SANCTISSIMUMQUE****
+
+SANCTISSIMUS D. N. LEO XIII LEGES CONSTITUIT
+
+NOVAS PRO ORDINANDA BIBLIOTHECA VATICANA ET OFFICIA EORUM,
+
+QUI EIDEM PRAESUNT VEL MINISTRANT
+
+**Augustum sanctissimumque munus**, quo romani Pontifices funguntur, maxime postulare ab iis videbatur, ut, quanto plura possent, monumenta litterarum colligerent, in quibus essent varii ingeniorum velut descripti cursus et a quibus praeteritorum temporum sapientia ac multiplicis eruditionis documenta, tamquam e perenni fonte, peti possent. Itaque peropportune providentissimeque decessores Nostri Bibliothecam in ipsis aedibus pontificalibus suo et Apostolicae Sedis paratam usui, exquisitis omnium disciplinarum voluminibus magno studio et ingenti sumptu locupletandam curaverunt. Pari consilio, nimirum ut ex tanta librorum suppellectile maiores usque in Ecclesiae commoda fructus caperentur, Nos quidem vel ab ipsis Pontificatus exordiis cogitationes cürasque Nostras in Bibliothecam vaticanam contulimus. Cumque Nobis gnarum esset, scite graviterque plura statuta fuisse ad illius tutelam ornatumque a praedecessoribus Nostris inclytae recordationis Xisto V, Clemente XII, Benedicto XIV, Clemente XIII et Pio IX, eorum ingressi vestigia, cavimus ut ea servarentur : et per constitutionem Nostram motu proprio editam quinto Idus Septembresanno 1878 normas praescripsimus, quibus custodiae decorique eius plenius prospectum fuit, aucto officiorum numero, dataque scientiae cupidis copia commodius eam adeundi celebrandique. Nihilosecius resedit in animo Nostro cupido maius aliquid praestandi, quod honori esset Ecclesiae, sanaeque doctrinae utilitati et incremento, scilicet Nos haud latebat, ferri passim nostra aetate homines studio infiammato ad historicas disquisitiones, ac pervestigandas intimas rerum gestarum causas, eoque studio abuti religionis hostes ut offundant lumini historiae tenebras, eamve mendacio contaminent, ut fallacibus fabulis adiiciant fidem, demum ut calumnias insontibus inferant, virosque omnem promeritos posteritatis laudem in contemptum et invidiam adducant. Sane ad has fraudes evertendas nihil aptius ac validius est, quam in aprico posita factorum veritas, ineluctabilibus testata monumentis litterarum et artium.
+
+Quum ingens eorum copia suppetat in Vaticana Bibliotheca, merito censuimus eo clarius lumen firmiusque praesidium ex illa peti posse ad tuendam rem catholicam, ad profligandos errores, quo largius instrueretur XIII subsidiis omnibus ac ministeriis, quibus efficitur nequid inconditum aut incompositum in ea sit, atque eruditis maximae praebentur opportunitates , quo facilior sit thesaurorum id genus exploratio. Quum itaque id animo intenderemus, novas statuimus iubere leges de ordinanda Bibliotheca, deque officiis eorum qui ei praesunt vel ministrant, easque complexi Constitutione Nostra Motu proprio edita die 20 Kalendas Aprilis anno 1885 servari ad tempus praecepimus experiendi causa. Iamvero triennium et amplius periculo facto, multa ex iis probavit experientia, nonnulla immutari suasit. Quibus sic uti opus erat emendatis, memoratas leges confirmamus et sancimus Pontificia auctoritate Nostra, vimque legis perpetuae obtinere iubemus ex die ipsa his Litteris Nostris adscripta.
+
+Decernimus autem et expresse declaramus praesentes Litteras semper firmas, validas et efficaces existere et fore, suosque plenarios et integros effectus sortiri, quamvis non fuerint exhibitae, vel regestis exceptae in actis Camerae, aliisve Officii Apostolici ; non obstante Pii IV Constitutione *de non registrandis*, aliisque contrariis quibuscumque. Volumus insuper earumdem Litterarum triplex exemplar fieri, quorum alterum custodiri iubemus in Archivio Abbreviatoris Nostri de Curia, alterum in tabulario Praefecturae Pontificalis Domus, tertium in peculiari Grrammatophylacio Bibliothecae vaticanae. Committimus autem Cardinali S. R. E. Bibliothecam, et mandamus omnibus qui in Vaticana Bibliotheca officia gerunt, ut praedictis legibus pro sua quisque parte fideliter pareant, easque sedulo curent servari Ceterum Nobis tantum et Nostris Successoribus *pro tempore* specialiter et directe facultatem reservamus subrogandi derogandique iis legibus si quid eiusmodi varia temporum ratio, rerumve adiuncta postulaverint ; nec non facultatem dirimendi dubitationes omnes et difficultates, quas circa earum significationem vel usum, quum factis aptantur, suboriri contigerit.
+
+*Datum Romae apud Sanctum Petrum die 1 Octobris an. 1888, Pontificatus Nostri Undecimo.*
+
+**LEO PP. XIII**
+
+*** * ***
+
+**AAS*, vol. XXI (1888), pp. 193-194.

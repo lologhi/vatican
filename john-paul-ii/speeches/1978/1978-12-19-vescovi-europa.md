@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AU CONSEIL DES CONFÉRENCES ÉPISCOPALES D'EUROPE (CCEE)***
+
+*Mardi 19 décembre 1978*
+
+*Chers frères,*
+
+Je suis très heureux de vous recevoir, car j’attribue une grande importance à ces réunions plénières de votre Conseil, auxquelles participent des Evêques délégués par chacune des Conférences épiscopales de l’ensemble du continent européen.
+
+1. Cette collaboration s’effectue conformément aux statuts qui ont été canoniquement approuvés par le Saint-Siège, le 10 janvier 1977. Elle consiste à échanger régulièrement des informations, des expériences et des points de vue sur les principaux problèmes pastoraux qui se posent dans vos pays. Elle vous amène aussi à assumer ensemble des devoirs qui prennent une dimension européenne.
+
+C’est l’une des façons d’incarner la collégialité dans le cadre de laquelle l’enseignement du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) peut porter tous ses fruits. La collégialité signifie ouverture réciproque et coopération fraternelle des Evêques au service de l’évangélisation, de la mission de l’Eglise. Une ouverture et une coopération de ce genre sont nécessaires, non seulement au niveau des Eglises locales et de l’Eglise universelle, mais aussi au niveau des continents, comme en témoignent la vitalité d’autres organismes régionaux – même si les statuts sont un peu différents – tels que le Conseil Episcopal Latino-Américain (CELAM), le Symposium des Conférences Episcopales d’Afrique et de Madagascar (SCEAM) ou la Fédération des Conférences des Evêques d’Asie (FABC), pour ne citer que ces grandes Assemblées. Le Pape et le Saint-Siège se font un devoir de promouvoir de tels organismes, aux divers échelons de coopération collégiale, étant entendu que les instances régionales ou continentales ne se substituent pas à l’autorité de chaque Evêque ni de chacune des Conférences épiscopales pour ce qui est des décisions, et qu’elles situent leur recherche dans le cadre des orientations plus générales du Saint-Siège, en liaison étroite avec le Successeur de Pierre. Et dans le cas présent, la dimension européenne apparaît au Pape très importante et même nécessaire.
+
+2. Le Conseil des Conférences Episcopales d’Europe (CCEE), parmi ses nombreux échanges et activités, a pris une initiative importante : il organise, tous les trois ans un symposium des Evêques d’Europe. Le symposium prévu pour cette année n’a pu avoir lieu à cause de la mort de mes deux prédécesseurs et des conclaves qui ont suivi ; la préparation se poursuit sur le thème : la jeunesse et la foi. C’est un thème très important : il faut l’aborder avec beaucoup d’objectivité et avec l’espérance des apôtres qui savent que le message du Christ peut et doit toucher les jeunes de chaque génération.
+
+J’ai eu la chance de participer au Symposium de 1975 et d’y prononcer une conférence. Je désire rappeler au moins quelques-unes des pensées qu’avait alors exprimées [Paul VI](http://www.vatican.va/holy_father/paul_vi/index_fr.htm) en nous recevant. Il s’agissait de pensées regardant l’Europe, son héritage chrétien et son avenir chrétien. Il nous invitait à « réveiller l’âme chrétienne de l’Europe où s’enracine son unité » ; à purifier et à ramener à leur source les valeurs évangéliques encore présentes mais comme désarticulées, axées sur des objectifs purement terrestres ; à réveiller et fortifier les consciences à la lumière de la foi prêchée à temps et à contre temps ; à faire converger leur flamme par dessus toutes les barrières...
+
+[Paul VI](http://www.vatican.va/holy_father/paul_vi/index_fr.htm), dans la ligne de ces pensées, a établi saint Benoît comme patron de l’Europe, et désormais, le quinzième centenaire de la naissance de ce grand saint se fait proche.
+
+3.L’Europe n’est pas le premier berceau du christianisme. Même Rome a reçu l’Evangile grâce au ministère des Apôtres Pierre et Paul, qui sont venus ici de la patrie de Jésus-Christ. Mais, de toute façon, il est vrai que l’Europe est devenue, durant deux millénaires, comme le lit d’un grand fleuve où le christianisme s’est répandu, rendant fertile la terre de la vie spirituelle des peuples et des nations de ce continent. Et sur cette lancée, l’Europe est devenue un centre de mission qui a rayonné vers les autres continents.
+
+Le Conseil des Conférences épiscopales d’Europe constitue une représentation particulière des Episcopats catholiques de l’Europe. Nous devons souhaiter que tous les Episcopats soient pleinement représentés dans cette organisation, avec la possibilité d’y participer effectivement. C’est seulement dans ces conditions que l’analyse des problèmes essentiels de l’Eglise et du christianisme peut être complète. Il s’agit bien des problèmes de l’Eglise et du christianisme, abordés aussi dans une perspective œcuménique. Car s’il est vrai que toute l’Europe n’est pas catholique, elle est presque toute chrétienne. Votre Conseil doit devenir en quelque sorte la pépinière où s’exprime, se développe et mûrit, non seulement la conscience de ce que le christianisme était hier, mais la responsabilité de ce qu’il doit être demain.
+
+C’est dans ces sentiments que je vous présente mes vœux de Noël et du nouvel An, à l’intention de chacun d’entre vous, de votre Conseil, de tous les Episcopats que vous représentez et de toutes les nations de ce continent, auquel la Providence a lié l’histoire du christianisme d’une façon aussi éloquente.
+
+© Copyright 1978 - Libreria Editrice Vaticana

@@ -1,0 +1,41 @@
+[MESSE ET BÉNÉDICTION DES PALLIUMS POUR LES NOUVEAUX MÉTROPOLITES\
+\
+EN LA SOLENNITÉ DES SAINTS APÔTRES PIERRE ET PAUL](https://www.vatican.va/news_services/liturgy/libretti/2021/20210629-libretto-santi-pietro-paolo.pdf)
+
+***HOMÉLIE DU PAPE FRANÇOIS***
+
+*Basilique vaticane*
+
+*Mardi, 29 juin 2021*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/6/29/pietroepaolo.html)]**
+
+_____________________
+
+Deux grands Apôtres, Apôtres de l’Evangile, et deux colonnes portantes de l’Eglise : Pierre et Paul. Nous fêtons aujourd’hui leur mémoire. Regardons de près ces deux témoins de la foi : au centre de leur histoire, ce n’est pas la bravoure, mais au centre c’est la rencontre avec le Christ qui a changé leur vie. Ils ont fait l’expérience d’un amour qui les a guéris et libérés et c’est pourquoi ils sont devenus apôtres et ministres de libération pour les autres.
+
+*Pierre et Paul sont libres seulement parce qu’ils ont été libérés.*
+
+Arrêtons-nous sur ce point central.
+
+Pierre, le pêcheur de Galilée, a été tout d’abord libéré du sentiment d’inaptitude et de l’amertume de l’échec, et cela s’est produit grâce à l’amour inconditionnel de Jésus. Bien que pêcheur expérimenté, il a expérimenté plusieurs fois, au cœur de la nuit, le goût amer de la défaite de n’avoir rien pêché (cf. *Lc* 5, 5 ; *Jn* 21, 5) et, devant les filets vides, il a eu la tentation de tirer les rames dans la barque ; bien que fort et impétueux, il s’est souvent laissé prendre par la peur (cf. *Mt* 14, 30) ; bien que disciple passionné du Seigneur, il a continué à raisonner selon le monde sans parvenir à comprendre et accueillir la signification de la Croix du Christ (cf. *Mt* 16, 22) ; bien que se disant prêt à donner sa vie pour lui, il a suffi qu’il se sente soupçonné d’être des siens pour s’effrayer au point de renier le Maître (cf. *Mc* 14, 66-72).
+
+Pourtant, Jésus l’a aimé gratuitement et a misé sur lui. Il l’a encouragé à ne pas abandonner, à jeter encore les filets à la mer, à marcher sur les eaux, à regarder avec courage sa faiblesse, à le suivre sur la voie de la croix, à donner sa vie pour ses frères, à paître ses brebis. Il l’a ainsi libéré de la peur, des calculs basés sur les seules sécurités humaines, des soucis mondains, en lui donnant le courage de tout risquer, et la joie de se sentir pêcheur d’hommes. Il l’a appelé lui à confirmer dans la foi ses frères (cf. *Lc* 22, 32). Il lui a donné – nous l’avons entendu dans l’Evangile – les clefs pour ouvrir les portes qui conduisent à la rencontre avec le Seigneur et le pouvoir de lier et de délier : de lier les frères au Christ et de délier les nœuds et les chaînes de leur vie (cf. *Mt* 16, 19).
+
+Tout cela a été possible seulement parce que – comme nous l’a raconté la première lecture – Pierre a d’abord été libéré. Les chaînes qui le retenaient prisonnier ont été brisées et, comme cela s’était produit dans la nuit de la libération des Israélites de l’esclavage d’Égypte, il lui a été demandé de se lever rapidement, de mettre sa ceinture et de s’attacher les sandales pour sortir. Et le Seigneur ouvre grand les portes devant lui (cf. *Ac* 12, 7-10). C’est une nouvelle histoire d’ouverture, de libération, de chaînes brisées, de sortie de la prison qui enferme. *Pierre fait l’expérience de la Pâque : le Seigneur l’a libéré*.
+
+L’Apôtre Paul a également expérimenté la libération du Christ. Il a été libéré de l’esclavage le plus oppressant, celui de son moi, et de Saul, nom du premier roi d’Israël, il est devenu Paul qui signifie “petit”. Il a également été libéré du zèle religieux qui l’avait rendu acharné à soutenir les traditions reçues (cf. *Ga* 1, 14) et violent dans la persécution des chrétiens. Il a été libéré. L’observance formelle de la religion et sa défense par l’épée tirée de la tradition, au lieu de l’ouvrir à l’amour de Dieu et des frères, l’avaient rendu rigide. Il était un fondamentaliste. Dieu l’a libéré de cela. Par contre, il ne lui a pas épargné de nombreuses faiblesses et difficultés qui ont rendu sa mission évangélisatrice plus féconde : les fatigues de l’apostolat, l’infirmité physique (cf. *Ga* 4, 13-14) ; les violences et les persécutions, les naufrages, la faim et la soif, et, comme il le raconte lui-même, une épine qui le tourmente dans la chair (cf. 2 *Co* 12, 7-10).
+
+Paul a ainsi compris que « Dieu a choisi ce qu’il y a de faible dans le monde pour couvrir de confusion ce qui est fort » (1 *Co* 1, 27), que nous pouvons tout en lui qui nous donne force (cf. *Ph* 4, 13), que rien ne peut jamais nous séparer de son amour (cf. *Rm* 8, 35-39). C’est pourquoi, à la fin de sa vie – la Deuxième Lecture nous l’a raconté – Paul peut dire : « Le Seigneur, lui, m’a assisté » (2 *Tm* 4, 17) et « il m’arrachera encore à tout ce qu’on fait pour me nuire » (2 *Tm* 4, 18). *Paul a fait l’expérience de la Pâque : le Seigneur l’a libéré.*
+
+Chers frères et sœurs, l’Eglise regarde ces deux géants de la foi et voit deux Apôtres qui ont libéré la puissance de l’Evangile dans le monde, uniquement parce qu’ils ont d’abord été libérés par la rencontre avec le Christ. Il ne les a pas jugés, il ne les a pas humiliés, mais il a partagé leur vie avec affection et proximité, en les soutenant de sa prière et, parfois, en les reprenant pour les provoquer au changement. A Pierre, Jésus dit tendrement : « J’ai prié pour toi, afin que ta foi ne défaille pas » ( *Lc* 22, 32) ; il demande à Paul : « Saul, Saul, pourquoi me persécuter ? » ( *Ac* 9, 4). Jésus fait de même avec nous : il nous assure de sa proximité en priant pour nous et en intercédant auprès du Père ; et il nous reproche avec douceur quand nous faisons erreur, afin que nous puissions trouver la force de nous relever et de reprendre le chemin.
+
+Touchés par le Seigneur, nous sommes libérés nous aussi. Et nous avons toujours besoin d’être libérés, car seule une Eglise libre est une Eglise crédible. Comme Pierre, nous sommes appelés à être libres du sentiment de défaite face à notre pêche parfois faible ; libres de la peur qui nous immobilise et nous rend craintifs, en nous enfermant dans nos sécurités et en nous ôtant le courage de la prophétie. Comme Paul, nous sommes appelés à être libres des hypocrisies de l’apparence ; libres de la tentation de nous imposer par la force du monde plutôt que par la faiblesse qui fait place à Dieu ; libres d’une observance religieuse qui nous rend rigides et inflexibles ; libres des liens ambigus avec le pouvoir et de la peur d’être incompris et attaqués.
+
+Pierre et Paul nous livrent l’image d’une Eglise remise entre nos mains, mais conduite par le Seigneur avec fidélité et tendresse – c’est lui qui conduit l’Eglise -  ; une Eglise faible, mais forte de la présence de Dieu ; l’image d’une Eglise libérée qui peut offrir au monde cette libération qu’il ne peut pas se donner tout seul : la libération du péché, de la mort, de la résignation, du sens de l’injustice, de la perte de l’espérance qui avilit la vie des femmes et des hommes de notre temps.
+
+Demandons-nous aujourd’hui, dans cette célébration et ensuite, demandons-nous : nos villes, nos sociétés, notre monde, à quel point ont-ils besoin de libération ? Combien de chaînes doivent-elles être brisées et combien de portes fermées doivent-elles être ouvertes ! Nous pouvons être des collaborateurs de cette libération, mais seulement si nous nous laissons d’abord libérer par la nouveauté de Jésus, et si nous marchons dans la liberté de l’Esprit Saint.
+
+Aujourd’hui, nos frères Archevêques reçoivent le *pallium*. Ce signe d’unité avec Pierre rappelle la mission du pasteur qui donne sa vie pour le troupeau. C’est en donnant sa vie que le pasteur, libéré de lui-même, devient instrument de libération pour les frères. Aujourd’hui, la Délégation du Patriarcat œcuménique, envoyée en cette occasion par le cher frère Bartolomeo, est avec nous : votre présence appréciée est un précieux signe d’unité sur le chemin de libération des distances qui divisent scandaleusement ceux qui croient au Christ. Merci de votre présence.
+
+Nous prions pour vous, pour les pasteurs, pour l’Eglise, pour nous tous : afin que, *libérés* par le Christ, nous puissions être *des apôtres de libération* dans le monde entier.

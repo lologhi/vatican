@@ -1,0 +1,29 @@
+VOYAGE APOSTOLIQUE
+
+DU PAPE BENOÎT XVI
+
+EN POLOGNE
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***LORS DE LA CÉRÉMONIE D'ARRIVÉE***
+
+*Warszawa, Aéroport, Okęcie, 25 mai 2006*
+
+*Monsieur le Président,*
+
+*Mesdames et Messieurs,*
+
+*Messieurs les Cardinaux et chers frères dans l'épiscopat,*
+
+*Chers frères et soeurs dans le Christ,*
+
+Je suis heureux de pouvoir être aujourd'hui parmi vous sur la terre de la République polonaise. J'ai fortement désiré cette visite dans le pays et parmi le peuple dont était issu mon Prédécesseur, le Serviteur de Dieu Jean-Paul II. Je suis venu pour suivre ses traces sur l'itinéraire de sa vie, de son enfance jusqu'au départ pour le mémorable conclave de 1978. Sur ce chemin, je souhaite rencontrer et mieux connaître les générations de croyants qui l'ont offert au service de Dieu et de l'Eglise, et celles qui sont nées et ont mûri pour le Seigneur sous sa conduite pastorale de prêtre, d'Evêque et de Pape. Notre chemin commun se fera sous la devise :  « *Demeurez forts dans la foi* ». Je le rappelle dès le début pour affirmer qu'il ne s'agit pas simplement d'un voyage sentimental, même s'il est juste également de ce point de vue, mais d'un itinéraire de foi, inscrit dans la mission que m'a confiée le Seigneur à travers la personne de Pierre apôtre, qui fut appelé pour confirmer ses frères dans la foi (cf. *Lc* 22, 32). Je souhaite moi aussi puiser à la source abondante de votre foi, qui jaillit sans interruption depuis plus d'un millénaire.
+
+Je salue Monsieur le Président et je le remercie de tout coeur des paroles qu'il m'a adressées au nom des autorités de la République et de la nation. Je salue Messieurs les Cardinaux, les Archevêques et les Evêques. J'adresse également un salut à Monsieur le Premier ministre et à tout le gouvernement, aux représentants du Parlement et du Sénat, aux membres du Corps diplomatique et à son Doyen, le Nonce apostolique en Pologne. Je suis heureux de la présence des autorités régionales avec le Maire de Varsovie. Je souhaite adresser un salut également aux représentants de l'Eglise orthodoxe, de l'Eglise évangélique d'Augsbourg et des autres Eglises et Communautés ecclésiales. Je le fais également à l'égard de la communauté juive et des fidèles de l'islam. Je salue enfin de tout coeur toute l'Eglise qui est en Pologne :  les prêtres, les personnes consacrées, les élèves des Séminaires, tous les fidèles, et surtout les malades, les jeunes et les enfants. Je vous demande de m'accompagner par la pensée et par la prière, afin que ce voyage soit fécond pour nous tous et nous conduise à l'approfondissement et au renforcement de notre foi.
+
+J'ai dit que l'itinéraire de mon chemin lors de ce voyage en Pologne est marqué par les traces de la vie et du service pastoral de Karol Wojtyla et par l'itinéraire qu'a parcouru le Pape, pèlerin dans sa patrie. Ainsi ai-je choisi de m'arrêter principalement dans deux villes très chères à Jean-Paul II :  la capitale de la Pologne, Varsovie, et son siège archiépiscopal, Cracovie. A Varsovie, je rencontrerai les prêtres, avec les différentes Eglises et communautés ecclésiales non catholiques, ainsi que les autorités de l'Etat. J'espère que ces rencontres porteront des fruits abondants pour notre foi commune dans le Christ et pour les réalités sociales et politiques au sein desquelles vivent les hommes et les femmes d'aujourd'hui. Une brève étape est prévue à Czestochowa, ainsi qu'une rencontre avec les représentants des religieux et des religieuses, avec les séminaristes et avec les membres des mouvements ecclésiaux. Le regard bienveillant de Marie accompagnera notre recherche commune d'un lien profond et fidèle avec le Christ, son Fils. Enfin, je m'arrêterai à Cracovie, pour pouvoir, de là, me rendre à Wadowice, à Kalwaria, à Lagiewniki, à la Cathédrale de Wawel. Je sais bien que ce sont les lieux les plus chers à Jean-Paul II, parce qu'ils sont liés à sa croissance dans la foi et à son service pastoral. Je rencontrerai également les malades et les personnes qui souffrent sur le lieu sans doute le plus approprié pour un rendez-vous avec eux - le Sanctuaire  de la Divine Miséricorde à Lagiewniki. Je ne pourrai pas manquer d'être présent lorsque les jeunes se réuniront pour la veillée de prière. C'est avec plaisir que je serai avec eux et j'espère pouvoir profiter du témoignage de leur foi jeune et vigoureuse. Dimanche, nous nous retrouverons sur le pré des Blonia pour célébrer la Messe solennelle d'action de grâce pour le pontificat de mon bien-aimé Prédécesseur et pour la foi dans laquelle il nous a toujours confirmés par la parole et par l'exemple de sa vie. Enfin, je me rendrai à Auschwitz. Là, j'espère rencontrer tout d'abord les survivants parmi les victimes de la terreur nazie, venant de diverses nations, qui ont souffert de la tragique oppression. Nous prierons tous ensemble afin que les plaies du siècle dernier guérissent grâce aux remèdes que le Dieu de bonté nous indique en nous appelant au pardon réciproque, et qu'il nous offre dans le mystère de sa miséricorde.
+
+*« *Demeurez forts dans la foi* »* - telle est la devise de ce voyage apostolique. Je voudrais tant que ces journées nous renforcent tous dans la foi - les fidèles de l'Eglise qui est en Pologne et moi-même. Pour ceux qui n'ont pas la grâce de la foi, mais nourrissent dans leur coeur la bonne volonté, que ma visite soit un temps de fraternité, de bienveillance et d'espérance. Ces valeurs éternelles de l'humanité constituent un fondement solide pour créer un monde meilleur, où chacun puisse trouver la prospérité matérielle et le bonheur spirituel. Tel est mon voeu pour tout le peuple polonais. En vous remerciant encore une fois, Monsieur le Président et l'épiscopat polonais pour votre invitation, j'embrasse cordialement tous les Polonais et je leur demande de m'accompagner par la prière sur ce chemin de foi.
+
+© Copyright 2006 - Libreria Editrice Vaticana

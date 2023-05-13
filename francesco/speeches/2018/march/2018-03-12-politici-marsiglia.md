@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX ÉLUS DE LA RÉGION PROVENCE-ALPES-CÔTE-D'AZUR***
+
+*Salle Clémentine*
+
+*Lundi 12 mars 2018*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/3/12/politici-marsiglia.html)]**
+
+* * *
+
+*Mesdames et Messieurs,*
+
+Conduits par Mgr Georges Pontier et les Evêques de la Province de Marseille, vous accomplissez *un voyage au cœur de l’Église catholique*, à la découverte du travail qui se fait ici à Rome. En vous remerciant d’avoir accepté de vivre cette démarche, je suis heureux de vous saluer cordialement et de pouvoir m’adresser à vous.
+
+La proposition qui vous a été faite par les Evêques témoigne de l’estime de l’Église catholique pour l’engagement politique quand il est porté par la volonté de créer les conditions favorables d’un *vivre ensemble*, respectueux des différences, attentif aux situations de précarité, aux personnes les plus fragiles. Dans vos territoires, comme en tant d’autres lieux, vous êtes confrontés à des problèmes qui constituent pour vous, dans l’exercice de votre mission, comme autant de défis. De fait, « la grandeur politique se révèle, quand dans les moments difficiles, on œuvre pour les grands principes et en pensant au bien commun à long terme » ( [*Laudato Si’*, n.178](http://w2.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html#178.)). L’histoire de vos régions, fortement marquées par la dimension méditerranéenne, atteste de la richesse des diversités qui sont de réelles potentialités au plan humain, économique, social, culturel et aussi religieux. Il est d’autant plus important, sur les bases des principes de subsidiarité et de solidarité, dans un grand effort de dialogue politique et de création de consensus, qu’on aye à cœur de rechercher le développement intégral de tous (Cf. [*Evangelii gaudium*, n.240](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#4._Le_dialogue_social_comme_contribution_à_la_paix)). Dans cette perspective, les valeurs de liberté *,* d’égalité, defraternité, constituent un repère et un horizon pour l’exercice de vos responsabilités. Face aux questions de société, il est aussi nécessaire devenir les promoteurs d’un véritable débat sur des valeurs et des orientations reconnues communes à tous. A ce débat, les chrétiens sont appelés à participer avec les croyants de toutes les religions et tous les hommes de bonne volonté, en vue de favoriser le développement *d’une culture de la rencontre*.
+
+Dans ce sens, que votre désir de servir le bien commun vous conduise à tout mettre en œuvre pour construire des ponts entre les hommes diversement situés au plan social, économique, culturel et religieux, ainsi qu’entre les différentes générations. Je vous encourage à être aussi des créateurs de liens entre les espaces urbains et ruraux, entre le monde étudiant et le monde professionnel, pour que le dynamisme de vos territoires soit toujours enrichi des différents spécificités. Enfin, vous êtes appelés à chercher toujours à vous faire proches des autres, et plus particulièrement, des personnes en situation de précarité ; à ne vous résigner jamais à *la disparité sociale*, *racine des maux de la société*, mais à promouvoir *une conversion écologique intégrale* au service de la sauvegarde *de notre maison commune*. Je pense aussi aux migrants et aux réfugiés qui ont fui leurs pays à cause de la guerre, de la misère, de la violence et à ce qui a déjà été fait pour leur venir en aide. Il s’agit de persévérer dans la recherche de moyens compatibles avec le bien de tous, *pour les accueillir, les protéger, promouvoir leur développement humain intégral dans la société et les intégrer*(Cf. *Message pour la Journée mondiale de la Paix,* 1er janvier 2018). Ainsi on peut contribuer à l’édification d’une société plus juste, plus humaine et plus fraternelle.
+
+Je confie votre démarche au Christ, source de notre espérance et de notre engagement au service du bien commun. J’appelle sur vous, sur vos familles, sur votre pays, ainsi que sur les Evêques qui vous accompagnent la bénédiction du Seigneur. Merci.

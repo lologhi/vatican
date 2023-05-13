@@ -1,0 +1,43 @@
+[VOYAGE APOSTOLIQUE DU SAINT-PÈRE\
+\
+EN LITUANIE, LETTONIE ET ESTONIE](http://w2.vatican.va/content/francesco/fr/travels/2018/outside/documents/papa-francesco-paesi-baltici_2018.html)
+
+[22-25 SEPTEMBRE 2018]
+
+**MESSE**
+
+***HOMÉLIE DU PAPE FRANÇOIS***
+
+*Sanctuaire de la Mère de Dieu**d'Aglona (Lettonie)*
+
+*Lundi 24 septembre 2018*
+
+[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2018/9/24/messa-aglona-lettonia.html)**]
+
+* * *
+
+Nous pourrions bien dire que ce que Saint Luc raconte au début du Livre des Actes des Apôtres se répète aujourd’hui ici : nous sommes intimement unis, assidus à la prière et en compagnie de Marie, notre Mère (cf. 1, 10). Aujourd’hui faisons nôtre la devise de cette visite “ *Montre-toi Mère !*”, montre en quel endroit tu continues à chanter le *Magnificat,* en quelsendroits se trouve ton Fils crucifié, pour trouver à ses pieds ta ferme présence.
+
+L’Evangile de Jean rapporte seulement deux moments où la vie de Jésus croise celle de sa Mère : les noces de Cana (cf. 2, 1-12) et celui que nous venons juste de lire, Marie au pied de la croix (cf. 19, 25-27). Il semblerait que l’évangéliste ait pris de l’intérêt à nous montrer la Mère de Jésus dans ces situations de vie apparemment opposées : la joie d’un mariage et la douleur de la mort d’un fils. Tandis que nous pénétrons dans le mystère de la Parole, elle nous montre quelle est la Bonne Nouvelle que le Seigneur veut aujourd’hui partager avec nous.
+
+La première chose que l’Evangéliste fait remarquer est que Marie se tient “debout” à côté de son Fils. Ce n’est pas une manière légère de se tenir, ni fuyante et encore moins pusillanime. Elle est, avec fermeté, “clouée” au pied de la croix, exprimant par la posture de son corps que rien ni personne ne pourrait la déplacer de ce lieu. Marie *se montre* en premier lieu ainsi : à côté de ceux qui souffrent, de ceux que le monde entier fuit, de ceux aussi qui sont poursuivis en justice, condamnés par tous, déportés. Ils ne sont pas seulement opprimés ou exploités, mais ils sont directement “hors du système”, aux marges de la société (cf. Exhort. ap. [*Evangelii gaudium* n. 53](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#Non_à_une_économie_de_l’exclusion)). Avec eux, il y a aussi la Mère, clouée avec eux sur cette croix de l’incompréhension et de la souffrance.
+
+Marie *nous montre* aussi une manière de se tenir à côté de ces réalités ; il ne s’agit pas de faire une promenade ou une brève visite, et ce n’est pas non plus un “tourisme solidaire”. Il faut que ceux qui souffrent réellement nous sentent à leurs côtés et de leur côté, de manière ferme, stable ; tous les rejetés de la société peuvent faire l’expérience de cette Mère délicatement proche, parce que les plaies ouvertes de son Fils Jésus demeurent en celui qui souffre. Elle l’a appris au pied de la croix. Nous aussi, nous sommes appelés à “toucher” la souffrance des autres. Allons à la rencontre de notre peuple pour le consoler et l’accompagner ; n’ayons pas peur d’expérimenter la force de la tendresse et de nous impliquer et de nous compliquer la vie pour les autres (cf. [*ibid* n. 270](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#Le_plaisir_spirituel_d’être_un_peuple)). Et comme Marie, restons fermes et debout : avec le cœur tourné vers Dieu et courageux, relevant celui qui est tombé, réconfortant la personne humble, aidant à mettre fin à n’importe quelle situation d’oppression qui les fait vivre comme des crucifiés.
+
+Marie est appelé par Jésus à accueillir le disciple aimé comme son fils. Le texte nous dit qu’ils étaient ensemble, mais Jésus s’aperçoit que cela ne suffit pas, qu’ils ne se sont pas accueillis l’un l’autre. Parce qu’on peut rester à côté de très nombreuses personnes, on peut aussi partager la même habitation, le quartier ou le travail ; on peut partager la foi, contempler et jouir des mêmes mystères, mais ne pas accueillir, ne pas accepter l’autre avec amour. Combien de conjoints pourraient raconter l’histoire de leur manière d’être proches mais pas ensemble ; combien de jeunes sentent avec souffrance cette distance par rapport aux adultes ; combien de personnes âgées se sentent assistées froidement mais pas soignées ni accueillies avec amour.
+
+Il est vrai que, parfois, lorsque nous nous sommes ouverts aux autres, cela nous a fait très mal. Il est vrai aussi que, dans nos réalités politiques, l’histoire de l’affrontement entre les peuples est encore douloureusement fraîche. Marie *se montre* comme une femme ouverte au pardon, qui met à part les rancœurs et les méfiances ; elle renonce à récriminer sur ce qui “aurait pu être” si les amis de son Fils, si les prêtres de son peuple ou si les gouvernants s’étaient comportés d’une autre façon, elle ne se laisse pas vaincre par la frustration et par l’impuissance. Marie croit en Jésus et accueille le disciple, parce que les relations qui nous guérissent et nous libèrent sont celles qui nous ouvrent à la rencontre et à la fraternité avec les autres, parce qu’elles découvrent dans l’autre Dieu lui-même (cf. [*ibid.* n. 92](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#Oui_aux_relations_nouvelles_engendrées_par_Jésus_Christ)). Monseigneur Slokans, qui repose ici, une fois arrêté et envoyé au loin, écrivait à ses parents : « Je vous demande du fond du cœur : ne permettez pas à la vengeance ou à l’exaspération de se faire un chemin dans votre cœur. Si nous le permettions, nous ne serions pas de vrais chrétiens, mais des fanatiques ». En des temps où semblent revenir des mentalités qui nous invitent à nous méfier des autres, qui avec des statistiques veulent nous démontrer que nous serions mieux, nous aurions plus de prospérité, il y aurait plus de sécurité, si nous étions seuls, Marie et les disciples de ces terres nous invitent à accueillir, à parier de nouveau sur le frère, sur la fraternité universelle.
+
+Mais Marie *se montre* aussi comme la femme qui se laisse accueillir, qui accepte humblement de devenir une part des biens du disciple. Durant ce mariage qui était resté sans vin, avec le danger de finir plein de rites mais aride d’amour et de joie, ce fut elle qui ordonna qu’ils fassent ce qu’il leur aurait dit (cf. *Jn* 2, 5). Maintenant, comme disciple obéissante, elle se laisse accueillir, elle se déplace, elle s’adapte au rythme du plus jeune. L’harmonie coûte toujours lorsque nous sommes différents, lorsque les années, les histoires et les circonstances nous donnent des manières de sentir, de penser et de faire, qui à première vue semblent opposées. Lorsque nous écoutons avec foi le commandement d’accueillir et d’être accueillis, il est possible de construire l’unité dans la diversité, car les différences ne nous freinent pas ni ne nous divisent, mais nous sommes capables de regarder au-delà, de voir les autres dans leur dignité la plus profonde, comme les enfants d’un même Père (cf. Exhort. ap. [*Evangelii gaudium* n. 228](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#L’unité_prévaut_sur_le_conflit)).
+
+Dans cette Eucharistie, comme dans chaque Eucharistie, nous faisons mémoire de ce jour-là. Au pied de la croix, Marie nous rappelle la joie d’avoir été reconnus comme ses enfants, et son Fils Jésus nous invite à l’emmener à la maison, à la mettre au centre de notre vie. Elle veut nous donner son courage, pour rester debout avec fermeté ; son humilité, qui lui permet de s’adapter à la situation propre à chaque moment de l’histoire ; et elle crie afin que, dans ce sanctuaire, nous nous engagions tous à nous accueillir sans discriminations, et que tous, en Lettonie, nous sachions que nous sommes prêts à privilégier les plus pauvres, à relever ceux qui sont tombés et à accueillir les autres comme ils arrivent et se présentent devant nous.
+
+* * *
+
+**A la fin de la Messe**
+
+*Chers frères et sœurs,*
+
+A la fin de cette célébration, je remercie votre Evêque pour les paroles qu’il m’a adressées. Et je veux dire merci de tout cœur à tous ceux qui, de diverses manières, ont collaboré à cette visite. En particulier, j’exprime une vive reconnaissance au Président de la République et aux Autorités du pays pour leur accueil.
+
+J’offre en hommage à la Sainte Mère de Dieu, en cette “terre mariale”, un Rosaire particulier : que la Vierge vous protège et vous accompagne toujours.

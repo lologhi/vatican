@@ -1,0 +1,27 @@
+[VISITE PASTORALE \
+\
+AUX DIOCÈSES DE CAMPOBASSO-BOIANO \
+\
+ET ISERNIA-VENAFRO](/content/francesco/fr/travels/2014/inside/documents/papa-francesco-molise-2014.html)
+
+**RENCONTRE AVEC LES DÉTENUS**
+
+***DISCOURS DU PAPE FRAN*** ***ÇOIS***
+
+*Maison d'arrêt**d'Isernia*
+
+*Samedi 5 juillet 2014*
+
+*Chers frères et sœurs, bon après-midi.*
+
+Je vous remercie de votre accueil. Et je vous remercie du témoignage d’espérance, que j’ai écouté dans les paroles de votre représentant. Dans le salut de la directrice également, j’ai été frappé par ce mot : espérance. Cela est un défi, comme je le disais il y a deux semaines à la maison d’arrêt de Castrovillari : le défi de la réinsertion sociale. Et c’est pour cette raison qu’il faut un parcours, un chemin, tant à l’extérieur, dans la prison, dans la société, qu’à l’intérieur de soi, dans la conscience et dans le cœur. Faire le chemin de réinsertion, que nous devons tous faire. Tous. Tous nous commettons des erreurs dans la vie. Et tous, nous devons demander pardon pour ces erreurs et faire un chemin de réinsertion, pour ne plus en commettre. Certains suivent cette route chez eux, dans leur métier ; d’autres, comme vous, dans une maison d’arrêt. Mais tous, tous... Celui qui dit qu’il n’a pas besoin de faire un chemin de réinsertion est un menteur ! Tous nous nous trompons dans la vie et nous sommes aussi tous pécheurs. Et quand nous allons demander pardon au Seigneur de nos péchés, de nos erreurs, Lui nous pardonne toujours, il ne se lasse jamais de pardonner. Il nous dit : « Fais demi-tour sur cette route, parce que cela ne fera pas de bien d’aller sur cette route-là». Et il nous aide. Et cela est la réinsertion, le chemin que tous nous devons faire.
+
+L’important est de ne pas stagner. Nous savons tous que quand l’eau stagne, elle croupit. Il y a un dicton espagnol qui dit : « L’eau qui stagne est la première à se corrompre ». Ne pas stagner. Nous devons marcher, faire un pas chaque jour, avec l’aide du Seigneur. Dieu est Père, il est miséricorde, il nous aime toujours. Si nous Le cherchons, Il nous accueille et nous pardonne. Comme je l’ai dit, il ne se lasse pas de pardonner. C’est la devise de cette visite : « Dieu ne se lasse pas de pardonner ». Il nous fait nous relever et nous restitue pleinement notre dignité. Dieu a de la mémoire, il n’est pas amnésique. Dieu ne nous oublie pas, il se souvient toujours. Il y a un passage de la Bible, du prophète Isaïe, qui dit : Même si une mère oubliait son fils — et c’est impossible — moi je ne t’oublierai jamais (cf. Is 49, 15). Et cela est vrai : Dieu pense à moi, Dieu se souvient de moi. Je suis dans la mémoire de Dieu.
+
+Et avec cette confiance, on peut marcher, jour après jour. Et avec cet amour fidèle qui nous accompagne, l’espérance ne déçoit pas. Avec cet amour, l’espérance ne déçoit jamais : un amour fidèle pour aller de l’avant avec le Seigneur. Certains pensent faire un chemin de punition, d’erreurs, de péchés et uniquement souffrir, souffrir, souffrir, souffrir... C’est vrai, c’est vrai, on souffre. Comme l’a dit votre compagnon, ici on souffre. On souffre à l’intérieur et on souffre aussi dehors, quand un homme voit que sa conscience n’est pas pure, qu’elle est sale, et qu’il veut la changer. Cette souffrance qui purifie, ce feu qui purifie l’or, c’est une souffrance avec une espérance. Il y a quelque chose de beau, quand le Seigneur nous pardonne, il ne nous dit pas : « Moi je te pardonne, débrouille-toi !». Non, Il nous pardonne, nous prend par la main et nous aide à aller de l’avant sur ce chemin de réinsertion, dans notre vie personnelle ainsi que dans la vie sociale. Cela, il le fait avec nous tous. Penser que l’ordre intérieur d’une personne se corrige uniquement «à coups de bâton » — je ne sais pas si on dit comme cela —, que l’on corrige uniquement par la punition, cela n’est pas de Dieu, c’est une erreur. Certains pensent : « Non, non, il faut punir davantage, davantage d’années, davantage !». Cela ne résout rien, rien ! Mettre les gens en cage parce que — excusez-moi le mot — uniquement parce que s’ils sont à l’intérieur, nous sommes en sécurité, cela n’est pas utile, ne nous aide pas. La chose la plus importante est ce que fait Dieu avec nous : il nous prend par la main et nous aide à aller de l’avant. Et cela s’appelle l’espérance ! Et avec cette espérance, avec cette confiance, on peut marcher jour après jour. Et avec cet amour fidèle, qui nous accompagne, l’espérance ne déçoit vraiment pas.
+
+Je vous remercie de l’accueil. Et je voudrais... j’ai envie de vous le dire maintenant, parce que je le sens toujours, même lorsque tous les 15 jours je téléphone à une prison de Buenos Aires, où il y a des jeunes et nous parlons un peu au téléphone. Je vous fais une confidence. Lorsque je rencontre l’un d’entre vous, qui est en maison d’arrêt, qui est en chemin vers la réinsertion, qui est enfermé, sincèrement je me pose cette question : pourquoi lui et pas moi ? Je le sens ainsi. C’est un mystère. Mais en partant de ce sentiment, de cette sensation je vous accompagne.
+
+Nous pouvons prier ensemble la Vierge, notre Mère, pour qu’elle nous aide, nous accompagne. Elle est la Mère. *Je vous salue Marie...*
+
+Et s’il vous plaît, priez pour moi ! Priez pour moi !

@@ -1,0 +1,49 @@
+VISITE PASTORALE AU KAZAKHSTAN
+
+RENCONTRE AVEC LES ORDINAIRES DE L'ASIE CENTRALE
+
+***DISCOURS DU PAPE JEAN PAUL II***
+
+*Astana - Nonciature Apostolique*
+
+*Dimanche 23 septembre 2001*
+
+*Très chers Evêques, Administrateurs apostoliques et Supérieurs des Missions « *sui iuris* » d'Asie centrale !*
+
+1. Je vous retrouve à nouveau avec une joie profonde, après la solennelle célébration eucharistique de ce matin sur la grande Place de la Mère Patrie. Je salue chacun de vous avec affection et je vous remercie pour le zèle et le sacrifice avec lesquels vous contribuez à la renaissance de l'Eglise dans ces vastes régions, situées à la frontières de deux continents.
+
+L'Eglise catholique n'est ici qu'une petite plante, mais riche d'espérance en raison de la confiance qu'elle nourrit dans la puissance de la grâce divine. Les longues années de la dictature communiste, au cours desquelles tant de croyants furent déportés dans les goulags construits dans cette région, ont semé souffrances et deuils. Combien de prêtres, de religieux et de laïcs ont payé par des souffrances inouïes et également au prix du sacrifice de leur vie, leur fidélité au Christ ! Le Seigneur a écouté la prière des martyrs, dont le sang a irrigué les sillons de votre terre. Encore une fois « *le sang des martyrs a été semence de chrétiens* » (cf. Tertullien, *Apol*. 50, 13). A partir de celui-ci, vos communautés chrétiennes ont germé, comme de nouveaux bourgeons, qui se tournent à présent avec confiance vers l'avenir.
+
+Le Christ, Bon Pasteur, vous répète, ainsi qu'au peuple qui est confié à vos soins pastoraux :  « *Sois sans crainte, petit troupeau, car votre Père s'est complu à vous donner le Royaume* » ( *Lc* 12, 32). Et il vous dit également, comme à Pierre :  « *Avance en eau profonde, et lachez vos filets pour la pêche* » ( *Lc* 5, 4). Il s'agit de la pêche de l'évangélisation, à laquelle nous sommes tous appelés. A nous aussi, comme aux Apôtres après sa résurrection, il nous commande :  « *Allez donc, de toutes les nations faites des disciples* » ( *Mt* 28, 19).
+
+2. L'histoire de la petite communauté chrétienne d'Asie centrale qui a survécu au communisme et sa situation actuelle, fortement minoritaire, font penser à la parabole évangélique du levain qui fermente la pâte (cf. *Mt* 13, 33). Le levain semble peu de chose, mais il possède la force de tout transformer. Telle est la conviction qui doit également animer votre action pastorale et soutenir la tâche difficile et exaltante de la plantatio Ecclesiae sur ces territoires, à nouveau ouverts à l'Evangile. Que les objectifs pastoraux prioritaires de votre mission apostolique soient de diffuser l'annonce évangélique, en vous engageant totalement, et de poursuivre sans répit la consolidation de l'organisation ecclésiale.
+
+La récente érection des Administrations apostoliques et des Missions « *sui iuris* », avec laquelle l'Eglise a acquis visibilité et consistance, constitue le début d'une saison d'évangélisation prometteuse. Je désire donc, chers Ordinaires, exprimer ma gratitude et mon admiration pour votre effort. Je remercie également les prêtres, les religieux et les religieuses, qui ont quitté leur patrie afin de se consacrer à la tâche missionnaire sur ces terres, dans un esprit d'authentique solidarité ecclésiale. Je forme le voeu que le généreux engagement ecclésial de chacun soit soutenu par la maturation d'une abondante moisson de bien. Très chers amis, que ne vous abandonne pas  non  plus la conscience d'être un signe de l'amour de Dieu parmi ces populations riches de traditions culturelles et religieuses séculaires.
+
+3. « *Aimez-vous les uns les autres* » est le thème de ma visite pastorale. Je vous adresse aujourd'hui cette invitation, au nom de notre Maître et Seigneur commun :  « *Aimez-vous les uns les autres* ». Ayez soin de conserver toujours entre vous cette unité que le Christ nous a laissée dans son testament (cf. *Jn* 17, 21.23).
+
+Comme aux débuts de l'annonce de l'Evangile, l'Eglise s'ouvrira une porte dans le coeur des hommes si elle apparaît comme une maison accueillante dans laquelle est vécue la communion fraternelle. Chers pasteurs de ces Eglises, soyez tout d'abord unis entre vous. Même si vous ne constituez pas encore une Conférence épiscopale à tous les effets, cherchez à réaliser par tous les moyens des formes de collaboration efficace, afin de valoriser au mieux chaque ressource pastorale.
+
+Dans cette oeuvre précieuse, vous êtes soutenus par la solidarité de l'Eglise universelle. Le Successeur de Pierre, qui vous embrasse aujourd'hui avec émotion, est à vos côtés. Même si vous êtes géographiquement éloignés, vous êtes dans le coeur du Pape qui apprécie votre travail apostolique difficile.
+
+4. Depuis dix ans, le Kazakhstan a conquis l'indépendance tant attendue. Mais comment ne pas tenir compte du climat d'affaiblissement des valeurs que le régime passé a laissé? Le long hiver de la domination communiste, qui prétendait déraciner Dieu du coeur de l'homme, a souvent porté atteinte aux contenus spirituels des cultures de ces peuples. On enregistre ainsi une pauvreté d'idéaux qui rend les personnes particulièrement vulnérables face aux mythes du consumérisme et de l'hédonisme importés d'Occident. Il s'agit de défis sociaux et spirituels, qui demandent un élan missionnaire courageux.
+
+Comme le rappelait mon vénéré prédécesseur, le serviteur de Dieu Paul VI, l'Eglise, appelée à évangéliser, « *commence par s'évangéliser elle-même* ». Communauté   d'espérance  vécue et transmise, elle « *a besoin d'écouter sans cesse [...] ses raisons d'espérer* ». Il ajoutait également qu'était nécessaire une « *Eglise qui s'évangélise par une conversion et une rénovation constantes, pour évangéliser le monde avec crédibilité* » ( *Evangelii nuntiandi*, n. 15).
+
+L'action missionnaire doit être précédée et accompagnée par une oeuvre incisive de formation, par une profonde expérience de prière, par des comportements empreints de fraternité et d'esprit de service. Vous devez déployer d'importants efforts apostoliques pour évangéliser les divers milieux dans lesquels s'expriment les traditions locales, en prêtant une attention particulière au monde universitaire et aux moyens de communication sociale. Ayez confiance dans le Christ ! Que sa présence vous rassure. Que sa promesse vous communique force et élan :  « *Et voici que je suis avec vous pour toujours jusqu'à la fin du monde* » ( *Mt* 28, 20).
+
+5. Pour mener à bien la mission qu'Il vous confie, prenez soin de la formation des candidats au sacerdoce et à la vie religieuse. Consacrez-vous avec amour aux prêtres, vos principaux collaborateurs, en les aidant et en les suivant d'un coeur paternel.
+
+A ce propos, je désire exprimer ma vive satisfaction pour la construction du séminaire de Karaganda, une promesse importante pour l'avenir. Unique séminaire de toute l'Asie centrale, il constitue un signe de la collaboration efficace entre vos Eglises. Mettez en oeuvre tous les efforts possibles afin qu'entre ses murs soit offerte aux candidats au sacerdoce une sérieuse formation humaine et spirituelle, ainsi qu'une solide préparation théologique et pastorale. Je souhaite de tout coeur que vous puissiez compter sur de bons éducateurs, professeurs confirmés et témoins exemplaires de l'Evangile.
+
+6. Réservez une place particulière à la formation et à l'apostolat des laïcs, en accueillant avec un discernement lumineux et une ouverture de coeur, aux côtés des associations les plus anciennes, ce don de l'Esprit à l'Eglise de l'après-Concile qui est constitué par les Mouvements ecclésiaux et par les nouvelles communautés.
+
+Leur présence, leur esprit d'initiative et les charismes spécifiques dont ils sont les porteurs, représentent une richesse à valoriser. Avec une grande sagesse pastorale, l'Evêque doit orienter et guider leur activité, en les invitant à aider les communautés ecclésiales dans le respect des structures existantes et de leur fonctionnement ordonné. A leur tour, les membres des Mouvements et des Associations, avec ouverture d'esprit et une docile disponibilité, doivent renouveler leur engagement à travailler en harmonie avec les pasteurs de ces jeunes Eglises. Leur travail au service de la nouvelle évangélisation deviendra ainsi un témoignage de l'amour réciproque qui naît de l'adhésion fidèle à l'unique et même Seigneur.
+
+7. Très chers frères, je désire enfin vous encourager à promouvoir le dialogue oecuménique. Votre action pastorale se déroule en contact étroit avec les frères de l'Eglise orthodoxe, qui partagent la même foi dans le Christ et la richesse d'une grande partie de la même tradition ecclésiale. Que les relations réciproques soient marquées par la cordialité et le respect, en souvenir de la parole du Seigneur :  « *Aimez-vous les uns les autres* ». A l'aube du nouveau millénaire, nous nourrissons plus vivement l'espérance que, même s'ils ne sont pas pleinement unis, les disciples du Christ pourront tout au moins être plus proches, également en vertu de l'expérience effectuée au cours du grand Jubilé de l'An 2000.
+
+Enfin, faites preuve de respect et entretenez le dialogue avec la communauté musulmane, avec ceux qui appartiennent à d'autres religions et ceux qui se disent non-croyants. Que tous puissent apprécier le don de votre foi vécue dans la charité et ouvrir leur coeur aux dimensions les plus élevées de la vie.
+
+Je confie votre mission pastorale à Marie, Etoile de l'évangélisation et Reine de la paix. Dans la cathédrale d'Astanà, vous la vénérez comme la Mère du Perpétuel Secours. Je dépose entre ses mains maternelles votre travail incessant, vos attentes et vos projets, afin qu'elle vous guide et vous soutienne à chaque pas.
+
+Avec ces sentiments, je donne de tout coeur à tous une Bénédiction apostolique spéciale, propitiatoire d'ardeur apostolique et de grâce pour vous et pour ceux qui sont confiés à vos soins pastoraux.

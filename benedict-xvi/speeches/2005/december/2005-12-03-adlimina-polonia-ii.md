@@ -1,0 +1,61 @@
+**DISCOURS** **DU PAPE BENOÎT XVI**
+
+**AUX ÉVÊQUES DE LA CONFÉRENCE ÉPISCOPALE**
+
+**DE POLOGNE (II GROUPE)**
+
+**EN VISITE « *AD LIMINA APOSTOLORUM* »**
+
+Samedi 3 décembre 2005
+
+*Chers frères dans le ministère épiscopal,*
+
+Je vous souhaite une cordiale bienvenue à tous. Je suis heureux de pouvoir accueillir le deuxième groupe d'Evêques polonais venus ici en visite « *ad limina Apostolorum* ».
+
+***1. La nouvelle évangélisation***
+
+Au cours de son premier pèlerinage en Pologne, Jean-Paul II a dit :  « *A partir de la croix à Nowa Huta la nouvelle évangélisation a commencé:  l'évangélisation du second Millénaire. Cette Eglise en rend témoignage et en est la preuve. Elle est issue d'une foi vive, consciente et responsable et il faut qu'elle continue à servir la foi. L'évangélisation du nouveau millénaire doit se référer à la Doctrine du Concile Vatican II. Elle doit être, comme l'enseigne ce Concile, une oeuvre commune des Evêques, des prêtres, des religieux et des laïcs, l'oeuvre des parents et des enfants* ».
+
+Ce fut l'une des premières interventions, si ce n'est la première, de mon grand Prédécesseur sur le thème de la nouvelle évangélisation. Il parla du deuxième millénaire, mais il ne fait aucun doute qu'il pensait désormais au troisième. Sous sa direction, nous sommes entrés dans ce nouveau millénaire du christianisme, en prenant conscience  de  la  constante  actualité de son exhortation à une nouvelle évangélisation. Il définissait l'objectif avec ces quelques mots :  réveiller une foi « *vivante, consciente et responsable* ». Par la suite, il affirma que cela devait être l'oeuvre commune des Evêques, des prêtres, des personnes consacrées et des laïcs.
+
+Chers frères, je voudrais aujourd'hui m'arrêter avec vous sur ce thème. Nous savons bien que le premier responsable de l'oeuvre de l'évangélisation est l'Evêque, sur les épaules duquel reposent *tria munera*:  prophétique, sacerdotal et pastoral. Dans son livre Levez-vous, allons !, en particulier dans les chapitres :  « Pasteur », « *Je connais mes brebis* » et « *L'administration des sacrements* », Jean-Paul II, se référant à sa propre expérience, traça le projet du chemin du ministère épiscopal afin qu'il porte de saints fruits. Il n'est pas nécessaire de citer ici en détail les passages de ses réflexions. Nous pouvons tous avoir recours au patrimoine qu'il nous a laissé, et puiser abondamment à son témoignage. Que son sens des responsabilités pour l'Eglise et pour les croyants confiés à la sollicitude de l'Evêque soit pour nous un modèle et un encouragement.
+
+***2. Les prêtres diocésains***
+
+Les premiers collaborateurs de l'Evêque dans l'accomplissement de ses tâches sont les prêtres ; c'est à eux, avant tout autre, que devrait s'adresser la sollicitude de l'Evêque. Jean-Paul II écrivait :  « *A travers son propre style de vie, l'Evêque montre que * »le modèle du Christ« * n'est pas dépassé et que, aujourd'hui encore, il reste toujours actuel. On peut dire qu'un diocèse reflète la façon d'être de son Evêque, dont les vertus - la chasteté, la pratique de la pauvreté, l'esprit de prière, la simplicité, la conscience sensible - s'inscrivent d'une certaine façon dans le coeur des prêtres. Ceux-ci, à leur tour, transmettent ces valeurs aux fidèles qui leur sont confiés, et c'est ainsi que des jeunes sont incités à donner une réponse généreuse à l'appel du Christ* » ( *ibid*., p. 101).
+
+L'exemple de l'Evêque est extrêmement important :  il ne s'agit pas seulement ici d'un style de vie irréprochable, mais également de sa sollicitude pleine d'attentions afin que les vertus chrétiennes, dont parla Jean-Paul II, pénètrent profondément dans l'âme des prêtres de son diocèse. C'est pourquoi l'Evêque devrait faire particulièrement attention à la qualité de la formation au séminaire. Il faut tenir compte non seulement de la préparation intellectuelle des futurs prêtres pour leurs tâches à venir, mais également de leur formation spirituelle et affective. Au cours du Synode de 1991, les Evêques exprimèrent la requête d'un plus grand nombre de pères spirituels dans les séminaires, qui soient bien préparés à exercer la tâche difficile de former les esprits et à s'assurer de la disponibilité affective des séminaristes à assumer les tâches sacerdotales. Il vaut la peine de revenir sur cette requête. Le document de la Congrégation pour l'Education catholique à propos de l'admission des candidats aux Ordres sacrés a récemment été publié. Je vous demande, chers frères, de mettre en application ce qui y est présenté.
+
+Il est important que le processus de formation intellectuelle et spirituelle ne se termine pas avec le séminaire. Une formation sacerdotale permanente est nécessaire. Je sais que dans les diocèses polonais, l'on attribue une grande importance à cet aspect. On organise des cours, des journées de retraite, des exercices spirituels et d'autres rencontres, au cours desquels les prêtres peuvent partager leurs problèmes et leurs succès pastoraux, se confirmant réciproquement dans la foi et dans l'enthousiasme pastoral. Je vous demande de continuer cette pratique.
+
+L'Evêque, pour sa part, en tant que pasteur, est appelé à entourer ses prêtres d'une attention paternelle. Il devrait organiser ses engagements de façon à avoir du temps pour ses prêtres, pour les écouter attentivement et pour les aider face aux difficultés. Dans le cas de crise de vocation, à laquelle les prêtres peuvent être sujets, l'Evêque devrait faire tout son possible pour les soutenir et leur redonner leur élan originel et leur amour pour le Christ et pour l'Eglise. L'amour paternel ne doit pas manquer, même lorsqu'une admonestation est nécessaire.
+
+Je rends grâce à Dieu pour qu'il continue à dispenser à la Pologne la grâce de nombreuses vocations. Chers frères, la région méridionale que vous représentez est, de ce point de vue, d'une richesse particulière. Ayant à l'esprit les immenses besoins de l'Eglise universelle, je vous prie d'encourager vos prêtres à entreprendre le service missionnaire, ou bien l'engagement pastoral dans les pays où le clergé est peu nombreux. Il semble qu'aujourd'hui cela constitue une tâche spécifique et même, d'une certaine façon, un devoir pour l'Eglise qui  est  en  Pologne. Toutefois, en envoyant les prêtres à l'étranger, en particulier dans les missions, n'oubliez pas de leur assurer un soutien spirituel et une aide matérielle suffisante.
+
+***3. Les Ordres religieux***
+
+Jean-Paul II écrivait :  « *Les Ordres religieux ne m'ont jamais rendu la vie difficile. J'ai eu de bonnes relations avec tous, reconnaissant en eux une aide précieuse pour la mission de l'Evêque. Je pense également à ces grandes réserves d'énergies spirituelles que sont les Ordres contemplatifs* » ( *Levez-vous, allons !*, p. 95).
+
+La diversité des charismes et des services qu'accomplissent les religieux et les religieuses, ou bien les membres des instituts laïcs de vie consacrée, est une grande richesse de l'Eglise. L'Evêque peut et doit les encourager à s'insérer dans le programme diocésain d'évangélisation et à assumer des tâches pastorales, conformément à leur charisme, en collaboration avec les prêtres et avec les communautés de laïcs. Les communautés religieuses et chaque consacré, bien que sujets à leurs propres supérieurs selon le droit, « *en ce qui concerne le soin des âmes, l'exercice public du culte divin et les autres oeuvres d'apostolat* » sont « *soumis au pouvoir des Evêques* » comme le dit le Code de Droit canonique (can. 678 1). En outre, le Code invite les Evêques diocésains et les Supérieurs religieux à procéder « *dans l'organisation des oeuvres d'apostolat des religieux... en agissant de concert* » (can. 678 3).
+
+Chers frères, je vous encourage vivement à entourer de votre attention les communautés religieuses féminines, qui se trouvent dans vos diocèses. Les soeurs qui effectuent différents services dans l'Eglise méritent le plus grand respect, et leur travail doit être reconnu et apprécié à sa juste valeur. Elles ne doivent pas être privées d'un soutien spirituel adapté et d'une possibilité de développement intellectuel et de croissance dans la foi.
+
+Je vous recommande de manière particulière d'avoir à coeur le sort des Ordres contemplatifs. Que leur présence dans le diocèse, leur prière et leurs renoncements constituent toujours pour vous un soutien et une aide. Quant à vous, cherchez à aller au-devant de leurs nécessités, même matérielles.
+
+Ces dernières années, on observe malheureusement une diminution des vocations religieuses, en particulier des vocations féminines. Il faut donc, avec les responsables supérieurs religieux, réfléchir sur les causes de cet état de fait et réfléchir à la façon dont on peut éveiller et soutenir de nouvelles vocations féminines.
+
+***4. Le laïcat***
+
+Les paroles de mon grand Prédécesseur nous introduisent dans la réflexion sur le rôle des laïcs dans l'oeuvre de l'évangélisation :  « *Les laïcs peuvent réaliser  leur  vocation  dans le monde et atteindre la sainteté non seulement en s'engageant activement en faveur des pauvres et des indigents, mais également en animant la société avec un esprit chrétien, à travers l'accomplissement de leurs devoirs professionnels et le témoignage d'une vie familiale exemplaire* » ( *Levez-vous, allons !*, p. 91).
+
+A une époque où - comme l'écrivait Jean-Paul II - « *la culture européenne donne l'impression d'une * »apostasie silencieuse« * de la part de l'homme comblé qui vit comme si Dieu n'existait pas* » ( *[Ecclesia in Europa](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_20030628_ecclesia-in-europa.html)*, n. 9), l'Eglise ne cesse d'annoncer au monde que Jésus Christ est son espérance. Dans cette oeuvre, le rôle des laïcs est irremplaçable. Leur témoignage de foi est particulièrement éloquent et efficace, car il est apporté dans la réalité quotidienne et dans les milieux auxquels un prêtre a difficilement accès.
+
+L'un des buts principaux de l'activité du laïcat est le renouvellement moral de la société, qui ne peut pas être superficiel, partiel et immédiat. Il devrait se caractériser par une profonde transformation de l'éthos des hommes, c'est-à-dire par l'acceptation d'une opportune hiérarchie des valeurs, selon laquelle doivent se former les comportements.
+
+La tâche spécifique du laïcat est la participation à la vie publique et à la vie politique. Dans l'Exhortation apostolique *[Christifideles laici](/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_30121988_christifideles-laici.html)*, Jean-Paul II rappela que « *tous et chacun ont le droit et le devoir de participer à la politique* » (n. 42). L'Eglise ne s'identifie avec aucun parti, avec aucune communauté politique, ni avec un système politique, elle rappelle en revanche toujours que les laïcs engagés dans la vie politique doivent donner un témoignage courageux et lisible des valeurs chrétiennes, qui doivent être affirmées et défendues lorsqu'elles sont menacées. Ils doivent le faire publiquement, que ce soit dans les débats à caractère politique ou dans les mass media. L'une des tâches importantes, dérivant du processus d'intégration européenne, est un engagement courageux pour conserver l'identité catholique des Polonais. Le dialogue établi par le laïcat catholique au niveau des questions politiques se démontrera efficace et servira le bien commun s'il possède à sa base :  l'amour de la vérité, l'esprit de service et la solidarité dans l'engagement en faveur du bien commun. Chers frères, je vous exhorte à soutenir ce service du laïcat, en respectant une juste autonomie politique.
+
+Je n'ai mentionné que quelques formes de l'engagement du laïcat dans l'oeuvre de l'évangélisation. Les autres, comme la pastorale de la famille, la pastorale des jeunes ou l'activité caritative,  constitueront  le thème d'une réflexion ultérieure au cours de la rencontre avec le troisième groupe d'Evêques polonais. Je souhaite à présent qu'une collaboration harmonieuse avec tous les états de vie dans l'Eglise, sous votre direction éclairée, produise des fruits de transformation du monde, dans l'esprit de l'Evangile du Christ.
+
+En confiant à la Vierge votre Ministère épiscopal, je vous bénis avec affection. Loué soit Jésus Christ !
+
+© Copyright 2005 - Libreria Editrice Vaticana

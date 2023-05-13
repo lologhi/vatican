@@ -1,0 +1,15 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***À LA CONFÉDÉRATION INTERNATIONALE DES CADRES***
+
+*Samedi 12 juin 1971*
+
+*Chers Messieurs,*
+
+En ce vingtième anniversaire de la « Confédération internationale des Cadres », dont Nous avons l’honneur de saluer le Président et les principaux dirigeants, votre « Commission pour la prévoyance sociale » s’est réunie à Rome pour étudier les problèmes de sécurité et de retraite propres aux cadres, et vous avez manifesté le désir de Nous rencontrer : c’est bien volontiers que Nous vous consacrons ces quelques instants.
+
+Sans entrer dans un domaine où Nous n’avons point de compétence propre, Nous comprenons et approuvons votre désir de mettre en œuvre, dans tous les pays du Marché commun, un régime particulier de pension pour les cadres, qui assure, à leur avenir et à celui de leur famille, des conditions de vie en rapport avec celles de leur vie active, d’une façon analogue à ce qui existe pour les autres catégories sociales.
+
+Par delà ce problème concret, Nous sommes heureux de souligner le rôle de votre Confédération. Cela n’échappe en effet à personne : aux côtés du monde ouvrier proprement, dit, la haute qualification des cadres et les responsabilités qui leur sont confiées leur permettent d’exercer un rôle de choix dans la modernisation et l’humanisation de l’entreprise, dans la préparation des techniciens dont l’économie aura besoin, dans l’élaboration et l’exécution des plans nationaux, dans l’adoption des mesures de coopération économique entre les pays de l’Europe et même avec les pays du Tiers-Monde. Par votre situation charnière dans l’entreprise, vous pouvez, Nous semble-t-il, établir ce pont si nécessaire entre des forces sociales trop souvent dressées les unes contre les autres (Cfr. Discours à l’O.I.T. à Genève, le 10 juin 1969, n. 15). Par votre compétence, vous pouvez faire prendre conscience, à tous les collaborateurs de la production industrielle, des conditions de viabilité et d’efficience dans la productivité dont on ne saurait faire fi sans grave dommage pour le bien commun. Enfin, en votre double qualité de responsables et d’employés, vous pouvez contribuer grandement à l’aménagement de l’économie, pour qu’elle devienne toujours plus au service de tous les travailleurs, et suscite leur participation active quelle que soit leur place dans l’entreprise et dans la société. C’est dire le haut service, qualifié et désintéressé, que l’on est aujourd’hui en droit d’attendre des cadres dans l’évolution actuelle des sociétés industrielles.
+
+En priant le Seigneur de vous guider dans cette voie que vous désirez faire vôtre, Nous vous assurons de Notre estime respectueuse comme de nos cordiaux encouragements. Et Nous implorons sur vous, sur vos familles et tous ceux qui vous sont chers, les Bénédictions abondantes du Dieu Tout-Puissant.

@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS À LA RENCONTRE POUR AUMÔNIERS ET BÉNÉVOLES***
+
+***DE L'APOSTOLAT DE LA MER - STELLA MARIS***
+
+*Salle Clémentine*
+
+*Jeudi 27 juin 2019*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/6/27/apostolato-delmare.html)]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je vous accueille avec plaisir, et je remercie le cardinal Turkson pour ses paroles d’introduction et pour vous avoir présenté, chers directeurs nationaux, aumôniers et bénévoles de *Stella Maris* - Apostolat de la Mer, à l’occasion de la rencontre qui s’est tenue ici à Rome ces jours derniers. Je souhaite à tous la bienvenue et je suis certain que votre réunion sera fructueuse.
+
+Votre rencontre a rassemblé des aumôniers et des bénévoles qui œuvrent dans les ports européens au service des marins et des pêcheurs, qui, à travers leur dur travail, nous apportent des produits dont nous avons besoin quotidiennement. L’apostolat de *Stella Maris* est actif dans plus de trois cents ports du monde entier, pour offrir une assistance spirituelle et matérielle à de nombreux marins, pêcheurs, et à leurs familles dispersées dans le monde entier.
+
+Avec plus de quatre-vingt dix pour cent du commerce mondial transporté par des navires de tout type, notre société dépend indiscutablement de l’industrie maritime. Sans les marins, l’économie mondiale s’arrêterait ; et sans les pêcheurs, de nombreuses régions du monde souffriraient de la faim. Je voudrais faire parvenir mon estime et mon encouragement aux marins et aux pêcheurs que vous rencontrez, dont un grand nombre travaillent, pendant de longues périodes, à des milliers de kilomètres de distance de leur pays et de leurs familles.
+
+La vie de marin ou de pêcheur n’est pas seulement marquée par l’isolement et par l’éloignement. Elle est parfois également blessée par des expériences honteuses d’abus et d’injustices ; par les pièges des trafiquants de personnes humaines ; par les chantages du travail forcé. D’autres fois, ils ne reçoivent pas le salaire qui leur est dû ou ils sont honteusement abandonnés dans des ports lointains. Outre les dangers de la nature — tempêtes et ouragans —, ils doivent affronter ceux des hommes, comme la piraterie ou les attaques terroristes. Ils sillonnent les océans et les mers du monde, en débarquant dans des ports où ils ne sont pas toujours bien accueillis.
+
+En tant qu’aumôniers et bénévoles de *Stella Maris*, vous a été confiée la mission d’être présents pour apporter la Bonne Nouvelle du Seigneur, dans le monde maritime disparate et multiforme. Vos visites quotidiennes sur les navires vous permettent de rencontrer les gens de mer dans leur réalité concrète, parfois sereine, parfois inquiétante, parfois angoissante. Alors, avec compassion et discrétion, vous leur donnez la possibilité d’ouvrir leur cœur, et cela est la première chose, très précieuse, surtout pour des personnes qui ont bien peu d’occasions de le faire. Votre service aux marins et aux pêcheurs consiste surtout à les écouter, à écouter leurs préoccupations matérielles et spirituelles. « L’écoute nous aide à découvrir le geste et la parole opportune qui nous secouent de la tranquille condition de spectateurs » (Exhort. ap. [*Evangelii gaudium*, n. 171](http://w2.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20131124_evangelii-gaudium.html#L’accompagnement_personnel_des_processus_de_croissance)).
+
+L’écoute conduit ensuite à l’action. Je vous encourage donc, ainsi que tous les aumôniers et les bénévoles de *Stella Maris*, à redoubler d’efforts pour affronter des questions qui sont trop souvent le résultat de l’avidité humaine. Je pense à la traite d’êtres humains, au travail forcé et à la violation des droits humains et du travail de nombreux hommes et femmes qui travaillent en mer. A travers votre service, vous pouvez contribuer à redonner à ces personnes le sens de leur dignité.
+
+Grâce à vous également, les personnes les plus vulnérables peuvent retrouver l’espérance d’un avenir meilleur. Votre engagement peut les aider à ne pas se rendre face à une vie précaire et parfois marquée par l’exploitation. Votre présence dans les ports, petits et grands, devrait déjà être en soi un rappel à la paternité de Dieu et au fait que devant Lui, nous sommes tous enfants et frères : un rappel à la valeur fondamentale de la personne humaine avant et au-dessus de tout intérêt ; et un encouragement à tous, à partir des plus pauvres, à s’engager pour la justice et le respect des droits fondamentaux. Rappelons-nous que « des hommes rendus nouveaux grâce à l’amour de Dieu sont en mesure de changer les règles et la qualité des relations, ainsi que les structures sociales : ce sont des personnes capables d'apporter la paix là où sont les conflits, de construire et de cultiver des rapports fraternels là où se trouve la haine, de chercher la justice là où domine l’exploitation de l’homme par l’homme. Seul l’amour est capable de transformer de façon radicale les rapports que les êtres humains entretiennent entre eux » ( *Compendium de la doctrine sociale de l’Eglise*, n. 4).
+
+Chers frères et sœurs, je vous exhorte à continuer avec dévouement et persévérance votre apostolat, en suivant les bons exemples des nombreuses personnes qui vous ont précédés. En effet, vous vous préparez à célébrer — l’an prochain — le centenaire de *Stella Maris*, à travers le 25e congrès mondial à Glasgow, en Ecosse, où cette mission est née dans les cœurs et dans les actions de certains laïcs. Ce centenaire sera l’occasion de faire mémoire, pour discerner le présent et pour tracer l’avenir. Le [Pape Pie XI](http://w2.vatican.va/content/pius-xi/fr.html) voulut que l’apostolat *Stella Maris* étende sa mission aux océans et aux rives de tous les continents. Que l’Esprit Saint, à travers l’intercession de Marie, Etoile de la Mer, renouvelle ce service pastoral selon les exigences de notre temps.
+
+Et avant de terminer, je voudrais dire un mot sur la paix des cœurs. De nombreux marins approcheront ou arriveront chez les aumôniers, les prêtres, avec des problèmes de conscience qui les font beaucoup souffrir, et qu’ils n’ont jamais eu la possibilité d’exprimer, dans ces circonstances, loin de chez eux, loin de leur pays, et dans ces situations que nous avons décrites. Sans doute un dialogue avec l’aumônier ouvre-t-il des horizons d’espérance. Je voudrais vous dire : soyez miséricordieux, soyez miséricordieux. Et pour favoriser cette miséricorde, j’accorde à tous les aumôniers des marins les mêmes facultés que celles que j’ai données aux missionnaires de la miséricorde. Ainsi, vous pourrez aider à apporter la paix dans de nombreux cœurs.
+
+Je vous donne de tout cœur la bénédiction apostolique et je vous prie de l’apporter aux personnes que vous rencontrez. Et, s’il vous plaît, n’oubliez pas de prier pour moi. Merci !

@@ -1,0 +1,19 @@
+***DISCOURS DU SAINT PÈRE***
+
+***AUX FRÈRES DES ÉCOLES CHRÉTIENNES***
+
+*Vendredi 9 Juin 2000*
+
+*Chers Frères,*
+
+*Chers Amis,*
+
+Je suis heureux de vous accueillir au moment où vous êtes réunis pour votre quarante-troisième chapitre général et où votre famille religieuse célèbre le centenaire de la canonisation de saint Jean-Baptiste de La Salle, ainsi que le cinquantenaire de sa proclamation, par le Pape Pie XII, comme Patron spécial de tous les éducateurs de l'enfance et de la jeunesse.
+
+Ces différents événements sont pour vous une occasion particulièrement favorablement pour donner un élan renouvelé à vos différentes missions éducatives et évangélisatrices, selon le charisme de votre fondateur, malgré la diminution de vos effectifs. Je me réjouis notamment de la disponibilité de votre Institut à répondre, dans une étroite communion avec les Eglises locales, à de nouveaux appels d'enfants et de jeunes, notamment des plus pauvres qui, dans le monde entier, ont besoin de recevoir une formation humaine, morale, catéchétique et scolaire, afin de devenir des hommes et des femmes qui prendront leur part de responsabilité dans la communauté chrétienne et dans la société de demain. Une telle disponibilité est présente dans le thème de vos travaux :  Associés pour le service éducatif des pauvres comme réponse lasallienne aux défis du vingt et unième siècle. L'Eglise est invitée à offrir inlassablement à la jeunesse ce don de l'éducation, qui manifeste son attention aux réalités et aux attentes de populations qui ont besoin de soutien dans leur promotion humaine.
+
+Vos frères ont un rôle incomparable. Par leur vie consacrée, ils sont aux yeux du monde les témoins de l'absolu de Dieu et du bonheur qu'il y a à servir le Seigneur en servant les hommes, notamment les enfants, qui sont les bien-aimés de Dieu. Par leur vie communautaire, ils manifestent que le Christ est un lien de fraternité très fort entre des personnes, qui ouvre à la convivialité, à la collaboration, à la paix et au pardon. Ils sont aussi proches de tous, dans la solidarité quotidienne de l'éducateur qui conduit patiemment et délicatement les jeunes sur la voie de la maturité et de la véritable liberté.
+
+Vos récents chapitres vous ont permis de réfléchir à une participation d'autres Congrégations religieuses et de laïcs, qui souhaitaient être associés à vos missions et vivre, à leur manière, le charisme lasallien.  Je  suis  particulièrement sensible à ces collaborations, qui permettent d'unir des forces pour une plus grande efficacité missionnaire. La présence de laïcs à vos côtés est un signe appréciable de la place toujours plus importante qu'ils sont appelés à prendre dans la vie de l'Eglise, ce que je tiens à encourager vivement, comme je l'ai déjà fait dans l'exhortation apostolique post-synodale *Vita consecrata* (cf. n. 56). Il vous appartient de donner aux laïcs qui veulent être membres associés la formation nécessaire pour leur vie spirituelle et pour leur service. Ils pourront alors, en s'appuyant sur l'enseignement et la spiritualité de saint Jean-Baptiste de La Salle, trouver des voies pour développer, selon l'état de vie qui est le leur, dans le respect des identités respectives et des particularités de la vie consacrée, leur démarche spirituelle, afin de la mettre en pratique dans le service éducatif qui leur sera confié, s'attachant à devenir des modèles d'enseignants chrétiens.
+
+Au terme de notre rencontre, je demande à la Vierge Marie et à saint Jean-Baptiste de La Salle de vous soutenir dans vos efforts et de faire porter des fruits à votre chapitre général. De grand coeur, je vous accorde une affectueuse Bénédiction apostolique.

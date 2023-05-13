@@ -1,0 +1,49 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***À S.E. M.******JORGE DEZCALLAR DE MAZARREDO*** ***,***
+
+***NOUVEL AMBASSADEUR D'ESPAGNE***
+
+***PRÈS LE SAINT-SIÈGE À L'OCCASION DE LA PRÉSENTATION***
+
+***DES LETTRES DE CRÉANCE****
+
+*Vendredi 18 juin 2004*
+
+*Monsieur l'Ambassadeur,*
+
+1. Je suis heureux de vous recevoir à l'occasion de la remise des Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire du Royaume d'Espagne près le Saint-Siège. Cette rencontre m'offre également l'opportunité de vous souhaiter une cordiale bienvenue et, dans le même temps, de vous exprimer mes meilleurs voeux pour l'accomplissement de la haute responsabilité que votre gouvernement vous a confiée.
+
+Je vous remercie des paroles aimables que vous m'avez adressées, qui ont ranimé en moi les sentiments de proximité et d'estime à l'égard d'un pays qui, comme Votre Excellence l'a souligné, à partir de ses profondes racines chrétiennes, s'est toujours distingué par son lien avec l'Eglise, si bien que, à travers une importante oeuvre d'évangélisation, un grand nombre de ses fidèles dans le monde parlent espagnol.
+
+J'apprécie de tout coeur les salutations de Sa Majesté le Roi, de la famille royale, de la nation espagnole et de votre gouvernement, et je vous prie de vous faire l'interprète auprès d'eux de la profonde affection du Pape pour tous les Espagnols.
+
+2. En considérant avec satisfaction l'état des relations diplomatiques entre l'Espagne et le Saint-Siège, fondées sur l'estime et le respect, je ne peux oublier mes cinq voyages dans ce pays. Je me rappelle surtout du plus récent, l'an dernier, où l'expression des témoignages s'est unie à une joie et à une ferveur débordantes. J'ai rencontré, une fois de plus, des personnes de toutes les origines sociales, vibrantes d'une foi profonde et d'une grande affection à l'égard du Successeur de Pierre. Ce fut un signe d'espérance très clair pour l'Eglise et également pour la société espagnole, car les valeurs élevées vécues intensément sont comme l'âme qui donne sa cohésion à toute l'activité humaine et qui communique la créativité et la fermeté dans les moments d'abattement ou d'adversité, dont l'Espagne a également fait très récemment la tragique expérience, en particulier à cause de la plaie du terrorisme.
+
+Conscient de cela, j'ai pris congé en adressant une invitation pressante aux Espagnols :  « *Ne négligez jamais cette mission qui a fait la noblesse de votre pays par le passé et qui demeure un défi courageux pour l'avenir* » ( *[Regina caeli](/content/john-paul-ii/fr/angelus/2003/documents/hf_jp-ii_reg_20030504.html)* **,** Madrid, 4 mai 2003). Il s'agit d'une mission qui se poursuit également en dehors des frontières de votre patrie, où des milliers de religieux et de religieuses, de volontaires et de coopérateurs laïcs, grâce à leur dévouement et à leurs efforts plein d'abnégation, sont très souvent les messagers de la meilleure image de votre patrie. L'Espagne a produit un  nombre  incalculable de saints et elle est parsemée de monuments, de centres d'assistance, de culture et d'oeuvres d'art inspirés par la foi. Il s'agit de signes patents de son identité et de la force vitale qui a guidé sa glorieuse histoire et qu'elle a su apporter avec générosité à de nombreux autres peuples. Au moment où, dans la vieille Europe, une nouvelle organisation apparaît, on ne peut manquer d'y mentionner expressément ses racines chrétiennes, à partir desquelles, comme dans d'autres pays européens, s'est élaborée au cours des siècles une conception éminente de la personne, ouverte à la transcendance, qui est également un facteur décisif d'intégration et d'universalité.
+
+3. Dans l'exercice de sa mission, l'Eglise recherche le bien intégral de chaque peuple, en oeuvrant dans le cadre de ses compétences et en respectant pleinement l'autonomie des autorités civiles, qu'elle apprécie, demandant à Dieu que celles-ci exercent avec générosité, sagesse et justice leur service à tous les citoyens.
+
+En effet, il s'agit de deux domaines autonomes qui ne peuvent s'ignorer, car tous les deux tirent bénéfice d'un dialogue loyal et constructif, étant donné que le bien commun demande fréquemment diverses formes de collaboration entre eux, sans discrimination ni aucune exclusion. C'est ce que définissent les Accords partiels entre l'Eglise et l'Etat, établis immédiatement après l'approbation de l'actuelle Constitution espagnole. Les fruits recueillis et le développement obtenu grâce à son application concrète sont également le résultat  d'une communication ouverte et constante, établie sur une base solide et durable, précisément pour éviter le risque de brusques changements ou d'alternances passagères, qui dans de nombreux cas produisent insécurité et égarement en ce qui concerne les droits des institutions, de la famille et des citoyens.
+
+4. Dans son action évangélisatrice, l'Eglise s'efforce d'inviter tous les hommes et toutes les femmes de bonne volonté à construire une société fondée sur des valeurs fondamentales et incontournables, afin de parvenir à un ordre national et international juste et digne de l'être humain. Cela va de pair avec sa mission religieuse et possède un caractère éthique de portée universelle, fondé sur la dignité inégalable de la personne humaine, créée à l'image de Dieu, dont découlent ses droits inaliénables, que les institutions publiques doivent précisément servir et promouvoir, selon le principe classique de la subsidiarité. Ainsi, la coexistence humaine, au lieu d'obéir uniquement aux intérêts partiaux ou passagers, doit reposer sur des idéaux de liberté, de justice et de solidarité.
+
+Dans cette perspective, il faut souligner l'incohérence de certaines tendances de notre époque qui alors qu'elles exaltent, d'une part, le bien-être des personnes, de l'autre, portent atteinte aux racines de sa dignité et de ses droits les plus fondamentaux, comme cela se produit lorsqu'on limite ou que l'on instrumentalise le droit fondamental à la vie, comme dans le cas de l'avortement. Protéger la vie humaine est un devoir pour tous, mais la question de la vie et de sa promotion n'est pas seulement une prérogative des chrétiens, elle concerne également toute conscience humaine qui aspire à la vérité et qui se préoccupe du destin de l'humanité. Les responsables publics, en tant que garants des droits de tous, ont l'obligation de défendre la vie, en particulier celle des plus faibles et sans défense. Les véritables « *conquêtes sociales* » sont celles qui promeuvent et qui protègent la vie de chacun et, dans le même temps, le bien commun de la société.
+
+Dans ce domaine on parle quelquefois de « *conquêtes sociales* » qui portent mal leur nom et qui ne profitent en réalité qu'à certains, au prix du sacrifice des autres, et que les responsables publics, garants et non créateurs des droits innés de tous, devraient considérer bien davantage avec inquiétude et alarme.
+
+Il en est de même pour la famille, noyau central et fondamental de toute société, milieu inégalable de solidarité et école naturelle de coexistence pacifique, qui mérite une plus grande protection et assistance pour accomplir ses objectifs. Ses droits sont primordiaux par rapport aux corps sociaux plus amples. Parmi ces droits, il ne faut pas oublier celui de naître et de grandir dans un foyer stable, où les paroles père et mère peuvent être prononcées avec  joie  et  sans erreur. On prépare ainsi les plus petits à s'ouvrir avec confiance à la vie et à la société, qui en bénéficiera dans son ensemble si elle ne cède pas à certaines voix qui semblent confondre le mariage avec d'autres formes d'union entièrement différentes - quand elles ne sont pas contraires à celui-ci -, ou qui semblent considérer les enfants comme de simples objets de satisfaction personnelle.
+
+La famille possède, entre autres, le droit et le devoir d'éduquer les enfants en accord avec ses propres convictions morales et religieuses, car la formation intégrale ne peut pas faire abstraction de la dimension transcendante et spirituelle de l'être humain. C'est dans ce contexte que s'organise le rôle des institutions éducatives liées à l'Eglise, qui contribuent au bien commun, ainsi que de tant d'autres qui, dans divers domaines, prêtent également un service aux citoyens, souvent les moins favorisés. Il ne faut pas non plus sous-évaluer l'enseignement de la religion catholique dans les institutions d'Etat, fondé précisément sur le droit des familles qui en font la demande, sans discriminations ni obligations.
+
+5. Monsieur l'Ambassadeur, je vous présente à nouveau mes meilleurs voeux pour votre mission près le Saint-Siège, mission qui vous a été confiée en cette *Année de saint Jacques*, et je prie l'Apôtre pour que, comme il l'a fait pendant des siècles, il continue à être un phare lumineux pour les populations d'Espagne, en faisant de votre terre un chemin mêlant efforts et espérance pour les nombreux pèlerins de toute l'Europe. Un grand nombre d'entre eux sont restés fascinés par l'accueil et la noblesse de ceux qu'ils ont rencontrés sur leur route ; ils ont été les témoins de leur travail, de leur constance et de leur fidélité; ils ont découvert une nation dont le regard est élevé. Voilà des vertus qui sont à l'origine de votre histoire glorieuse et qui, avec les efforts et la collaboration loyale de tous, laissent également espérer en un avenir prometteur, en une société plus prospère, juste et ouverte aux valeurs de l'esprit.
+
+Avec ces voeux, je vous souhaite un agréable séjour à Rome et je vous donne ma Bénédiction apostolique, que j'étends à votre famille et à vos collaborateurs.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.26 p.4, 5.
+
+*La Documentation catholique* n°2319 p.703-705.
+
+© Copyright 2004 - Libreria Editrice Vaticana

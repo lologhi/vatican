@@ -1,0 +1,145 @@
+PIUS PP. XI
+
+EPISTULA ENCYCLICA
+
+***VIGILANTI CURA***
+
+VENERABILIBUS FRATRIBUS
+
+FOEDERATARUM AMERICAE CIVITATUM
+
+ARCHIEPISCOPIS EPISCOPIS
+
+ALIISQUE LOCORUM ORDINARIIS
+
+PACEM ET COMMUNIONEM
+
+CUM APOSTOLICA SEDE HABENTIBUS :
+
+DE CINEMATOGRAPHICIS SPECTACULIS.
+
+VENERABILES FRATRES
+
+SALUTEM ET APOSTOLICAM BENEDICTIONEM
+
+Vigilanti cura, ut Nostrum deposcit apostolicum officium, laudabilem omnem sacrorum Antistitum totiusque christiani populi operam prosequimur ; atque adeo summo cum animi gaudio certiores facti sumus providum illud inceptum salutiferos iam edidisse fructus, atque ad uberiores usque contendere utilitates, quod vos plus duobus abhinc annis eo consilio instituistis peculiarique modo « Legioni a decentia » efficiendum credidistis, ut, sanctissimum veluti certamen, cinematographicae artis pravitatem compesceret.
+
+Id optatam diu Nobis affert opportunitatem, ut satius mentem Nostram hac de re aperiamus, quae ad totius christianae plebis mores religionemque tam arctissime pertineat. At primum, quod Vobis ducibus ac magistris, et christifidelibus adiutricem vobis navitatem suam praestantibus, Legio ista, hoc in apostolatus campo, tam sollerter allaboraverit, eo vehementius gratulari vobiscum cupimus, quo sollicitiore animo videbamus hanc eamdem artem eiusdemque generis industriam illuc, quasi « per magnos passus extra viam » evasisse, ut prostarent omnibus, luce expressa, vitia, scelera, delicta.
+
+Altissimi officii Nostri partes duximus, quotiescumque Nobis obversabatur occasio, non modo Episcopos compellare ceterosque e clero, sed omnes etiam, quotquot sunt probi volentesque homines, ut gravissimam huiuscemodi causam intento animo considerarent.
+
+Iam scilicet in Encyclicis Litteris « Divini illius Magistri », idcirco conquesti sumus quod « validissima eiusmodi ad quidvis evulgandum subsidia, quae, si ad sana principia apte regantur, eruditioni magnopere atque educationi prodesse queant, saepe — proh dolor — provehendis vitiorum illecebris sordidisque quaestibus serviunt » (1). Atque anno MDCCCCXXXIV, mense augusto, cum aliquot, coram admissos, e foederatione illa alloqueremur, cuius est in quibusvis Nationibus ephemerides scriptionesque edere, quae ad cinematographea attineant, horum spectaculorum momentum nostra hac aetate ingravescens indicavimus, eorumque gliscentem vim, cum ad virtutem, tum ad vitia suadenda ; ac praeterea animadvertebamus omnino necesse esse cinematographicis scaenis ea praescripta tribuere, quae grande ingenuae artis munus regant ac moderentur, ut christiana, quin immo humana ipsa ad naturalem legem composita, morum ratio iniuria probroque non afficiatur. Iamvero ars quaelibet nobilis in id potissimum nitatur oportet, eoque suapte natura spectet, ut debita hominem probitate virtuteque perficiat ; atque adeo sit ad moralis disciplinae principia ac praecepta redacta. Exinde vero necessitate consegui monebamus, probantibus equidem lectissimis illis viris, — grata adhuc subit recordatio animum — opus esse prorsus cinematographicos ludos ad rectas normas conformari, ut ad vitae integritatem verique nominis educationem spectatores omnes excitent.
+
+Ac recens quoque, superiore nempe mense aprili, cum grato animo nonnullos coram admisissemus, qui Romam in congressum e variis Nationibus convenerant, ut de cinematographicis scriptionibus vulgo edendis causam agerent, huius negotii momentum gravitatemque iterum proponebamus ; itemque, religionis nomine non modo, sed civilis etiam in ordine morum prosperitatis, omnes cordatos homines adhortabamur, ut scriptis prelo excusis omnique ope contenderent, quo cotidie m.agis id genus spectacula ad sanam institutionem educationemque valerent, non vero ad animarum ruinam earumque interitum.
+
+At tanti ponderis res est, perspectis praesertim civilis nostrorum temporum societatis condicionibus, ut opportunum Nobis videatur eam iterum per has Litteras magisque enucleate edisserere, vobis non solum, Venerabiles Fratres, sed universis etiam catholici orbis Episcopis impertientes praecepta, praesentibus necessitatibus consentanea. Siquidem pernecessarium est ac penitus urget id providere atque efficere, ut quidquid ex Dei munere progrediens aetas in humanas disciplinas ac vel in ipsas technicae industriae artes invexerit, ita divinae gloriae, animarum saluti et Iesu Christi propagando regno reapse inserviat, ut omnes, quemadmodum Ecclesia nos precari iubet, « sic transeamus per bona temporalia, ut non amittamus aeterna ».
+
+Iamvero facile omnibus in comperto est cinematographicam rem quo mirabiliora susceperit incrementa, eo evenisse morum integritati, Religioni ac vel ipsi civilis consortionis probitati perniciosiorem.
+
+Quamobrem ii etiam, qui in Foederatis Americae Civitatibus id genus industriae praesunt, huius rei rationem atque periculum in se recepisse professi sunt, non modo ad singulos quod attineret cives, sed ad universam etiam hominum communitatem. Etenim anno MDCCCCXXX, mense martio, sponte sollemniterque sanxerunt ac polliciti sunt — datis in id scriptis communi consensione subsignatis ac typis editis — se esse in posterum eorum, qui cinematographicos ludos celebraturi essent, honestatem tutaturos. Ac nominatim per eiusmodi acta spoponderunt nullam se unquam esse imaginum seriem exhibituros, quae rectos spectatorum mores demitteret, quaeque vel naturalem humanamque legem detrectaret, vel eiusdem violationem suaderet.
+
+Nihilo secius, quam.vis haec laudabili sane consilio statuissent, ii tamen, quorum causa esset, itemque imaginum effectores, vel non posse vel prorsus nolle, ex suscepta ultro obligatione, id exsequi visi sunt. Quamobrem, cum ex paene irrita illorum voluntate vitia ac scelera in cinematographeis exhiberi pergant, probus quisque plerumque prohibetur quominus, honestae oblectationis gratia, hisce spectaculis intersit.
+
+Quibus in gravissimis rerum adiunctis, vos prae primis, Venerabiles Fratres, modis rationibusque studuistis, quibus creditum vobis gregem ah ingruente istiusmodi discrimine tueremini ; idque fecistis, cum « Legionem a decentia » sacram veluti aciem instituistis, cuius opera optima quaeque proposita ac principia, ad naturalis christianaeque probitatis normas conformata, excitata tandem revirescerent. Qua in re tantum abfuit ut vobis mens esset huic industriae detrimenta inferre, ut eam potius ab interitu vindicare pro vestra parte eniteremini, in quem dilabi quaevis ludicra pronum esset, quae in artis dehonestamenta depravationesque corruissent.
+
+Suscepta a vobis consilia christifideles, vestris demandati curis, prompto paratoque animo complexi sunt. Ad decies nempe centena milia Foederatarum Americae Civitatum catholici fidem obligationemque, quam « Legio a decentia » proposuerat, in se libenter recipientes, nullam se polliciti sunt cinematographicam spectationem participaturos, quae christianos mores offenderet, rectaque vitae praecepta. Itaque populum apud vos sacrorumque Antistites — quod vehementi cum animi gaudio profiteri libet — tam concordes vidimus hoc in incepto data opera provehendo, ut nunquam alias, hac recentiore aetate, arctius inter se coniunctos eos cernere potuerimus.
+
+Neque solummodo catholicae Ecclesiae filii, sed e Novatoribus etiam et ex Hebraeis lectissim.i viri, aliique non pauci vestra consilia ac proposita exceperunt ; vestrisque nisibus idcirco obsecundarunt ut cinematographicae scaenae ad digna ingenuae artis morumque praescripta redigerentur. In praesens autem fateri summo Nobis solacio est, laudabiliter initam contentionem non mediocres iam assecutam esse exitus atque utilitates. Siquidem perlatum Nobis est cinematographicam artem, ob sedulam vigilantiam vestram communisque opinionis vim, non parum iam ad emendatiorem modum processisse. Vitiorum nempe scelerumque imagines non ita crebrius, ut antea, subiectae oculis ; prava quaelibet admissa non ita licentius probata, conclamata ; neque procaci eadem ratione, falsa ducendae vitae principia mollibus concitatisque iuvenum mentibus exhibita.
+
+Quodsi in nonnullis civium ordinibus in antecessum asseveratum est fore ut, ex sedula eiusdem « Legionis » navitate huius artificii ornamenta ac decora non parum remitterent, res tamen visa est in contrariam evasisse partem.
+
+Siquidem non parum etiam, pro viribus, allaboratum est, ut scaenicae eiusmodi actiones ad nobilissima liberalium artium praecepta conformarentur ; atque adeo, ut vel vetera optimorum scriptorum, vel nova humanae mentis opera spectatorum oculis proponerentur, quae haud communi laude eniterent.
+
+At neque ii, qui pecuniam suam in huius industriae inceptis collocaverant, detrimenta hac de causa perpessi sunt, quemadmodum nonnulli, quin consentaneam adderent rationem, praemonuerant ; haud paucis enim, qui a cinematographicis ludis, ob inustam per eos rectis moribus iniuriam, abhorruerant, cum facinora luce expressa cernere licuit, quae humanae probitatì christianaeque virtuti non detrimentosa viderentur, iterum haec spectacula celebrare sollemne fuit.
+
+Ubi vero vos, Venerabiles Fratres, hoc veluti sacrum certamen instituistis, non defuerunt qui dicerent, susceptos hoc in genere nisus eorumque, qui exspectabantur, exitus, fluxos fore brevique tempore dilapsuros ; quatenus, remissa pedetemptim vestra vestrorumque vigilantia, harum imaginum auctoribus integrum esset, pro suo cuiusque arbitrio, ad pristinas iterum redire agendi rationes. Facile equidem dispicitur cur iidem non honestas, ideoque prohibitas a vobis, scaenicas actiones repetere excupiant, quae ad ignobiles cupidines instimulare queant. Si enim harum pellicularum series, quae hominum gesta praeferant virtuti consentanea, summo artificio effingere multum profecto ingenii, laboris, peritiae ac vel sumptuum interdum expostulat ; at facile plerumque est quosdam homines et quorumdam civium classes ad cinematographica arcessere theatra, in quibus id genus spectationes habeantur, quae libidines incendant, pravosque exsuscitent in animis latentes motus.
+
+Quamobrem necesse est ut vigilans eademque sedula omnium opera penitus industriae huius artificibus suadeat, hanc « Legionis a decentia » contentionem non idcirco initium sumpsisse, ut brevi temporis spatio excidat ac neglegatur, sed ut potius — foederatarum Americae Civitatum Episcopis moderatoribus — honesta populi oblectatio, quovis tempore ac quibusvis rationibus habita, pro viribus in tuto ponatur.
+
+Corporis animique oblectamenta, in quae nostra haec aetas varias induxit formas rationesque, iis omnibus, quotquot negotiis vitaeque sollicitudinibus distineantur, necessaria prorsus esse nemo est qui non videat ; attamen ad hominis dignitatem eadem sunto et ad morum redacta integritatem ; atque adeo eo spectent ut reapse nobiles sensus commoveant atque excitent. Graviter procul dubio populorum magnitudo atque potentia periclitantur, qui per requietis tempora ludicris se dedant, quae decoris, dignitatis honestatisque principia laedant, quaeque ad admissa perpetranda, iuventuti praesertim, occasionem praebeant.
+
+Quibus in ludicris, ut omnibus perspectum est, cinematographea maximi momenti sunt, cum nostra hac aetate ad universas gentes pertineant. Dicere vix attinet cives ad decies centena millia bene multa huiuscemodi spectationes cotidie participare ; penes quoslibet populos, sive funditus, sive leviter excultos, horum theatrorum numerum magis magisque increbrescere ; eademque communem iam se relaxandi oblectandique rationem impertire, locupletium non modo, sed cuivis etiam societatis ordini.
+
+Ceterum, aliud nihil in praesens invenire queas, quod tanta efficacitate in multitudines polleat, cum ob ipsam imaginum naturam, quae versatilis lucis motu eflinguntur, tum ob ludorum facilitatem, qui vel popularibus conceduntur, tum denique ob rerum adiuncta, quae iisdem ludis comitantur.
+
+Quae quidem efficacitas ex eo profluit, quod per vividas illas species ac formas cinematographica ars loquitur, quae magna cum animi delectatione nulloque negotio eorum quoque sensibus obiiciuntur, qui, ut rudes sunt atque inculti, sive e rerum concretione enitendo ratiocinandoque discedere, sive ex causis earum effectus eruere, vel nolunt, vel saltem nequeunt. Legere etiam ac vel aurem dare alicui dicenti, quamdam postulat intentionem mentisque nisum ; quod quidem cinematographica visio, per subsequentes continuato ordine oculisque subiectas imagines, summo cum gaudio removet. Atque efficientia eadem per cinematographea illa adaugetur, in quibus spectationes cum congruentibus vocibus copulantur ; ita enim facinora luce expressa expeditius intelleguntur, et scaenica actio, magna utique cum fascinatione, musicis concentibus coniungitur.
+
+Per choreas vero ac per interiectas illas ex arbitrio scaenas, quas « varietates » vocant, perturbati animi motus cupidinesque gliscunt citatioreque gradu increscunt.
+
+Quapropter haec theatra veluti rerum scholae sunt, quae, magis quam meraca ratiocinatio, plerosque homines ad virtutem aeque ac ad pravitatem instimulare possunt. Oportet igitur salutaribus provehendis christianae conscientiae propositis eadem inserviant, atque adeo res omnes ab se detrahant, quae integros corrumpant depraventque mores.
+
+In comperto cuique est quantopere improbae id genus scaenae in spectatorum animos influant ; ut cupidinum enim libidinumque laudes efferunt, ita vitiorum occasionem praebent ; iuvenes e recto itinere transversos agunt ; ducendae vitae rationem fucata lucis specie proponunt ; capessendae perfectionis consilia infuscant atque debilitant ; castum denique amorem, matrimonii sanctitatem atque intimas domestici convictus necessitudines restinguunt. Praeiudicatas praeterea falsasque opiniones cum singulis hominibus, tum civium classibus, nationibus variisque gentibus ingenerare queunt.
+
+At contra, eiusmodi ludi si ad optimas normas conformentur, vim possunt in spectatores elicere sane saluberrimam. Non tantummodo siquidem delectant, sed etiam ad nobilissima quaeque erigunt atque excitant : valde utilia praecepta impertiunt : itemque suae cuiusque ceterorumque patriae egregie gesta pulchritudinesque demonstrare possunt ; virtutem veritatemque grato speciosoque more ostendere ; in Civitatis ordinibus, in Nationibus, variisque stirpibus mutuae cognitionis voluntatisque studia gignere vel saltem promovere ; iustitiae quoque causam amplecti ; ad virtutem advocare omnes ; ac denique ad novam magisque aequam humanae societatis ordinationem temperationemque adiutricem operam conferre.
+
+Quae animadversiones Nostrae magis profecto ex eo sumunt gravitatis, quod cinematoghaphica ars non singulis civibus sed hominum stipationibus quodammodo loquitur ; idque per temporum, rerum locorumque condiciones, quae, ut ad pravum, ita ad optimum conflandum animorum ardorem perquam apta videntur : quod quidem ardoris studium in communem illam ac prorsus insanam concitationem evadere potest, quam experiendo novimus.
+
+Imaginum nempe series volubili luce spectatoribus proponuntur, qui in subobscuris theatris assidunt, et quorum mentis facultas spiritualesque vires plerumque languent. Atque id genus theatra longe quaerere non est opus ; eadem enim domibus, sacris aedibus ac popularibus litterarum ludis ita contigua sunt, ut vim iam habeant in communem omnium vitam maximam maximunque momentum.
+
+Casus praeterea rerumque vicissitudines, quae per cinematographea effinguntur, ab hominibus sustinentur mulieribusque, dotibus natur, datis et artificio auctis, omnique ope tam instructis atque exornatis, ut interdum ad corruptelarum blandimenta adulescentes peculiari modo pellicere possint. Huc accessere musici concentus, sumptuosa loca, res procaciter obiectae oculis, omnisque novitatis varietatisque deliramenta. Qua praesertim ex causa horum ludorum fascinatio puerorum iuvenumque animos afficit ac tenet ; ita quidem ut hac ipsa aetate, qua honestatis sensus innascitur atque informatur, qua iustitiae probitatisque principia e mentibus evolvuntur, qua denique officiorum notiones emergunt, et optima perfectionis proposita vitam attingunt atque pervadunt, cinematographica ars vim suam exerceat summamque efficacitatem.
+
+At, proh dolor, huiuscemodi efficientia, praesentibus in rerum adiunctis, nimio saepius in detrimentum vertitur. Quamobrem dum tantam recogitamus iuvenum nominatim ac puerorum ruinam, quorum integritas ac castitas hisce in theatris periclitatur, acerrima illa in tenuiorum corruptores Nobis succurrit Iesu Christi sententia : « Qui autem scandalizaverit unum de pusillis istis qui in me credunt, expedit ei ut suspendatur mola asinaria in collo eius et demergatur in profundum maris » (1).
+
+Pernecesse igitur est, nostris hisce temporibus, advigilare omnique ope allaborare ut id genus spectacula non illecebrarum scholae evadant, sed ut potius ad rectam hominum educationem et ad elatiorem morum dignitatem summopere conferant.
+
+Heic vero animadvertere operae pretium est — quod Nos libentissime facimus — nonnullos ex iis, qui Civitatis gubernacula moderantur, idcirco sollicitudine permoti, quod magnam in hominum mores huius artis iznpulsionem cernerent, per probos viros ex patribus praesertim matribusque familias selectos, peculiares instituisse coetus, quibus sit res quae hac in causa edantur, inspicere, recognoscere ac dirigere. Ac novimus etiam eos saepenumero eamdem artem ad suorum cuiusque Nationis optimorum auctorum poétarumque scripta hisce imaginibus referenda convertere contendisse.
+
+Iamvero, si maxime opportunum est vos, Venerabiles Fratres, vigiles curas cogitationesque in cinematographicam Nationis vestrae industriam conferre, quae tam magna susceperit incrementa, quaeque non mediocri pulsu in ceteras quoque gentes influxerit, at omnibus catholici orbis Episcopis officio est, in communi hac, eademque potentissima, oblectationis institutionisque forma collatis inter se viribus evigilare. Atque ex iniuria ipsa quae probitatis religionisque conscientiae, itemque christianae doctrinae praeceptis inferatur, causam sumere, cur pravos istiusmodi ludos prohibeatis, nihil reliqui facientes, ut omnia pro facultate arceatis, quae decori honestatisque sensus in populo laedere atque restinguere enitantur.
+
+Quod quidem officium non modo Episcopos, sed quoslibet catholicos etiam omnesque cordatos homines tenet, quibus et domestici convictus, et patriae cuiusque suae, et totius humanae consortionis honos atque integritas cordi sit.
+
+In praesens vero, quaenam vigilantiae cura habenda sit, inquiramus atque explanemus.
+
+Causa de cinematographicis pelliculis, quas vocant, efficiendis, ad probos mores quod attinet, funditus oinnino feliciterque componeretur, si facultas esset imagines proferre, quae ad christiana fuissent principia conforinatae.
+
+Quamobrem numquam eos dilaudare desistemus, qui se huic arti devoverunt, vel in posterum devovebunt, hoc tamen enitentes ut haec scaenica spectacula ad sanam hominum educationem et ad christiana proposita reapse spectent. Id vero non leviter, sed technicorum more accuratisque rationibus faciant, ne incassum vires sumptusque effundant.
+
+At quoniam Nobis perspectum est quot quantaeque occurrant, in re praesertim oeconomica, difficultates, quominus haec incepta ordinatim componantur ; ac quandoquidem penitus necessarium est res omnes hoc in genere edendas ita moderari, ut — ad religionis, morum civilisque societatis rationes quod pertinet — detrimenta eaedem non pariant, idcirco sacri Pastores oportet ad imagines omnes curam convertant, quae undecumque christianae plebi proferantur.
+
+Universos igitur catholici orbis Episcopos, quorum in Natio, nibus cinematographicae pelliculae effi.nguntur, ac vos potissimum, Venerabiles Fratres, vehementer adhortamur, ut christifideles illos paterno animo compellatis, qui huius artis industriam quoquo modo participent. Graviter iidem animadvertant et sua ipsorum officia, et eam, qua ut Ecclesiae filii tenentur, obligationem, pro viribus nempe enitendi ut imagines, quas vel ipsimet edant vel edendas adiuvent, saluberrimis principiis sint rectisque normis consentaneae. Haud pauci sane ex catholicis viris numerantur qui exsecutorum, moderatorum, auctorum, actorumve hac in re partes agant ; attamen dolendum est non semper eorum operam cum eorum fide eorumque propositis consentire. Quapropter Episcoporum erit eosdem commonere ut sua cuiusque actio proborum hominum conscientiae ac Iesu Christi sectatorum officio omnino respondeat.
+
+Hoc etiam in apostolatus campo, quemadmodum in ceteris omnibus, sacrorum Antistites eos procul dubio optimos experientur laboris socios, qui in Actionis Catholicae agminibus militant ; quos Nos contineri non possumus quin per has Litteras iterum atque iterum excitemus ut, hanc etiam in causam, sedulam conferant atque indefatigabilem navitatem suam.
+
+Opportunum equidem est ut identidem sacri Pastores huius artis effectorum in memoriam redigant, sibimetipsis — quemadmodum de ceteris rebus, quae ad ministerium suum pertineant — ita de qualibet etiam honestae oblectationis forma curam esse ; cum divino mandato teneantur concrediti sibi populi mores, vel relaxationis tempore, regere atque moderari. Postulat enim sacrum, quo funguntur, munus, ut palam aperteque moneant dehonestamenta ludorum virtutis nervos in ipsis Nationibus elidere. Quamobrem, quod hoc in genere expetunt, non ad catholicos dumtaxat respicit, sed ad quosvis etiam horum theatrorum spectatores.
+
+At vobis peculiari modo fas est, Venerabiles Fratres, id ab cinematographicae artis auctoribus contendere, quod iidem, ut diximus, in Foederatis Americae Civitatibus, ex suscepta ultro obligatione, polliciti sunt, huius rei rationem atque periculum, ad humanam societatem quod attinet, in se recipientes.
+
+Omnes vero, quotquot ubique terrarum episcopali dignitate aucti sunt, summopere curent, ut iis veluti ante oculos ponant, qui huic industriae dant operam, rem tam pollentem iamque in communem usum invectam perutiliter posse ad elatiorem morum perfectionem cum singulos, tum universam hominum consortionem convertere atque dirigere.
+
+Ecquid enim de malis vitandis solummodo causa agatur ? Et cur cinematographea inanes tantum otii horas conterant ? At eadem possunt ac debent mirifica efficacitate sua spectatorum animos collustrare, ac reapse ad virtutes omnes compellere.
+
+In praesens vero, argumenti huius gravitate perspecta, opportunum ducimus peculiares aliquas animadversiones edere, huic rei consentaneas. Imprimisque singuli curent animarum Pastores, ut — quemadmodum Foederatarum Americae Civitatum catholici — christifideles sibi crediti quotannis spondeant se numquam cinematographica spectacula participaturos, quae veritatem offendant christianaeque doctrinae instituta. Quae quidem pollicitatio dandaque fides in sacris praesertim aedibus et in litterariis ludis haberi poterit ; atque in hanc rem Episcopi adiutricem advocent actuosamque operam, cum patrum matrumque familias, qui peculiari hac in causa obstringuntur officio, tum catholicorum etiam scriptorum, quibus erit huius veluti sacrae contentionis momentum diligenter utiliterque explanare.
+
+Ut autem sollemnis eiusmodi sponsio feliciter effecta detur, omnino necesse est, ut populo penitus in comperto sit quaenam imagines libere omnibus ad spectandum pateant, quasnam vero certis dumtaxat positis cautionibus videre liceat, ac denique quaenam perniciosae sint, vel reapse pravae. Quod profecto id exposcit, ut peculiaria ordine conficiantur typisque edantur rationaria seu elenchi, in quibus quam saepissime cinematographicae pelliculae distribute, ut diximus, ita proponantur, ut omnium in notitiam venire possint.
+
+In votis equidem est, unum tantummodo pro universis terrarum orbis partibus harum rerum rationarium statuere, quandoquidem omnes eadem in genere morum lege tenentur.
+
+Attamen, cum de scaenicis actionibus agatur, quae ad quaslibet pertinent societatis classes, ad ineruditos nempe doctrinaque excultos, ad populares aeque ac ad primores civitatis, eadem procul dubio ubique gentium haberi sententia non potest. Dissimilia etenim sunt, pro variis regionibus, rerum adiuncta vitaeque rationes ; quapropter unum ubique omnibus elenchum impertiri non consentaneum est. At vero, si in quavis Natione distincto, ut diximus, ordine, rationarium exhibeatur, generalis iam, quae requiritur, habeatur norma.
+
+Quam ad rem prorsus necessarium est Episcopos stabile pro tota Natione inspectionis Officium constituere, cuius sit honestas imaginum series promovere, ceteras autem indicato more generatim distribuere, ac denique editum abs se iudicium sacerdotibus et christifidelibus significare. Quod quidem Officium Centralibus, ut aiunt, Catholicae Actionis Consiliis peropportune demandari poterit, quae, ut omnes norunt, a sacrorum Antistitibus pendent. Utcumque hoc pro certo habeatur, hanc scilicet inspectionis operam, ut valida in rectamque formam redacta eveniat, unam pro unaquaque Natione efficiendam esse, ab unoque regimine moderandam.
+
+Attamen, si satis graves causae id reapse postulare videbuntur, sacris Pastoribus, in sua cuiusque Dioecesi, integrum erit per suos ad hoc delectos dioecesanos coetus severiore ea sententia uti, quam peculiaris deposcat illius regionis indoles ; cinematographicas videlicet pelliculas vetando, quas generale rationarium idcirco permiserit, quod normas tradere teneatur, quae ad universam Nationem respiciant.
+
+Hoc praeterea Officium theatra id genus, quae vel penes paroeciales aedes, vel in catholicarum sodalitatum domibus habeantur, ita ordinanda curet, ut eadem probatis solummodo imaginibus fruantur. Per idoneam enim horum theatrorum disciplinam ordinationemque, quae in facilem saepenumero huius industriae effectorum clientelam transeant, id etiam vindicari poterit, ut nimirum effectores iidem res proferant, quae propositis nostris omnino respondeant, quaeque non modo scaenicis hisce catholicorum spectationibus, sed ceteris etiam inservire queant.
+
+Haud ignoramus equidem Officii huius constitutionem non mediocres a christifidelibus postulare labores, postulare sumptus. Nihilo secius magnum huius causae momentum, itemque necessitas cum christianae plebis integritatem, tum totius Nationis honestatem tutandi, id impensae atque operae satis superque requirunt. Siquidem ob detrimentosum illud pravae cinematographicae artis ulcus, et scholarum nostrarum, et Catholicae Actionis sodalitatum, et sacri ipsius ministerii vis atque efficacia imminuitur atque periclitatur.
+
+Animadvertendum vero est in Officium idem oportere prorsus ut viri coéant, qui tam sint huius rei industriaeque periti, quam christianae doctrinae praeceptis penitus conformati. Ac praeterea sacerdos ab Episcopis delectus eosdem dirigat ac moderetur.
+
+Mutua etiam necessitudinum notitiarumque commercia, quae inter eiusmodi Nationum Officia peropportune habeantur, hanc inspectionis operam efficientiorem procul dubio magisque concordem reddent ; qu amquam dissimiles rerum, locorumque condiciones hac in causa diligenter reputandae sunt. Ita enim, omnium catholicorum scriptorum ope, miram sentiendi, iudicandi, agendique unitatem assequi fas erit.
+
+Officia eadem non modo ex experimentis inceptorumque eventibus, in Foederatis Americae Civitatibus habitis, utilitatem opportune percipient, sed ex laboribus etiam, quos in cinematographicae artis campo catholici ceterarum regionum homines susceperint.
+
+Quodsi huius Officii sodales — quamvis optimis consiliis propositisque praestent — pro sua tamen hominum infirmitate, e recto interdum itinere deflexerint, videant sacrorum Antistites, pro sua ipsorum pastorali prudentia, ut, efficaciore quo poterit modo, illapsis erroribus medeantur ; utque debitam Officii auctoritatem ac nomen pro viribus tutentur, vel aliquem eidem attribuendo socium ampliore virtute enitentem, vel in locum eorum, qui ad gravissima haec obeunda munera non omnino apti visi fuerint, alios sufficiendo lectissimos viros.
+
+Si igitur catholici orbis Episcopi id in se receperint, ut ad impertitas normas de cinematographicis spectaculis vigilem curam agant — quod Nos, quibus pastorale eorum studium omnino perspectum est, fore non dubitamus — perutilem profecto iidem operam conferre poterunt ad optimos tuendos, relaxationis oblectationisque tempore, sui populi mores. Omnium pro certo cordatorum hominum, catholicorum non modo, sed eorum etiam qui nostram non profitentur fidem, laudes adipiscentur et adiutricem navitatem ; idque pro sua cuiusque parte efficient, ut maxima huiuscemodi vis, quae ad universas Nationes pertinet — cinematographica nempe ars — ad nobilissima quaeque provehenda proposita et ad rectioris vitae rationes commendandas convertatur.
+
+Interea vero, ut haec omina ac vota, quae paterno ex animo fundimus, virtutem sumant, divinae gratiae auxilium imploramus ; cuius sit auspex Apostolica Benedictio, quam vobis, Venerabiles Fratres, cunctoque clero ac populo, unicuique vestrum demandato, perarnanter impertimus.
+
+*Datum Romae, apud Sanctum Petrum, die XXIX mensis Iunii, in festo Ss. Apostolorum Petri et Pauli, anno MDCCCCXXXVI, Pontificatus Nostri quinto decimo*.
+
+**PIUS PP. XI**
+
+* * *
+
+(1) MATTH., XVIII, 6-7.

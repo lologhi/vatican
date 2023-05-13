@@ -1,0 +1,47 @@
+**BENEDICTUS PP. XVI**
+
+**SERVUS SERVORUM DEI**
+
+**AD PERPETUAM REI MEMORIAM**
+
+LITTERAE DECRETALES
+
+*QUIBUS BEATAE MARIAE A CRUCE MACKILLOP, VIRGINI,*
+
+*SANCTORUM HONORES DECERNUNTUR**
+
+« Voluntas Dei mihi est tamquam pretiosus liber quem legere numquam me taedet » ( *Epistula ad Rev.dum Kirby*, Romae MDCCCLXXIII).
+
+Volutatem Dei quaerendi eamque in omnibus sequendi potissimum fuit propositum Sanctae Mariae a Cruce MacKillop. Inde enim a pueritia ipsa conscia fuit se in conspectu Dei esse, cuius custodiam sentiebat et a quo ferventis sensus pietatis donum se accepisse percipiebat. Ipsa intimam a divina providentia dependentiam ex matre sua Scotica didicit. Haec fiducia in Dei providentiam effecit, ut ipsa vivere posset secundum id quod Dei voluntas esse arbitrabatur, tametsi saepe videbatur deesse opes, quibus proposita sua egestatis cuiuscumque generis sublevandae ad rem deducere valeret. Haec fiducia ei concessit facultatem quemlibet dolorem tam corporalem quam spiritalem assumendi, eodem modo quo omnia recipiebat ex benevolentis Dei manu. Cum turbabatur, haec fiducia permittebat ei ut longa per temporis spatia oraret et quieto corde ex meditatione erueret se voluntatem Dei amplecturam esse in omnibus quae evenissent.
+
+Nata die XV Ianuarii anno MDCCCXLII Melburni, quod oppidum ad coloniam Novae Vallis Meridianae eo tempore pertinebat, Maria prima fuit inter octo liberos, orta ex Alexandro MacKillop et Flora MacDonald, a Scotia migratis, qui filios magna fidei catholicae diligentia imbuerunt. Quandoquidem familia egestati subiecta est et pater aliquando labore carebat, Maria ab adulescentia operabatur ad impensas domesticas conferendas. Etsi iam a pueritia se vocari ad vitam religiosam gradatim sensit, sollicitam se praebebat de familia curanda. Dum munere institutricis Penolae fungebatur, in familiaritatem venit presbyteri Iuliani Tenison Woods qui parochus multorum fidelium fuit in Meridiana-Oriente regione Australiae Meridionalis. Etenim complures primorum advenorum, qui ad Australiam pervenerunt, eo quod ex stirpe damnatorum oriebantur, indocti erant ac plurimi catholici ab stirpe Hibernica austerae segregationi subiciebantur. Pauci sacerdotes exstiterunt ut populo servirent. Tunc scholae, valetudinaria et socialia ministeria assistentiae deerant, potissimum ad egenos iuvandos, inter quos multi rustici catholici opem ferebant. Desiderium Mariae gratis instruendi pueros congruebat cum desiderio Reverendi Domini Woods qui, consiliarius eius et moderator spiritus constitutus, vocationi eius favit. Una cum eo illa consilium cepit sororum constituendi congregationem quae, commorantes in conventiculis aut in omne genus incolarum domiciliis — tuguriis, tabernaculis, mapaliis luteis — in regionibus ruralibus laborare possent. Propositum re vera audax exstitit. Anno MDCCCLXVI, Maria Penolae in stabulo a fratre suo refecto docere coepit. His sub humilibus inceptis, suadente et adhortante Reverendo Domino Woods, fundata est Congregatio Sororum Sancti Ioseph a Sacro Corde Iesu.
+
+Deinde Soror Maria ad urbem Adelaidensem migravit ubi congregatio floruit. Presbyter Woods et Soror Maria sibi proposuerunt ut omnes sorores ab una Moderatrice in aliqua sede stabili regerentur, servata tamen libertate sororum proficiscendi quocumque opus fuerit. Haec vero gubernandi ratio disceptationes admovit inter quosdam Episcopos dum novum Institutum crebrescebat. Implicatae quidem condiciones Episcopum Adelaidensem adduxerunt ad Mariam excommunicandam anno MDCCCLXXI, quam sententiam ipse abrogavit antequam de vita decessit, quod accidit sex mensibus post.
+
+Deinde suasa est Romam se conferre ut a Summo Pontifice Beato Pio IX consilium peteret. Etiamsi approbationem definitivam pro Instituto eo tempore non accepit — approbatio enim data est anno MDCCCLXXXVIII — firmiore tamen spe de visitatione Romae nutrita est, praesertim ex tribus colloquiis cum Beato Pio IX habitis. Beata Maria indefatigabili semper navitate ad miserias egenorum sublevandas contulit. Potissimum erat ei dictum : « Quoties necessitatis signum advertis, statim auxilium adfer ». Pietas eius erga Sacratissimum Cor Iesu, Augustissimum Sacramentum necnon Sanctum Ioseph eam impulit ad Evangelii consilia persequenda. Attentio animi ad voluntatem Dei eam duxit ad amplectenda tam gaudia quam angustias quae saepenumero eam afflixit.
+
+Quam maximam observantiam habuit erga omnes homines, quorum inopiis succurrit. Nihil eius referebat cuiusnam gentis vel religionis essent. Totam per vitam adversa valetudine afflicta fuit ita ut gravibus necnon debilitantibus capitis doloribus saepe lecto teneretur. Talibus autem moribus utebatur ut ad Deum appropinquaret. Sexaginta aetatis annos agens apoplexia cerebri correpta est ; nihilominus fungi perrexit officio Moderatoris Generalis, immo nonnullos conventus longinquos visitare potuit.
+
+Sequentibus annis Maria MacKillop, etsi acerbis doloribus afflicta, Instituto, quoad potuit, sollicite operam dedit. Dolores re vera fortissimo et aequo animo toleravit, iucundiore aspectu cuilibet rei prospexit et de Dei voluntate semper est locuta. Anno MCMIX valetudo eius in peius ruit et eodem anno die VIII mensis Augusti apud domum generalem Sydneii Septentrionalis mortem placide subiit. Tres Pontifices, scilicet [Paulus VI](http://www.vatican.va/latin/popes_latin/latin_hf_pvi.html), [Ioannes Paulus II](http://www.vatican.va/latin/popes_latin/latin_hf_jpii.html), et [Benedictus XVI](http://www.vatican.va/latin/popes_latin/latin_hf_bxvi.html), ad eius sepulcrum accesserunt ut orarent, et innumeri peregrini ex omnibus mundi partibus singulis annis illuc se conferunt.
+
+Quotidiana eius vita nutrita est viva fide, actuosa spe, ardenti caritate necnon apertura ad actionem gratiae divinae, quae omnia in exercitatione virtutum manifeste fuerunt. Sed praestantissima inter has dotes fulsit benignitas. Non benignitas illa quae exhibetur solum ex operibus factis, nec illa personae absconditae aut absentis, sed illa de qua sanctus Paulus in sua Epistula prima ad Corinthios scripsit : « Caritas patiens est, benigna est caritas, non aemulatur, non agit superbe, non inflatur, non est ambitiosa, non quaerit, quae sua sunt, non irritatur, non cogitat malum, ... congaudet autem veritati ; omnia suffert, omnia credit, omnia sperat, omnia sustinet » ( *1 Cor* 13, 4-7).
+
+Iam inde a morte eius, sanctitas Beatae Mariae a Cruce MacKillop palam lateque agnoscebatur tam a religiosis quam a saecularibus diurnariis simul cum populo illius regionis.
+
+Causa canonizationis Beatae Mariae a Cruce MacKillop virginis, in urbe Sydneyensi anno MCMXXV incohata est. Die XIII mensis Iunii anno MCMXCII [Ioannes Paulus II](http://www.vatican.va/latin/popes_latin/latin_hf_jpii.html) iussit ut Congregatio de Causis Sanctorum Decretum ederet circa virtutum heroicitatem. Die VI mensis Iulii anno MCMXCIII [Ioannes Paulus II](http://www.vatican.va/latin/popes_latin/latin_hf_jpii.html) Decretum promulgavit super miraculo a Deo patrato per intercessionem Venerabilis Mariae a Cruce MacKillop virginis. Die XIX mensis Ianuarii anno MCMXCV, occasione itineris pastoralis sui in Australiam, Sydneii intra Eucharisticam celebrationem, [Ioannes Paulus II](http://www.vatican.va/latin/popes_latin/latin_hf_jpii.html) Mariam a Cruce MacKillop Beatam declaravit. Ad canonizationem quod attinet, die VII mensis Maii anno MMIX, medici recognoverunt sanationem cuiusdam mulieris a pulmonum morbo, chirurgia non curabili, celerem, perfectam, constantem et sub luce scientiae medicae inexplicabilem fuisse. Quamobrem Consultores Theologi in Congressu Peculiari die XIV mensis Iulii anno MMIX, necnon Cardinales, Episcopi et sodales Congregationis de Causis Sanctorum in Coetu Plenario die XXIX mensis Septembris eiusdem anni congregati, confirmaverunt huiusmodi sanationem miraculum fuisse divinitus patratum et intercessioni Beatae Mariae a Cruce MacKillop adscriptam.
+
+Iussu Nostro Decretum super miraculo a Congregatione de Causis Sanctorum promulgatum est die XIX mensis Decembris anno MMIX, et in Consistorio die XIX mensis Februarii anno MMX habito statuimus ut die XVII mensis Octobris anno MMX in area ante Basilicam Petrianam patente sollemnis ritus celebraretur ad Beatam Mariam a Cruce MacKillop in sanctorum numerum referendam.
+
+Hodie igitur in Foro ante Petrianam Basilicam inter sollemnia hanc pronuntiavimus formulam : Ad honorem Sanctae et individuae Trinitatis, ad exaltationem fidei catholicae et vitae christianae incrementum, auctoritate Domini nostri Iesu Christi, beatorum Apostolorum Petri et Pauli ac Nostra, matura deliberatione praehabita et divina ope saepius implorata, ac de plurimorum Fratrum Nostrorum consilio, Beatos Stanislaum Kazimierczyk, Andream Bessette, Candidam Mariam a Iesu Cipitria y Barriola, Mariam a Cruce MacKillop, Iuliam Salzano et Baptistam Varano Sanctos esse decernimus et definimus, ac Sanctorum Catalogo adscribimus, statuentes eos in universa Ecclesia inter Sanctos pia devotione recoli debere. In nomine Patris et Filii et Spiritus Sancti. Quae autem his Litteris decrevimus, nunc et in posterum rata et firma esse volumus, contrariis quibuslibet rebus minime obstantibus.
+
+*Datum Romae apud S. Petrum, die septimo decimo mensis Octobris, anno Domini bis millesimo decimo, Pontificatus Nostri sexto.*
+
+**EGO BENEDICTUS** *Catholicae Ecclesiae Episcopus*
+
+Marcellus Rossetti, *Protonot. Apost.*
+
+* * *
+
+*A.A.S., vol. CIV (2012), n. 2, pp. 79-83.
+
+© Copyright 2010 - Libreria Editrice Vaticana

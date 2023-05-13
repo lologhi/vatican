@@ -1,0 +1,17 @@
+**DISCOURS****DU PAPE JEAN-PAUL II** **AUX MEMBRES DE L'UNION CATHOLIQUE INTERNATIONAL**
+
+**DE LA PRESSE À L'OCCASION DU 75ème ANNIVERSAIRE**
+
+**DE  LA FONDATION**
+
+*Vendredi 6 décembre 2002*
+
+*Chers amis dans le Christ,*
+
+Je suis heureux d'avoir cette occasion de rencontrer les *membres de l'Union catholique internationale de la Presse*, alors que vous célébrez le 75 anniversaire de votre Organisation. Je vous adresse à tous mes salutations chaleureuses et mes meilleurs voeux dans la prière en cette heureuse occasion, et je remercie Mgr John Foley, Président du Conseil pontifical pour les Communications sociales, des paroles aimables qu'il m'a adressées en votre nom.
+
+Depuis ses débuts et jusqu'à aujourd'hui, votre Union a connu une croissance et un développement importants. On le constate en particulier dans le fait que votre Congrès mondial de 1930 a réuni 230 journalistes catholiques provenant de 33 pays différents, tandis que votre Congrès le plus récent, qui a eu lieu l'an dernier, a réuni 1080 journalistes catholiques venus de 106 pays du monde. Cette augmentation numérique a certainement été accompagnée par une conscience toujours plus aiguë de l'importance de votre identité catholique dans le domaine du journalisme, en particulier dans le contexte d'un monde en rapide mutation.
+
+Nous pourrions nous demander :  Que signifie être un journaliste catholique professionnel ? Cela signifie tout simplement être une personne intègre, une personne dont la vie personnelle et professionnelle reflète les enseignements de Jésus et de l'Evangile. Cela signifie rechercher les idéaux les plus élevés de professionnalisme, être un homme ou une femme de prière qui cherche toujours à donner le meilleur de ce qu'il a à offrir. Cela signifie avoir le courage de rechercher et de rendre compte de la vérité, même lorsque la vérité dérange ou n'est pas considérée comme « *politiquement correcte* ». Cela signifie être sensible aux aspects moraux, religieux et spirituels de la vie humaine, des aspects qui sont souvent mal compris ou délibérement ignorés. Cela signifie rendre compte non seulement des mauvaises actions et des tragédies qui ont lieu, mais également des actions positives et encourageantes accomplies au nom de ceux qui sont dans le besoin :  les pauvres, les malades, les personnes handicapées, les plus faibles, ceux qui seraient autrement oubliés par la société. Cela signifie offrir des exemples d'espérance et d'héroïsme dans un monde qui a désespérément besoin de ces deux valeurs.
+
+Chers amis, tels sont quelques-uns des aspects qui caractérisent votre vie professionnelle en tant que journalistes catholiques. Et tel est l'esprit que l'Union catholique internationale de la Presse doit toujours s'efforcer d'incarner à travers ses membres et ses activités. Avec mes félicitations sincères pour les soixante-quinze années d'éminent service à ces idéaux, je prie pour que votre Organisation continue d'être une source de fraternité et de soutien pour les catholiques qui travaillent dans le monde du journalisme. Que cela vous aide à renforcer votre engagement au Christ dans et à travers votre profession. Avec affection dans le Seigneur, je vous donne cordialement, ainsi qu'à vos familles, ma Bénédiction apostolique.

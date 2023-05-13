@@ -1,0 +1,55 @@
+***DISCOURS DE JEAN-PAUL II***
+
+***AUX ÉVÊQUES DU VENEZUELA***
+
+***EN VISITE AD LIMINA APOSTOLORUM***
+
+*15 novembre 1979*
+
+*Bien-aimés frères dans l'Épiscopat,*
+
+C'est avec grand plaisir que je vous reçois aujourd'hui en cette audience qui est comme le point culminant de la visite *ad limina* de tous les Évêques vénézuéliens. En ce moment je vous demande de leur redire à tous mon affection fraternelle de communion apostolique.
+
+Grâce aux audiences particulières qui ont eu lieu jusqu'à présent, j'ai pu me rendre compte qu'il existe parmi vous une identique correspondance à cette même communion de grâce et de mission dans le Christ qui doit animer notre service pastoral. Je fais donc miennes vos inquiétudes ; je prends part à vos afflictions et à vos sacrifices pour l'amour de l'Église, je m'associe également à vos joies et à vos espérances en la diffusion de l'Évangile. Pour tout cela je rends grâces au Seigneur et célèbre avec joie qu« *'il vous a jugés assez fidèles pour vous appeler à son service* » (1 *Tra* 1, 12).
+
+1. Je ne veux pas rappeler maintenant — car nous le savons tous — quelle est la fonction ecclésiale de l'Évêque au milieu de la communauté chrétienne. J'aimerais par contre, en considérant qu'il s'agit d'un aspect primordial de toute visite *ad limina*, vous inviter à une réflexion commune, à intensifier notre conscience collégiale, afin que notre attitude pastorale soit de plus en plus confirmée dans l'exercice de notre authentique mission qui "vise à promouvoir la charité qui procède d'un cœur pur, d'une bonne conscience et d'une foi sans détours" (1 *Tm* 1, 5).
+
+Oui, bien-aimés frères : la réalisation de l'amour mutuel, expression éloquente d'une vie greffée dans le Christ-Sauveur, est ce qui rend crédible notre inéluctable tâche évangélisatrice. Tous deux, amour et évangélisation, ont pour paramètre l'homme intérieur, c'est-à-dire la personne humaine qui doit être formée « *comme Dieu le désire* » (1 *Tm* 1, 4), grâce à la purification des cœurs, la rectitude morale des consciences et l'orientation vers Dieu par une foi vive traduite en œuvres.
+
+2. Sans perdre de vue combien il est urgent d'assurer la crédibilité de la mission ecclésiale, je considère qu'il est de mon devoir de proposer à votre réflexion sur un domaine qui, dans votre pays, exige aujourd'hui plus que jamais des soins attentifs de la part de ceux qui sont maîtres et guides du Peuple de Dieu.
+
+Je me réfère à l'institution familiale. Je sais parfaitement qu'elle est également pour vous l'objet de grandes préoccupations et que vous lui accordez une attention particulière. En effet, vous êtes conscients de la valeur inappréciable et propre pour les époux chrétiens du don du sacrement du mariage grâce auquel ils sont le signe du mystère d'unité et d'amour fécond entre l'Église et le Christ et y participent dans leur vie conjugale, dans l'accueil des enfants et leur éducation, s'aidant mutuellement à parvenir à la sainteté ( *[Lumen Gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, n. 11). Le sacrement du mariage et sa persévérance historique dans la famille s'unissent donc à l'alliance d'amour de Dieu avec l'homme, dans la création et dans la rédemption ; une alliance qui se perpétue dans l'Église, famille du Peuple de Dieu.
+
+Dans nos considérations pastorales au sujet de la vie conjugale et familiale il y a lieu, ensuite, d'aller au-delà des perspectives purement externes qui parfois ignorent ou obscurcissent en partie son sens le plus profond et naturel : l'identité propre de l'amour sanctifié par le sacrement. Nous nous contentons parfois, de consulter, peut-être un peu superficiellement, des enquêtes ou des statistiques — effectuées peut-être sur la base d'idéologies préconçues — qui recueillent des aspects susceptibles de changements et donc de manipulations, reflétant à leur tour des situations changeantes de nature culturelle, sociologique, politique, économique...
+
+N'oublions pas que derrière toutes ces analyses et statistiques se cache le grand vide qui entoure des personnes qui confessent en réalité leur propre solitude parce qu'elles n'ont pas été suffisamment éduquées au sens authentique de l'union conjugale et de la vie familiale comme vocation à une expérience féconde, unique et irremplaçable de communication, en harmonie avec le dessein initial et permanent de Dieu.
+
+Une vocation qui entraîne évidemment des devoirs et de graves responsabilités auxquels il faut répondre fidèlement par amour des enfants et par obéissance aux prescriptions divines.
+
+Devant une telle évidence nous ne pouvons qu'intensifier notre action, mobilisant tous les moyens à notre disposition. Si nous croyons vraiment au « *pouvoir salvifique de l'Église par qui la personne humaine doit être sauvée et la société humaine rénovée* » ( *[Gaudium et spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_cons_19651207_gaudium-et-spes_fr.html)*, 3), nous devons introduire et cultiver cette force et cette vérité dans la famille, au sein de laquelle la personne humaine nait et se régénère par l'action de la grâce. Où existe une vie, une vie appréciée et respectée comme un don de Dieu, la famille et la communauté ne saurait languir, la conscience morale se relâcher, l'existence quoditionne succomber sous l'ennui ; au contraire "formée comme Dieu le demande, la famille sentira pleinement sa signification dans sa connexion avec la Paternité divine.
+
+3. De même il importe de mettre en relief, en raison de son importance dans l'œuvre évangélisatrice, la mission du foyer comme école de formation. La famille chrétienne, « *école domestique* » selon une expression de mon vénéré prédécesseur [Paul VI](http://www.vatican.va/holy_father/paul_vi/index_fr.htm) ( *[Evangelii Nuntiandi](http://www.vatican.va/holy_father/paul_vi/apost_exhortations/documents/hf_p-vi_exh_19751208_evangelii-nuntiandi_fr.html)*) est le premier milieu capable de jeter la semence de l'Évangile, un milieu où parents et enfants, en tant que cellule vivante, assimilent ensemble l'idéal chrétien de servir Dieu et les frères.
+
+De ce dynamisme éducatif surgiront indubitablement quelques vocations au sacerdoce et à la vie religieuse, si nécessaires pour continuer à servir les hommes, surtout les plus pauvres, ceux qui souffrent dans la chair et dans l'esprit. Éduquer ensuite les parents à l'idée que suivre le Christ est une raison qui donne son plein sens à une vie car c'est répondre généreusement à l'appel divin.
+
+4. En plus du thème que je viens d'évoquer il y a ausssi la catéchèse qui réclame votre attention de pasteurs. Je sais que vous tendez vos efforts à mener vos fidèles vers une évangélisation progressive qui imprègne toute leur vie chrétienne. Je vous encourage à continuer et à redoubler vos efforts dans un domaine si important pour l'Église, car c'est uniquement par une action catéchistique systématique exercée en profondeur que vos communautés chrétiennes pourront réussir à vivre intégralement le message du salut et à donner un témoignage personnel et collectif des raisons profondes de son espérance dans le Christ.
+
+Cette tâche devra se réaliser en prenant comme centre le mystère de Jésus, Fils de Dieu et Rédempteur de l'homme qui continue, grâce à sa parole révélée à transmettre son enseignement salvifique à chaque être humain et à chaque moment de l'histoire et qui continue, dans les sacrements, à déployer l'efficacité de sa force divine en faveur de ceux qui vont à lui.
+
+Le but final de toute catéchèse est la rencontre vitale, consciente, personnelle avec le Christ de la foi, le Christ de l'histoire, le Rédempteur et l'espérance des hommes. Mais une catéchèse bien mise au point, partant de la vraie réalité du milieu, ne néglige pas les éléments d'authentique religiosité populaire dont l'aide se révèle sous tant de formes diverses. Bien orientés et faisant l'objet d'une catéchèse appropriée ces éléments pourront être des moyens valables conduisant à la profondeur désirée d'une vie pleine dans le Christ.
+
+Dans cette tâche et pour lui donner l'amplitude que ne permet pas la rareté des agents qualifiés de la pastorale servez vous le plus possible des moyens de la communication sociale qui peuvent multiplier vos voix, évangélisatrices. Cherchez également, dans ce domaine comme en d'autres, l'aide de laïcs et de toutes les personnes bien formées qui peuvent vous prêter une collaboration précieuse. Que d'amples perspectives peuvent s'ouvrir dans cette mission pour un grand nombre de vos meilleurs universitaires, pour ceux qui sont conscients de leur vocation chrétienne et de leur noble mission dans l'Église et dans le monde actuel !
+
+5. Il y a un autre sujet qui a une grande place dans vos esprits et qui revient fréquemment dans vos rapports quinquennaux : vos soucis devant les situations sociales que vous devez affronter dans le ministère de vos Églises.
+
+Sachez bien que la mission prioritaire et propre de l'Église est l'évangélisation. Sans doute, nous ne pouvons pas fermer les yeux sur la répercussion que le message évangélique a également sur l'ordre social. Au cours des temps l'Église a démontré une grande sensibilité à l'égard de l'être humain, victime d'injustices, d'oppressions et de violations de sa dignité d'homme et de fils de Dieu. La vision du travailleur non respecté et rémunéré comme il se doit, du paysan démuni de toute possibilité convenable d'accès à une propriété où il puisse se réaliser avec dignité, de l'habitant de certains « barrios » sans maison ni moyens de culture ou de travail, du fils d'humbles foyers n'ayant pas l'occasion d'une formation adéquate pour sa vie, de l'émigrant mal accueilli ou maltraité, sont des réalités — et nous pourrions en ajouter tant d'autres — qui réclament une juste attention de la part de tous ceux qui, dans l'Église, peuvent contribuer aux tâches d'une plus réelle humanisation des structures et des milieux pour qu'elles soient adaptées à l'homme et à sa dignité.
+
+C'est une éducation des esprits et des cœurs qui s'impose, à la lumière des principes de l'enseignement social et humanitaire de l'Église.
+
+6. Pour ne pas étendre plus cette rencontre je livre à vos considérations et à votre sensibilité de pasteurs les autres chapitres que nous avons abordé durant nos entretiens de ces récents jours.
+
+Je désire, enfin, vous dire que le Pape se sent intimement uni aux aspirations et aux espérances de l'Église de Dieu en votre pays. Dans mes prières à Dieu le Père et à la Vierge de Coromoto je garde présents tous et chacun des Vénézuéliens, demandant à Dieu. Un et Trine, que mes vœux se convertissent en chrétienne réalité.
+
+Avec grande affection je vous donne, à vous et à tous les membres de vos Églises, ma bénédiction spéciale .
+
+© Copyright 1979 - Libreria Editrice Vaticana

@@ -1,0 +1,19 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS\
+\
+en HONGRIE](https://www.vatican.va/content/francesco/fr/travels/2023/outside/documents/ungheria-2023.html)(28 - 30 avril 2023)
+
+***REGINA CÆLI***
+
+*Dimanche 30 avril 2023*
+
+[ **[Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2023/4/30/ungheria-regina-caeli.html)**]
+
+________________________________________
+
+Je remercie le Cardinal Erdő pour ses paroles. Je salue Madame la Présidente, le Premier Ministre et les Autorités présentes. Avant mon départ pour Rome, je voudrais leur exprimer, ainsi qu’aux frères Évêques, aux prêtres, aux personnes consacrées et à tout le peuple hongrois bien-aimé, ma reconnaissance pour l’accueil et pour l’affection que j’ai éprouvés ces jours-ci. Et j’exprime ma gratitude à ceux qui sont venus ici de loin et à ceux qui ont bien, et si bien, travaillé pour cette visite. À tous je dis : *köszönöm*, *Isten fizesse !*[merci, que Dieu vous récompense !] Une pensée spéciale pour les malades et pour les personnes âgées, pour ceux qui n’ont pas pu être ici, pour ceux qui se sentent seuls et pour ceux qui ont perdu la foi en Dieu et l’espérance en la vie. Je suis proche de vous, je prie pour vous et je vous bénis.
+
+Je salue les Diplomates et les frères et sœurs d’autres confessions chrétiennes. Merci de votre présence et merci parce que, dans ce pays, des confessions et des religions différentes se rencontrent et se soutiennent mutuellement. Le Cardinal Erdő a dit que l’on vit ici « à la frontière orientale de la chrétienté occidentale depuis mille ans ». Il est bien que les confins ne représentent pas des frontières qui séparent, mais des zones de contact ; et que les croyants dans le Christ mettent à la première place la charité qui unit et non pas les différences historiques, culturelles et religieuses qui divisent. L’Évangile nous unit et c’est en y revenant, aux sources, que le chemin entre les chrétiens se poursuivra selon la volonté de Jésus, Bon Pasteur qui veut que nous soyons unis en un seul troupeau.
+
+Nous nous adressons maintenant à la Vierge Marie. À elle, *Magna Domina Hungarorum*, que vous invoquez comme Reine et Patronne, je confie tous les Hongrois. Et de cette grande ville et de ce noble pays, je voudrais remettre en son cœur la foi et l’avenir de tout le continent européen, auquel j’ai pensé ces jours-ci, et de façon particulière la cause de la paix. Vierge Sainte, regarde les peuples qui souffrent le plus. Regarde surtout le tout proche peuple ukrainien meurtri, et le peuple russe, qui te sont consacrés. Tu es la Reine de la paix, répands dans le cœur des hommes et des responsables des nations le désir de construire la paix, de donner aux jeunes générations un avenir d’espérance, non de guerre ; un avenir plein de berceaux, non de tombes ; un monde de frères, non de murs.
+
+Nous nous tournons vers toi, Sainte Mère de Dieu : après la résurrection de Jésus, tu as accompagné les premiers pas de la communauté chrétienne, en la rendant persévérante et unie dans la prière (cf. *Ac* 1, 14). Ainsi tu as maintenu ensemble les croyants, en gardant l’unité par ton exemple docile et serviable. Nous te prions pour l’Église en Europe, afin qu’elle retrouve la force de la prière, pour qu’elle redécouvre en toi l’humilité et l’obéissance, l’ardeur du témoignage et la beauté de l’annonce. Nous te confions cette Église et ce pays. Toi qui as exulté pour ton Fils ressuscité, remplis nos cœurs de sa joie. Chers frères et sœurs, je vous souhaite de répandre la joie du Christ : *Isten éltessen*! [Bonne fête !]. Reconnaissant pour ces journées, je vous porte dans mon cœur et je vous demande de prier pour moi. *Isten áld meg a magyart*! [Que Dieu bénisse les Hongrois !]

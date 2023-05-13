@@ -1,0 +1,25 @@
+***DISCOURS******DU PAPE FRANÇOIS*** ***AUX DÉLÉGATIONS DES ÉQUIPES NATIONALES DE FOOTBALL***
+
+***D'ARGENTINE ET D'ITALIE***
+
+*Salle Clémentine*
+
+*Mardi**13 août 2013*
+
+*Queridos amigos,*
+
+*Chers amis,*
+
+Je vous remercie de cette visite, à l’occasion du match amical entre les équipes nationales de football d’Italie et d’Argentine. Ce sera un peu difficile pour moi de choisir quelle équipe défendre, mais par chance c’est un match amical... et qu’il le soit vraiment, je vous le demande !
+
+Je remercie les dirigeants de la Fédération italienne de football et ceux de la Fédération argentine. Je salue les athlètes des deux équipes nationales.
+
+Vous, chers joueurs, vous êtes très populaires : les gens vous suivent beaucoup, pas seulement quand vous êtes sur le terrain mais en dehors aussi. C’est une responsabilité sociale ! Je m’explique : pendant le jeu, quand vous êtes sur le terrain, on trouve la beauté, la gratuité et la camaraderie. Si un match en est dépourvu, il perd de sa force, même si l’équipe gagne. Il n’y a pas de place pour l’individualisme, mais tout est coordination au service de l’équipe. Ces trois choses peut-être, beauté, gratuité, camaraderie se trouvent résumées dans un terme sportif qu’il ne faut jamais oublier : « dilettante », amateur. Il est vrai que l’organisation nationale et internationale professionnalise le sport, et il doit en être ainsi, mais cette dimension professionnelle ne doit jamais laisser de côté la vocation initiale d’un sportif ou d’une équipe, être amateur, « dilettante ». Un sportif, même professionnel, quand il cultive cette dimension d’« amateur », fait du bien à la société, il construit le bien commun à partir des valeurs de la gratuité, de la camaraderie, de la beauté.
+
+Et cela vous conduit à penser qu’avant d’être des champions, vous êtes des hommes, des personnes humaines, avec vos qualités et vos défauts, avec votre cœur et vos idées, vos aspirations et vos problèmes. Et alors, même si vous êtes des personnalités, vous restez toujours des hommes, dans le sport et dans la vie. Des hommes, porteurs d’humanité.
+
+À vous les dirigeants, je voudrais donner un encouragement pour votre travail. Le sport est important, mais ce doit être vraiment du sport ! Le football, comme certaines autres disciplines, est devenu un grand business ! Travaillez à ce qu’il ne perde pas son caractère sportif. Promouvez vous aussi cette attitude d’« amateurs » qui, par ailleurs, élimine définitivement le danger de la discrimination. Quand les équipes suivent cette voie, le stade s’enrichit humainement, la violence disparaît et on voit à nouveau des familles dans les gradins.
+
+Je me souviens qu’enfants nous allions au stade, *El Gasómetro*, en famille, papa, maman et les enfants. Nous rentrions heureux à la maison, naturellement, surtout pendant le championnat de 1946 ! Qui sait si l’un d’entre vous réussira à marquer un but comme celui de Pontoni, qu’en dites-vous ? Je salue tout particulièrement les dirigeants et les sportifs argentins. Merci de cette visite, qui m’est si agréable. Je vous demande de vivre le sport comme un don de Dieu, une opportunité pour mettre à profit vos talents, mais aussi une responsabilité. Chers joueurs, je voudrais vous rappeler en particulier que par votre comportement, aussi bien sur le terrain qu’en dehors, dans la vie, vous êtes des points de référence. Dimanche dernier, je parlais au téléphone avec des jeunes d’un groupe, ils voulaient me saluer, j’ai parlé une demi-heure avec eux et, naturellement, le sujet préféré de ces jeunes c’était le match de demain. Ils citaient le nom de plusieurs d’entre vous et ils disaient : « Non, celui-là je l’aime bien pour telle raison, celui-ci pour telle autre, l’autre pour celle-ci ». Vous êtes un exemple, vous êtes des points de référence. Le bien que vous faites est impressionnant. Par votre conduite, par votre jeu, par vos valeurs, vous faites le bien, les gens vous regardent, profitez-en pour semer le bien. Même si vous ne vous en rendez pas compte, pour beaucoup de personnes qui vous regardent avec admiration, vous êtes un modèle, dans le bien et dans le mal. Soyez-en conscients et donnez un exemple de loyauté, de respect et d’altruisme. Vous aussi, vous êtes des artisans de l’harmonie et de la paix sociale, artisans de l’harmonie et de la paix sociale dont nous avons tant besoin. Vous aussi, vous êtes le point de référence de beaucoup de jeunes et un modèle de valeurs incarnées dans la vie. J’ai confiance dans tout le bien que vous pourrez faire auprès de ces jeunes.
+
+Chers amis, je prie pour vous, que vous portiez de l’avant cette vocation si noble du sport. Je demande au Seigneur qu’il vous bénisse et à la Vierge Mère qu’elle vous protège. Et s’il vous plaît, je vous demande de prier pour moi, afin que moi aussi, sur le « terrain » où Dieu m’a placé, je puisse jouer un match honnête et courageux pour le bien de nous tous. Merci.

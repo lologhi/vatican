@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***À LA DÉLÉGATION DU PATRIARCAT OECUMÉNIQUE***
+
+*Vendredi 29 juin 2001*
+
+*Chers Frères dans le Christ,*
+
+1. « *Béni soit Dieu, le Père de notre Seigneur Jésus Christ : dans sa grande miséricorde, il nous a fait renaître pour une espérance vivante, par la résurrection de Jésus Christ d’entre les morts, pour un héritage qui ne se peut corrompre, ni souiller, ni flétrir* » ( *1 P* 1, 3).
+
+C’est par les paroles de Pierre aux chrétiens du Pont, de Galatie, de Cappadoce, d’Asie et de Bithynie que j’ai voulu vous accueillir aujourd’hui, Frères bien-aimés, membres de la délégation du Patriarche œcuménique, Sa Sainteté Bartholomaios Ier, et du Saint-Synode du Patriarcat de Constantinople, à l’occasion de la visite que vous rendez à l’Église de Rome et dont je me réjouis du fond du cœur. « *Que la grâce et la paix soient avec vous de la part de Dieu notre Père et du Seigneur Jésus Christ* » ( *Ga* 1, 3). Soyez les bienvenus parmi nous en ces jours où nous célébrons la fête des saints Pierre et Paul.
+
+Cet échange de délégations entre l’Église de Rome et le Patriarcat œcuménique pour les fêtes patronales au cours desquelles est honorée la mémoire des Apôtres Pierre et Paul, et André, est une initiative bénie par le Seigneur. Nous pouvons même dire qu’elle est devenue désormais une pratique naturelle de fraternité ecclésiale. Je suis profondément heureux de cet usage et vivement reconnaissant au Patriarche œcuménique et au Saint-Synode des sentiments qu’ils éprouvent, comme l’Église de Rome, à l’égard de cette initiative qui nous permet de célébrer l’œuvre accomplie par le Seigneur grâce aux premiers Apôtres. De plus, cela nous permet de participer ensemble à la prière et c’est en même temps une occasion de dialogue régulier et harmonieux. Votre présence, chers Frères, vous rend participants de cette fête de l’Église de Rome.
+
+2. Parmi les premiers disciples, Jésus a appelé deux frères, Simon et André. Ils étaient pêcheurs. « *Il leur dit : ‘Venez à ma suite, et je vous ferai pêcheurs d’hommes’. Aussitôt, laissant leurs filets, ils le suivirent* » ( *Mt* 4, 19).
+
+Depuis lors, le message évangélique a été porté jusqu’aux confins de la terre et nous sommes appelées à poursuivre dans l’histoire la mission confiée aux Apôtres. Comme le Seigneur a appelé « ensemble » Pierre et André pour être pêcheurs d’hommes pour le Royaume de Dieu, c’est aussi ensemble que les successeurs des Apôtres sont invités à annoncer la Bonne Nouvelle du salut, afin que, par nos paroles et notre unité fraternelle, le monde croie.
+
+Chaque année, la présence d’une délégation catholique à la célébration eucharistique du Phanar et votre participation à la célébration qui se tient à Saint-Pierre font apparaître que nous sommes appelés par le Seigneur à cette mission commune. Cependant, l’impossibilité de prendre part ensemble à l’unique sacrifice du Christ, est pour nous tous une souffrance et un appel, pour que nous tendions à rechercher des voies qui permettront de résoudre les divergences persistant encore entre orthodoxes et catholiques.
+
+3. C’est dans ce but que les relations fraternelles entre les Églises particulières catholiques et orthodoxes, et le dialogue théologique doivent être intensifiés. Il importe d’affronter et d’éclaircir ce qu’il reste du contentieux théologique, en se fondant sur la sainte Écriture et la Tradition. Le travail de la Commission mixte doit être complété selon le programme qu’elle s’est fixé. Je sais que le Conseil pontifical pour la Promotion de l’Unité des Chrétiens, le Patriarcat œcuménique et le co-président orthodoxe de la Commission mixte sont en contact étroit pour décider ensemble de la meilleure manière de relancer le dialogue. L’Église catholique est également en liaison avec les Églises orthodoxes autocéphales et autonomes. La promotion du dialogue de la charité, qui a permis de créer les conditions nécessaires à l’ouverture du dialogue théologique, se révèle encore une fois le moyen le plus direct pour que nous nous rencontrions dans la vérité et l’affection réciproque dans le Christ.
+
+4. La fête des saints Pierre et Paul nous a de nouveau offert l’occasion de prier ensemble les saints Apôtres qui intercèdent pour tous les disciples du Christ, afin que « *tous soient un* » et soient ensemble « *pêcheurs d’hommes* » parmi les jeunes générations de ce nouveau millénaire, qui ont soif de connaître le Christ et de marcher à sa suite. Puissions-nous annoncer ensemble le Sauveur, afin de donner à ces générations « *une espérance vivante* » qui ne déçoit pas.
+
+5. Chers Frères, je vous remercie de votre visite et je vous prie de transmettre mes salutations fraternelles à Sa Sainteté Bartholomaios Ier ainsi qu’à tous les membres du Saint-Synode du Patriarcat œcuménique. Que le Seigneur demeure toujours avec nous ! Qu’Il nous guide sur les routes de son Royaume !

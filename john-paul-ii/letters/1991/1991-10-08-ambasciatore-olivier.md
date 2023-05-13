@@ -1,0 +1,31 @@
+***Message à l’Ambassadeur Alexander Borg Olivier à l’occasion du Séminaire organisé aux Nations Unies sur l’encyclique Centesimus Annus****
+
+*8 octobre 1991*
+
+A Monsieur l’Ambassadeur
+
+Alexander BORG OLIVIER
+
+Président de la Société de l’Église
+
+de la Sainte Famille de la Communauté
+
+des Nations unies
+
+En publiant l’Encyclique Centesimus annus pour commémorer le centième anniversaire du document social du Pape Léon XIII, Rerum novarum, à juste titre célèbre, j’ai non seulement voulu célébrer un moment important du passé qui témoigne de l’intérêt de l’Église pour la question sociale, mais également me référer à la situation du monde d’aujourd’hui. Centesimus annus se veut une invitation à « porter un regard “actuel” sur les “choses nouvelles” qui nous entourent et dans lesquelles nous nous trouvons immergés, pour ainsi dire » afin que les hommes et les femmes de bonne volonté puissent donner un élan plus fort au « grand mouvement pour la défense de la personne humaine et la protection de sa dignité, ce qui a contribué à travers les vicissitudes diverses de l’histoire, à construire une société plus juste ou du moins à freiner et à limiter l’injustice » (Centesimus annus, 3).
+
+Les espoirs et les attentes du présent méritent la plus grande attention, dans le but de garantir que les responsables dans les secteurs économiques, politiques, cultu­rels et religieux ne manquent pas l’occasion historique qui se présente à la famil­le humaine. C’est la raison de mon grand intérêt pour votre séminaire, et de mon soutien à cette remarquable initiative entreprise par la mission de l’Observateur permanent du Saint-Siège et de la Société de l’Église de la Sainte Famille de la Communauté des Nations unies. Je vous remercie, Monsieur l’Ambassadeur, de présider cette réunion et je salue tous ceux qui y participent. J’adresse un salut particulier au Secrétaire général des Nations unies, Monsieur Javier Pérez de Cuellar, et aux illustres représentants des différents pays présents pour cet événement. Je prie afin que cette réflexion vous renforce ultérieurement dans votre engagement déjà profond pour la consolidation de la justice et de la paix dans le monde.
+
+Les transformations des derniers mois ont fait baisser les tensions idéologiques qui avaient caractérisé la vie internationale pendant de nombreuses décennies. Mais cette nouvelle situation ne doit pas nous faire perdre de vue le fait que d’immenses problèmes d’injustice et de souffrance humaine continuent à frapper des millions d’êtres humains. il existe de nombreuses situations tragiques qui exigent une réponse immédiate et plus généreuse de la part de la communauté internationale. En outre, la nature de plus en plus planétaire des processus économiques et de production implique que la lutte pour le développement et la justice doit nécessairement tenir compte de l’interdépendance des peuples et des nations. Une sensibilité et une solidarité globales envers les peuples les plus pauvres du monde est plus que jamais nécessaire. Si la famille humaine dans son ensemble n’apprend pas à parcourir la voie de la coopération et de la solidarité et si elle n’essaie pas d’aider tous les hommes à partager les bienfaits du progrès, alors s’ouvrira à nous une nouvelle ère de fragmentations et de conflits endémi­ques. Le défi consiste à « situer les intérêts privés dans le cadre d’une conception cohérente du bien commun » (ibid., n. 47).
+
+Alors que vous vous réunissez pour réfléchir sur Centesimus annus, je suis certain que vous êtes de plus en plus convaincus qu’il n’est pas possible de servir le bien commun si l’on accorde pas une attention particulière aux dimensions éthiques et morales des problèmes économiques, sociaux et politiques. La tentative d’organiser la société dans un vide moral est une prétention erronée et dangereuse, car la liberté est très étroitement liée à la responsabilité, et les décisions sur la politique publique ne concernent pas seulement la responsabilité envers l’opinion publique, mais surtout envers la vérité objective sur la nature de l’homme et l’ordre de la société humaine. -
+
+Quant aux défis à affronter actuellement, les chrétiens ont une contribution essentielle à offrir. La mission spirituelle et humanitaire de l’Église les engage au cœur même de la lutte pour le développement et le progrès humain. Centesimus annus ne laisse aucun doute sur le fait que l’Église est disposée à jouer son rôle dans la construction d’un avenir meilleur pour la famille humaine : « A ceux qui, aujourd’hui, sont à la recherche d’une théorie et d’une pratique nouvelles et authentiques de libération, l’Église offre non seulement sa doctrine sociale, et d’une façon générale, son enseignement sur la personne, rachetée par le Christ, mais aussi son engagement et sa contribution pour combattre la marginalisation et la souffrance » (ibid. n. 26). Comme je l’ai écrit en conclusion de l’Encyclique : « Au troisième millénaire aussi, l’Église continuera fidèlement à faire sienne la route de l’homme, sachant qu’elle ne marche pas toute seule mais avec le Christ, son Seigneur. C’est lui qui a fait sienne la route de l’homme et qui le conduit, même s’il ne s’en rend pas compte » (ibid., n. 62).
+
+Mon espoir le plus fervent est que tous ceux qui participent au séminaire trou­vent encouragement et inspiration pour une action ultérieure en faveur de l’effet curatif et édifiant de la doctrine sociale de l’Église sur les réalités économiques et sociales. Les vérités et les valeurs de l’Évangile sur lesquelles se fonde cette doctrine, consolident l’ensemble de la société humaine et introduisent dans le travail quotidien des hommes une signification et un sens plus profonds (cf. Gaudium et spes, 40). J’élève donc mon cœur en prière vers le Seigneur de l’histoire, en lui demandant de vous bénir, Monsieur l’Ambassadeur, ainsi que tous les participants au séminaire. Que sa lumière et son aide vous accompagnent toujours.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.47 p.3.
+
+© Copyright 1991 - Libreria Editrice Vaticana

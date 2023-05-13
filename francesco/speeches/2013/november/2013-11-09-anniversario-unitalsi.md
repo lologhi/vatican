@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU PÈLERINAGE DE L'U.N.I.T.A.L.S.I.***
+
+***(UNION NATIONALE ITALIENNE POUR LE TRANSPORT DES MALADES À LOURDES***
+
+***ET DANS LES SANCTUAIRES INTERNATIONAUX)***
+
+*Salle Paul VI*
+
+*Samedi 9 novembre 2013*
+
+**[Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_R8OSUEEW)**
+
+*Chers frères et sœurs, bonjour !*
+
+Je vous salue tous avec affection, en particulier les personnes malades et les porteurs de handicap, accompagnés par les volontaires, les assistants ecclésiastiques, les responsables de section et le président national, que je remercie de ses paroles. La présence du cardinal De Giorgi, des évêques et des personnalités institutionnelles est le signe de l’estime que l’Unitalsi suscite dans l’Église et dans la société civile.
+
+Depuis 110 ans, votre association se consacre aux personnes malades ou dans des conditions de fragilité, avec un style typiquement évangélique. En effet, votre œuvre n’est pas de l’assistantialisme ou de la philanthropie, mais une authentique annonce de l’Évangile de la charité, elle est le ministère du réconfort. Et cela est important : votre œuvre est vraiment évangélique, elle est le ministère du réconfort. Je pense aux nombreux membres de l’Unitalsi présents dans toute l’Italie : vous êtes des hommes et des femmes, des mères et des pères, de nombreux jeunes qui, animés par l’amour pour le Christ et sur l’exemple du Bon Samaritain, face à la souffrance ne détournez pas votre visage de l’autre côté. Et le fait de ne pas détourner son visage de l’autre côté est une vertu : allez de l’avant avec cette vertu ! Au contraire, vous cherchez toujours à être le regard qui accueille, la main qui soulage et qui accompagne, la parole de réconfort, le baiser de tendresse. Ne vous découragez pas face aux difficultés et à la fatigue, mais continuez à donner du temps, votre sourire et de l’amour aux frères et sœurs qui en ont besoin. Que chaque personne malade et fragile puisse voir sur votre visage le visage de Jésus ; et que vous aussi vous puissiez reconnaître dans la personne qui souffre la chair du Christ.
+
+Les pauvres, également les pauvres en santé, sont une richesse pour l’Église ; et vous de l’Unitalsi, avec tant d’autres organisations ecclésiales, vous avez reçu le don et l’engagement de recueillir cette richesse, pour aider à la valoriser, non seulement pour l’Église elle-même, mais pour toute la société.
+
+Le contexte culturel et social d’aujourd’hui tend plutôt à cacher la fragilité physique, à ne la considérer que comme un problème, qui demande résignation et piété ou parfois même d’écarter les personnes. L’Unitalsi est appelée à être un signe prophétique et à aller contre cette logique du monde, la logique du rebut, en aidant ceux qui souffrent à être les protagonistes dans la société, dans l’Église et aussi dans les associations elles-mêmes. Pour favoriser la réelle insertion des malades dans la communauté chrétienne et susciter en eux un fort sentiment d’appartenance, une pastorale inclusive dans les paroisses et dans les associations est nécessaire. Il s’agit de valoriser réellement la présence et le témoignage des personnes fragiles et qui souffrent, non seulement comme les destinataires de l’œuvre évangélisatrice, mais comme les sujets actifs de cette même action apostolique.
+
+Chers frères et sœurs malades, ne vous considérez pas seulement comme un objet de solidarité et de charité, mais sentez-vous insérés de plein droit dans la vie et dans la mission de l’Église. Vous avez votre place, un rôle spécifique dans la paroisse et dans chaque milieu ecclésial. Votre présence, silencieuse mais plus éloquente que tant de mots, votre prière, l’offrande quotidienne de vos souffrances en union à celles de Jésus crucifié pour le salut du monde, l’acceptation patiente et aussi joyeuse de votre condition, sont une ressource spirituelle, un patrimoine pour chaque communauté chrétienne. N’ayez pas honte d’être un trésor précieux de l’Église !
+
+L’expérience la plus forte que l’Unitalsi vit au cours de l’année est celle du pèlerinage aux lieux mariaux, en particulier à Lourdes. Votre style apostolique et votre spiritualité font aussi référence à la Sainte Vierge. Redécouvrez-en les raisons les plus profondes ! En particulier, imitez la maternité de Marie, le soin maternel qu’Elle a pour chacun d’entre nous. Lors du miracle des noces de Cana, la Vierge s’adresse aux serviteurs et leur dit : « Tout ce qu'il vous dira, faites-le » et Jésus ordonne aux serviteurs de remplir les amphores d’eau et cette eau devient du vin, meilleur que celui servi jusqu’à présent (cf. *Jn* 2, 5-10). Cette intervention de Marie auprès de son Fils montre le soin de sa Mère envers les hommes. C’est un soin attentif à l’égard de nos besoins les plus véritables : Marie sait ce dont nous avons besoin ! Elle prend soin de nous, en intercédant auprès de Jésus et en demandant pour chacun le don du « vin nouveau », c’est-à-dire l’amour, la grâce qui nous sauve. Elle intercède toujours et prie pour nous, en particulier à l’heure de la difficulté et de la faiblesse, à l’heure de l’angoisse et de l’égarement, surtout à l’heure du péché. C’est pourquoi, dans la prière de l’ *Ave Maria,* nous demandons : « Prie pour nous, pauvres pécheurs ».
+
+Chers frères et sœurs, confions-nous toujours à la protection de notre Mère céleste, qui nous console et intercède pour nous auprès de son Fils. Qu’Elle nous aide à être pour ceux que nous rencontrons sur notre chemin un reflet de Celui qui est le « le Père des miséricordes et le Dieu de toute consolation » (2 *Co* 1, 3). Merci.

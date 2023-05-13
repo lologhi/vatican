@@ -1,0 +1,27 @@
+***DISCOURS******DU PAPE FRANÇOIS******À LA DÉLÉGATION DU COMITÉ DIRECTIF***
+
+***DE LA COMMUNION MONDIALE DES ÉGLISES RÉFORMÉES***
+
+*Vendredi 10 juin 2016*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2016/6/10/chieseriformate.html)]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je vous souhaite de tout cœur la bienvenue et je vous remercie de votre visite : « A vous grâce et paix de par Dieu, notre Père et Seigneur Jésus Christ ! » (1 Co 1, 3). Je suis reconnaissant en particulier envers M. le secrétaire général pour ses paroles.
+
+Notre rencontre d’aujourd’hui est un nouveau pas sur le chemin qui caractérise le mouvement œcuménique ; chemin béni et vecteur d’espérance, le long duquel nous essayons de vivre toujours plus en conformité avec la prière du Seigneur « afin que tous soient un » (Jn 17, 21).
+
+Dix ans se sont écoulés depuis qu’une délégation de l’Alliance mondiale des Églises réformées a rendu visite à mon prédécesseur, le Pape Benoît XVI. Entre temps, l’unification historique entre le Conseil œcuménique réformé et l’Alliance mondiale des Églises réformées, qui a eu lieu en 2010, a offert un exemple tangible d’avancée vers l’objectif de l’unité des chrétiens et a été un encouragement pour beaucoup dans le chemin œcuménique.
+
+Aujourd’hui, nous devons avant tout être reconnaissants envers Dieu pour notre fraternité retrouvée qui, comme l’a écrit saint Jean-Paul II, « n’est pas la conséquence d’une philanthropie libérale ou d’un vague esprit de famille. Elle s’enracine dans la reconnaissance de l’unique baptême et dans l’exigence qui en découle que Dieu soit glorifié dans son œuvre » (cf. Lett. enc. *Ut unum sint*, n. 42). Dans cette communion spirituelle, catholiques et réformés peuvent promouvoir une croissance commune pour mieux servir le Seigneur.
+
+Une raison particulière de gratitude est constituée par la récente conclusion de la quatrième phase du dialogue théologique entre la Communion mondiale des Églises réformées et le Conseil pontifical pour la promotion de l’unité des chrétiens, sur le thème : *La justification et la sacramentalité : la communauté chrétienne comme opératrice de justice*. Je me réjouis de constater que le rapport final souligne bien le lien nécessaire entre la justification et la justice. Notre foi en Jésus, en effet, nous pousse à vivre la charité par le biais de gestes concrets, capables d’influer sur notre style de vie, sur les relations et sur la réalité qui nous entoure. Sur la base de l’accord sur la doctrine de la justification, il existe de nombreux domaines où les réformés et les catholiques peuvent collaborer pour témoigner ensemble de l’amour miséricordieux de Dieu, véritable antidote face au sentiment d’égarement et à l’indifférence qui semblent nous entourer.
+
+En effet, aujourd’hui, nous faisons souvent l’expérience d’une « désertification spirituelle ». Surtout là où l’on vit comme si Dieu n’existait pas, nos communautés chrétiennes sont appelées à être des « amphores » qui désaltèrent avec l’espérance, des présences en mesure d’inspirer la fraternité, la rencontre, la solidarité, l’amour authentique et désintéressé (cf. Exhort. ap. *Evangelii gaudium*, nn. 86-87) ; celles-ci sont tenues d’accueillir et de raviver la grâce de Dieu, pour ne pas se fermer sur elles-mêmes et s’ouvrir à la mission. Il n’est pas possible en effet de communiquer la foi en la vivant de manière isolée ou en groupes fermés et séparés, dans une sorte de fausse autonomie et d’immanentisme communautaire. En agissant de la sorte, on ne parvient pas à répondre à la soif de Dieu qui nous interpelle et qui émerge également de multiples nouvelles formes de religiosité. Celles-ci risquent parfois d’entraîner le repli sur soi et sur ses propres besoins, favorisant une sorte de « consumérisme spirituel ». Par conséquent, si les hommes de notre temps « ne trouvent pas une spiritualité qui les guérisse, les libère, les comble de vie et de paix et les appelle en même temps à la communion solidaire et à la fécondité missionnaire, ils finiront par être trompés par des propositions qui n’humanisent pas ni ne rendent gloire à Dieu » (cf. ibid., n. 89).
+
+Il y a un besoin urgent d’œcuménisme qui, par l’effort théologique pour recomposer les controverses doctrinales entre les chrétiens, promeuve *une mission commune d’évangélisation et de service*. Il y a déjà indubitablement beaucoup d’initiatives et beaucoup de collaborations en divers lieux. Mais nous pouvons tous ensemble faire plus, pour offrir un témoignage vivant à « quiconque vous demande raison de l'espérance qui est en vous » (cf. 1 P. 3, 15) : transmettre l’amour miséricordieux de notre Père, que nous recevons gratuitement et que nous sommes généreusement appelés à redonner.
+
+Chers frères et sœurs, en vous renouvelant ma gratitude pour votre présence et pour votre engagement au service de l’Évangile, j’exprime le désir que cette rencontre soit un signe concret de notre détermination persévérante à marcher ensemble dans le pèlerinage vers la pleine unité. Que nos retrouvailles puissent encourager toutes les communautés réformées et catholiques à continuer à travailler ensemble pour transmettre la joie de l’Évangile aux hommes et aux femmes de notre temps. Que Dieu vous bénisse tous.

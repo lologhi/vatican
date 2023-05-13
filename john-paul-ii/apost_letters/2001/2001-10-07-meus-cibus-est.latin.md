@@ -1,0 +1,27 @@
+**IOANNES PAULUS PP. II**
+
+**LITTERAE** **APOSTOLICAE**
+
+***MEUS CIBUS EST****
+
+VENERABILI SERVAE  DEI EUGENIAE PICCO
+
+BEATORUM HONORES DECERNUNTUR
+
+Ad perpetuam rei memoriam. — « Meus cibus est, ut faciam voluntatem eius, qui misit me, et ut perficiam opus eius » ( *Io* 4, 34). Haec verba Divini Magistri sublimiter resonant in vita Venerabilis Dei Servae Eugeniae Picco, quae divinam voluntatem constituit suum unicum et constans studium.
+
+Ipsa nata est in loco vulgo dicto *Crescenzago*, in archidioecesi Mediolanensi, die VIII mensis Novembris anno MDCCCLXVII ex Iosepho Picco et Adelaide del Corno. Pater eius fuit valens musicus, sed visu carens ; mater mulier erat satis frivola. Eugenia crevit religiosa circumdata indifferentia. Quadam vespere mense Maio anni MDCCCLXXXVI, eum spiritu intensam incumberet in orationem, vocari se percepit ad sanctitatem : quae profunda conversio irrevocabiliter vitam eius reformavit. Viginti annos nata fugit e domo atque decrevit se totamque vitam suam Christo consecrare. Parmae intravit religiosam Familiam Parvarum Filiarum Sacrorum Cordium Iesu et Mariae, statim accepta et intellecta a Fundatore, venerabili presbytero Augustino Chieppi. Expleto anno noviciatus, die X mensis Iunii anno MDCCCXCI prima emisit vota in manus ipsius Conditoris ; deinde professionem perpetuam nuncupavit die I mensis Iunii anno MDCCCXCIV. Mense Septembri eiusdem anni electa est ad Magnum Consilium, atque insequentibus annis varia munera maioris fiduciae ei sunt coneredita. Die XIX mensis Iunii anno MCMXI electa est Antistita Generalis sui Instituti, quod officium fideliter explere perrexit usque ad mortem. Obiit die VII mensis Septembris anno MCMXXI, vitae suae LV anno, e quibus XXXIV consecravit Deo. In sua Congregatione fuit sapiens et prudens moderatrix sororum, ad mentem Fundatoris. Plane cooperans cum Ecclesia loci, se matrem praebuit omnium, singulari modo pauperum, quibuscum communicabat angustias, certamina et spes. Ab ipsa sua ingressione in Congregationem Serva Dei firmiter declaravit se sanctitatem appetere suumque propositum confirmavit voto res perfectiores sequendi. Haec viva synthesis contemplationis et actionis, incipiens a cotidiana participatione in Eucharistia, fundamentum fuit spiritualis eius experientiae nec non caritatis ardoris. Plena oblatione res cotidianas ipsa vixit modo extraordinario. In vita sua Serva Dei conata est semper auscultare vocem Domini, numquam se subtrahens a ministeriis, quae caritas erga proximum ab ipsa postulabat. Parmae se oneravit plebis paupertate, necessitatibus succurrens adulescentium et familiarum indigentium, assistens victimas belli, quod hoc tempore saeviit in Europa. Etiam in conspectu passionis, cum inevitabilibus momentis difficultatis et turbationis quae ipsa secum fert, Mater Eugenia Picco valuit experientiam doloris vertere in occasionem purificationis interiorisque incrementi. Quapropter nunc ipsa docere omnes potest quomodo debeant aggredi difficilia rerum adiuncta, auxiliante Dei gratia, servire Ecclesiae virtute contemplationis et occurrere fratribus caritatis ardore. Ab ea discimus artem auscultandi vocem Domini, ut credibiles testes simus Evangelii caritatis hoc tertio incipiente millennio. Beatificationis et canonizationis Causa Parmae incohata est anno MCMXLV. Expletis iure statutis, die XVIII mensis Februarii anno MCMLXXXIX declaravimus Servam Dei exercuisse heroum gradu virtutes theologales, cardinales iisque adnexas. Die XX mensis Decembris anno MCMXCIX coram Nobis promulgatum est decretum super mirum intercessioni Servae Dei adscriptum. Deinde decrevimus ut ritus beatificationis die VII mensis Octobris insequentis anni celebraretur. Hodie igitur in Petriano foro inter Missarum sollemnia hanc protulimus formulam :
+
+« Nos, vota Fratrum Nostrorum Narsetis Petri XIX, Patriarchae Ciliciae Armenorum, Huberti Luthe, Episcopi Essendiensis, Ioachimi Illiano, Episcopi Nucerini Paganorum-Sarnensis, Ioannis Claudii Cardinalis Turcotte, Archiepiscopi Marianopolitani, Silvii Caesaris Bonicelli, Episcopi Parmensis, et Renardi Lettman, Episcopi Monasteriensis, necnon plurimorum aliorum Fratrum in episcopatu multorumque christifidelium explentes, de Congregationis de Causis Sanctorum consulto, Auctoritate Nostra Apostolica facultatem facimus ut Venerabiles Servi Dei Ignatius Maloyan, Nicolaus Gross, Alfonsus Maria Fusco, Thomas Maria Fusco, Aemilia Tavernier Gamelin, Eugenia Picco et Maria Euthymia Üffing Beatorum nomine in posterum appellentur, eorumque festum : Ignatii Maloyan sabbato proximo diei undecimae Iunii, Nicolai Gross die vicesima tertia Ianuarii, Alfonsi Mariae Fusco die septima Februarii, Thomae Mariae Fusco die vicesima quarta Februarii, Aemiliae Tavernier Gamelin die vicesima tertia Septembris, Eugeniae Picco die septima Septembris et Mariae Euthymiae Üffing die nona Septembris in locis et modis iure statutis quotannis celebrari possit. In nomine Patris et Filii et Spiritus Sancti. Quae autem his Litteris decrevimus nunc et in posterum rata et firma esse volumus, contrariis rebus quibuslibet non obstantibus.
+
+*Datum Romae, apud Sanctum Petrum, sub anulo Piscatoris, die VII mensis Octobris, anno MMI, Pontificatus Nostri tertio et vicesimo.*
+
+*De mandato Summi Pontificis*
+
+ANGELUS card. SODANO
+
+* * *
+
+*A.A.S., vol. XCIV (2002), n. 9, pp. 563-565
+
+© Copyright 2001 - Libreria Editrice Vaticana

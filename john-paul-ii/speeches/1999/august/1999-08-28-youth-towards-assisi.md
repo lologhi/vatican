@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***AUX PARTICIPANTS AU PREMIER CONGRÈS INTERNATIONAL : « LES JEUNES VERS ASSISE »***
+
+*Samedi 28 août 1999*
+
+*Très chers jeunes,*
+
+1. C'est avec une véritable joie que je vous accueille au terme de votre premier congrès international intitulé « Les jeunes vers Assise », qui s'est déroulé sous forme de pèlerinage, en marchant sur les traces de saint François d'Assise. Bienvenus ! Je vous salue tous avec affection.
+
+Je remercie chacun de vous de la contribution que vous avez offerte à la réussite de l'initiative ; je remercie le Ministre général des Frères mineurs conventuels des paroles courtoises qu'il m'a adressées. J'exprime ma satisfaction, en particulier, aux Frères mineurs conventuels qui vous ont proposé ce pèlerinage singulier comme un temps d'expérience pré-jubilaire, en préparation à la XVème Journée mondiale de la jeunesse de l'An 2000 qui se tiendra à Rome dans environ un an. Je leur souhaite de savoir vivre constamment leur consécration comme un don que le Seigneur fait à l'Eglise, fidèles au style de vie transmis à l'Ordre par le Poverello d'Assise.
+
+2. Très chers jeunes garçons et jeunes filles, l'itinéraire qui vous a conduit dans des lieux si chers à la spiritualité mariale et franciscaine, a été rythmé par des moments de prière, de pénitence et par des rencontres de réflexion. A Padoue, à Lorette et à Assise vous avez eu l'occasion de visiter des sanctuaires significatifs de la foi en Italie et votre étape d'aujourd'hui, à Rome, complète bien votre parcours spirituel. Vous êtes guidés par la question suivante : « François, pourquoi le monde te suit-il ?». Je suis certain que, en écoutant les enseignements et les témoignages, vous avez pu recevoir des encouragements utiles pour adhérer de façon renouvelée à l'Evangile.
+
+Aujourd'hui vous êtes venus, sur l'exemple de saint François, rencontrer le Pape pour réaffirmer votre fidélité à l'Eglise, laquelle, disait le saint, « conserve intacts entre nous les liens de la charité et de la paix... En sa présence fleurira toujours la sainte observance de la pureté évangélique et elle ne permettra pas que disparaisse, ne serait-ce que pour un instant, la bonne odeur de la vie » (2 Cel XVI, 24 : FF 611).
+
+Merci de votre visite ! Vous avez voulu me remettre, comme le fit saint François avec mon vénéré prédécesseur Honorius III, une règle de vie évangélique que vous entendez pratiquer, et vous y avez joint une contribution financière, fruit de votre journée de pénitence. Je vous remercie de tout cœur également pour cela.
+
+3. A présent, votre expérience se termine et, en retournant chez vous, vous pourrez communiquer aux jeunes de votre âge ce que vous avez éprouvé au cours de ces journées. Ce pèlerinage a certainement été une opportunité providentielle de rencontre avec le Christ et avec vous-mêmes. Il vous a donné l'occasion de contempler le visage de Dieu (cf. *Ps* 27, 8) et son admirable sainteté, confiants dans le pouvoir de guérison de sa grâce et de sa miséricorde.
+
+Soyez reconnaissants au Seigneur, d'avoir été accompagnés par des maîtres patients, qui vous ont guidés spirituellement pas à pas et, à présent, alors que vous reprenez la route vers d'autres directions, que votre cœur reste docile à l'écoute de Dieu. Reprenez vos activités normales, diffusez autour de vous la lumière qui a illuminé votre esprit. Aimez et suivez le Christ ! Parfois, lorsque le chemin devient difficile, si vous êtes assailli par la fatigue, reposez-vous à l'ombre de la prière. Dans le dialogue avec Dieu vous trouverez la paix et le réconfort.
+
+Vos compagnons de route seront les « témoins » que vous avez appris à mieux connaître et à aimer davantage au cours de ces journées. A Padoue, dans la basilique qui lui est consacrée, vous avez rencontré saint Antoine, homme évangélique qui parcourut la voie d'une patiente et jalouse rencontre avec Dieu. A Lorette, dans la Sainte Maison, l'humble cœur en écoute de Marie, la « Vierge faite Eglise », comme aimait l'appeler saint François (Salut à la B.V.M. 1 : FF 259), vous a placés face au Christ incarné. A Assise, François, cœur libre et en prière, miséricordieux et fraternel, vous a enseigné à éprouver de la compassion pour tous les hommes et toutes les créatures. En suivant l'invitation de l'Ecriture à considérer « l'issue de leur carrière, imitez, imitez leur foi. Jésus-Christ est le même hier et aujourd'hui, il le sera à jamais » ( *He* 13, 7-8).
+
+4. Très chers jeunes, votre rassemblement itinérant, qui a touché des lieux et des thèmes suggestifs de la foi, peut être considéré comme une anticipation de la Journée mondiale de la Jeunesse qui, si Dieu le veut, aura lieu ici à Rome l'année prochaine. Dès à présent, je vous invite tous à y participer. Au cœur de l'Année Sainte de l'An 2000, elle constituera en effet une occasion extraordinaire pour vous les jeunes : le Christ veut que vous soyez ses collaborateurs pour construire le nouveau millénaire, selon son dessein universel de salut. Vivre l'Evangile est certainement une tâche exigeante ; mais ce n'est qu'avec le Christ qu'il est possible d'édifier avec efficacité la civilisation de l'amour.
+
+Que vous accompagne Marie, Etoile du chemin ; que vous protègent saint Antoine, saint François et sainte Claire. Pour ma part, je reste proche de vous par la prière.
+
+Avant de vous quitter, je désire à présent vous bénir avec les paroles de l'Ecriture, si chères à François, et que que vous avez sûrement entendues de nombreuses fois : « Que Yahvé vous bénisse et vous garde ! Que Yahvé fasse pour vous rayonner son visage et vous fasse grâce ! Que Yahvé vous découvre sa face et vous apporte la paix !» (cf. *Nb* 6, 24-26 ; FF 262).

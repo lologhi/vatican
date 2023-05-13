@@ -1,0 +1,15 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX REPR**ÉSENTANTS DU MOUVEMENT MONDIAL***
+
+***DES TRAVAILLEURS CHRÉTIENS***
+
+*Mercredi 17 janvier 1973*
+
+Vivement sensible à la démarche filiale qui vous conduit à Nous à l’occasion de la Session de votre Bureau, Nous vous accueillons avec grande joie. Vous êtes pour Nous, pour l’Eglise, les représentants d’une Organisation internationale catholique qui s’est donné pour mission de révéler Jésus Christ et son Message libérateur et sauveur au monde du travail. Votre mouvement a en même temps pour tâche d’exprimer dans l’Eglise les besoins, les aspirations, l’attente spirituelle de ces millions de travailleurs, aimés d’une manière privilégiée par le Seigneur.
+
+Nous n’ignorons pas les difficultés auxquelles votre engagement apostolique vous affronte. Difficulté de faire entendre un Message spirituel à des hommes que tourmentent trop souvent, hélas, des conditions de vie matériellement précaires ou des conditions de travail épuisantes ou instables ; difficulté d’annoncer l’Evangile dans un monde que traversent et imprègnent des idéologies ou des préjugés étrangers ou hostiles à la foi chrétienne. Difficulté encore, et ce n’est pas la moins pénible, de faire reconnaître par une partie de la société, et même par certains de vos frères dans la foi, comme patrimoine de dignité et pierres d’attente du salut les efforts solidaires que votre milieu poursuit pour le respect de ses valeurs culturelles et pour l’instauration d’une plus grande justice sociale.
+
+Nous voulons vous assurer, chers Fils et chères Filles, que vos préoccupations apostoliques sont les Nôtres. C’est Notre profond désir que soit partagée par tous les Chrétiens, à quelque milieu qu’ils appartiennent, la conviction que l’Eglise ne peut être l’Eglise de Jésus Christ sans la présence et la participation du monde ouvrier, de même que le vrai salut des travailleurs ne peut être réalisé en dehors du Christ.
+
+En ce trop court moment de rencontre, Nous ne pouvons entamer un long discours sur les aspects multiples et complexes de l’apostolat en monde ouvrier. Nous nous sommes exprimé à ce sujet en des occasions récentes. Nous voudrions du moins ce matin vous renouveler Nos encouragements, vous dire Notre confiance, Notre espérance que, malgré le nombre limité de apôtres laïcs ouvriers, c’est d’abord par eux que se réalise et se réalisera de plus en plus la fondation de l’Eglise du Christ dans le monde des travailleurs. Il y faut certes le recours à une vie intérieure profonde, nourrie par l’Evangile et les sacrements ; il y faut le concours de prêtres animés d’un amour vrai, et non partisan, du monde ouvrier et de ses richesses de salut. Votre mouvement, Nous en avons la conviction, est qualifié pour susciter de nouvelles générosités au service de cet apostolat si urgent et indispensable. C’est le vœu que Nous vous portons de grand cœur, chers Fils et chères Filles, en appelant sur chacun de vous, sur vos familles, sur les membres du M.M.T.C., sur vos frères ouvriers, la Bénédiction du Seigneur.

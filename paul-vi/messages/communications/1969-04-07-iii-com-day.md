@@ -1,0 +1,31 @@
+***MESSAGE DU PAPE PAUL VI***
+
+***POUR LA IIIème JOURNÉE MONDIALE***
+
+***DES COMMUNICATIONS SOCIALES***
+
+**"Communications sociales et famille"**
+
+1969
+
+*Chers Fils et Frères, et vous tous, hommes de bonne volonté,*
+
+La célébration de la Troisième « Journée mondiale » des Communications Sociales sur le thème : « Communications sociales et famille » Nous offre une occasion que Nous saisissons avec joie - comme Nous l’avons fait lors des « journées » précédentes - d’inviter à une réflexion positive et féconde sur ce sujet tous ceux qui y sont intéressés en quelque manière. Et qui pourrait aujourd’hui prétendre qu’il n’est pas concerné par un phénomène aussi universel que l’expansion croissante de la presse, de la radio, du cinéma et de la télévision, et par la prodigieuse influence qu’ils exercent au sein des familles ?
+
+Une constatation, en effet s’impose dès l’abord : ces instruments de la Communication sociale pénètrent désormais, jusqu’au cœur de l’intimité familiale, imposent leurs horaires, font modifier les habitudes, alimentent largement conversations et discussions ; et surtout ils affectent - profondément parfois - le psychisme des usagers, tant sous l’aspect affectif et intellectuel que dans le domaine moral et même religieux. Il n’est plus d’information ou de question, peut-on dire, qui, par l’imprimé, par le son ou l’image, ne soit portée au cœur de la vie familiale, n’y influe sur le comportement de chacun et ne suscite les réactions les plus diverses.
+
+Les avantages de cette nouvelle situation sont indéniables. Il n’est pas douteux que l’évolution intellectuelle des jeunes n’en soit stimulée, que leur patrimoine culturel n’en soit enrichi, que leur esprit et leur cœur ne s’ouvrent ainsi plus facilement aux grands problèmes de la communauté humaine : la paix, la justice et le développement. Mais il est évident aussi que la force de persuasion de ces moyens nouveaux peut s’exercer en bien et en mal ; et par ailleurs un abus, même simplement quantitatif, des programmes audio-visuels peut entraîner une détérioration des valeurs de la vie de famille et avoir pour effet d’isoler les personnes au lieu de les unir. Il faut donc former les âmes à faire de ces sources d’enrichissement culturel un usage intelligent et c’est un nouveau chapitre qui vient s’ajouter ainsi à la tâche traditionnelle des éducateurs. Il est temps que la famille procède sur ce point à son « aggiornamento » et qu’avec l’indispensable collaboration de l’école, elle ait de plus en plus le souci d’éduquer les consciences à porter elles-mêmes des jugements sereins et objectifs qui les amèneront à accepter ou à rejeter tels ou tels des programmes proposés.
+
+Mais cette tâche éducative ne suffit pas. Il faut en outre qu’un dialogue permanent s’institue entre les familles et les responsables des moyens de communication sociale. Les familles doivent non seulement faire connaître leurs désirs ou leurs critiques, mais montrer aussi de la compréhension pour ceux qui, au prix souvent de bien des fatigues, leur fournissent journellement tant d’éléments de culture ou de divertissement.
+
+A leur tour, les producteurs doivent connaître et respecter les exigences de la famille. Et cela suppose parfois chez eux un grand courage et toujours un très haut sens de responsabilité. Ils doivent en effet s’interdire d’une part tout ce qui peut blesser la famille, dans son existence, sa stabilité, son équilibre, son bonheur : car toute atteinte aux valeurs fondamentales de la famille - qu’il s’agisse d’érotisme ou de violence, d’apologie du divorce ou des attitudes antisociales des jeunes - est une atteinte au vrai bien de l’homme et de la société. Et il leur incombe d’autre part la tâche difficile d’éduquer le public à connaître, apprécier, aimer, les valeurs trop souvent ignorées ou méprisées qui sont la force et la gloire d’une société: le don de soi à un grand idéal, le sens du sacrifice, l’héroïsme obscur des tâches quotidiennes.
+
+Nous invitons toutes les familles à collaborer avec les associations qui, dans un dialogue continu, font connaître aux responsables de la communication sociale leurs aspirations et leurs justes requêtes. Puisse cette journée mondiale marquer le début de ce dialogue fécond et constructif, annonce d’un avenir plus serein dans ce secteur si tourmenté de la vie moderne.
+
+Il faut enfin affronter le problème de la présence des chrétiens dans les professions qui alimentent la communication sociale. S’il est, en effet, un secteur de la vie moderne où cette présence est particulièrement nécessaire et désirable, c’est bien celui-là. Et il ne faut pas que les familles se laissent arrêter par la crainte que pourrait leur inspirer l’accès d’un des leurs à ces professions. Le mal, qui fait bien souvent plus de bruit que le bien, n’est pas lié à telle profession plus qu’à telle autre. Grâce à Dieu, dans le monde des communications sociales comme ailleurs, fleurissent de lumineux exemples de vie morale, personnelle et familiale, et il ne manque pas de journalistes, d’acteurs, de professionnels du cinéma, qui vivent leur foi en Dieu dans l’exercice serein et consciencieux de leur profession. L’histoire du christianisme peut même nous enseigner que la force du levain évangélique, non seulement ne diminue pas à proportion des difficultés que lui suscite le milieu où il est introduit, mais grandit au contraire et se développe en le vivifiant et en le transformant. Des jeunes gens ayant reçu une solide formation morale et religieuse et animés d’un authentique idéal doivent donc être encouragés à accéder aux diverses activités des communications sociales.
+
+Il faut se rendre compte de façon réaliste que, bien loin de diminuer, l’influence de ces nouvelles techniques ne fera que grandir dans la société de demain. Il faut donc tout mettre en œuvre pour que cette influence s’exerce de façon positive au sein des familles. Nous souhaitons que Notre voix, à l’occasion de cette Journée, arrive dans tous les Pays, pour y encourager les bons ouvriers des communications sociales et tous ceux qui entendent les faire servir au bien des familles et contribuer par là à assurer un avenir heureux à toute la grande famille humaine.
+
+*Du Vatican, le 7 avril 1969.*
+
+**PAULUS PP. VI**

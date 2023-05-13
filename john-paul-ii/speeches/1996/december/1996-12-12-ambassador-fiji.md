@@ -1,0 +1,25 @@
+***ADDRESS OF HIS HOLINESS JOHN PAUL II***
+
+***TO H.E. Mr FILIMONE JITOKO,***
+
+***NEW AMBASSADOR OF FIJI TO THE HOLY SEE****
+
+*Thursday, 12 December 1996*
+
+Monsieur l’Ambassadeur,
+
+1. C'est pour moi un plaisir de vous accueillir au Vatican et d'accepter les Lettres de Créance par lesquelles S.E. l'honorable Ratu Sir Kamisese Mara vous accrédite comme Ambassadeur extraordinaire et plénipotentiaire de la République de Fidji près le Saint-Siège. Je me souviens avec une grande joie de ma visite pastorale dans votre pays en 1986, au cours de laquelle j'étais entouré par la beauté de votre pays natal et par l'affection de votre peuple. Je présente à mon tour les vœux du Président et j'exprime avec joie mon estime et mon amitié à tous vos concitoyens. Dans la Communauté des nations, les efforts du Saint-Siège sont fondés sur le désir de l'Église catholique de défendre et de promouvoir « la dignité inaliénable de chaque personne, sans aucune distinction fondée sur son origine raciale, ethnique, culturelle, nationale, ou sur sa croyance religieuse » (Message pour la Journée mondiale de la Paix 1989, n. 3). L'Église se réjouit lorsque les peuples s'unissent pour bâtir une société qui respecte la dignité et les droits de chaque être humain. Il est rassurant de savoir que la République de Fidji est fermement engagée à préserver l'égalité des droits de tous ses citoyens, un principe qui constitue une base essentielle pour une société libre et juste, dont l'objectif essentiel est de permettre à ses membres d'atteindre un total développement humain. Il est également essentiel d'instaurer un climat d'harmonie et de coopération, en particulier entre les groupes d'origine ethnique différente.
+
+2, Comme le démontrent de façon si tragique les récents événements, lorsque l'intolérance s'introduit de façon insidieuse dans la vie d'une nation, l'harmonie sociale s'en trouve ébranlée. Parmi les défis auxquels doit faire face la Communauté internationale au seuil du troisième millénaire, se trouve celui d'encourager le développement pacifique des sociétés multi-religieuses et multi-culturelles. Comme Votre Excellence l'a souligné, il faut viser à atteindre l'unité nationale à travers le respect de la diversité. Les différences culturelles, religieuses et ethniques présentes dans un pays devraient être précieusement préservées comme des dons qui aident les personnes à apprécier cette unité dans la diversité de la famille humaine que Dieu a accordée. Il est plus que jamais nécessaire de promouvoir une estime profonde pour les différentes traditions à travers des programmes d'éducation qui encouragent l'enrichissement réciproque et la poursuite du bien commun (cf. Message pour la Journée mondiale de la Paix l991, n. 7). Ces programmes peuvent aider les personnes à reconnaître a la logique morale qui éclaire l'existence humaine et qui rend possible le dialogue entre les hommes et entre les peuples » (Discours à l'Assemblée générale des Nations unies, 5 octobre 1995, n. 3).
+
+Monsieur l'Ambassadeur, je vous remercie pour l'appréciation que vous avez cordialement exprimée au sujet de la contribution que les catholiques ont apportée à l'édification d'une société juste et pacifique dans vos îles. Si l'Église accorde toujours une priorité à sa vocation évangélisatrice, il est également vrai que de sa mission religieuse « *découlent une fonction, des lumières et des forces qui peuvent servir à constituer et à affermir la communauté des hommes selon la loi divine » (Gaudium et spes, n. 42). Les catholiques des îles Fidji sont engagés à œuvrer pour le bien-être de la société tout entière. C'est pourquoi je les ai exhortés, lors de ma visite à Suva, à * »œuvrer pour une société plus juste, dans laquelle les biens seront partagés de façon plus équitable et où chacun pourra mener une vie en harmonie avec leur dignité humaine » (Homélie, 21 novembre 1986, n. 7).
+
+3. La liberté de religion dont jouit votre pays a permis aux catholiques d'apporter leur contribution au véritable progrès social, en particulier dans le domaine de la santé, des services sociaux et surtout de l'éducation. Comme vous l'avez remarqué, l'Église a joué un rôle de premier plan dans le domaine de l'éducation, dans lequel elle s'est engagée non seulement à apporter ses connaissances utiles, mais aussi à développer la capacité de la jeunesse de Fidji à rechercher et à connaître la vérité, à grandir dans le respect pour les autres, à œuvrer avec espoir pour un nouvel épanouissement de l'esprit humain. Vous pouvez être assuré que l'Église catholique ‑ ses prêtres, ses religieux et ses laïcs ‑ continueront d’œuvrer pour le bien-être de votre pays en formant la conscience morale de ses citoyens.
+
+Alors que vous commencez votre mission comme Ambassadeur de la République de Fidji près le Saint-Siège, je vous assure de la coopération des différents services de la Curie romaine. Sur vous, Excellence, ainsi que sur tout le peuple de Fidji, j'invoque cordialement la Bénédiction de Dieu tout-puissant.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* 1997 n.2 p.6, 7.
+
+© Copyright 1996 -  Libreria Editrice Vaticana

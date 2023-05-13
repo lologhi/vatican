@@ -1,0 +1,39 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX OFFICIELS ET AVOCATS DU TRIBUNAL DE LA ROTE ROMAINE***
+
+***À L'OCCASION DE L'INAUGURATION DE L'ANNÉE******JUDICIAIRE***
+
+*Salle Clémentine*
+
+*Mardi 29 janvier 2019*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2019/1/29/rota-romana.html)]**
+
+* * *
+
+*Excellences, chers prélats-auditeurs,*
+
+J’adresse à chacun de vous mes salutations cordiales, en commençant par le doyen que je remercie pour ses paroles. Je salue ceux qui participent à cette rencontre : les officials, les avocats et les autres collaborateurs du Tribunal apostolique de la Rote romaine. Je vous présente à tous mes vœux les plus sincères pour l’année judiciaire que nous inaugurons aujourd’hui.
+
+La société dans laquelle nous vivons est de plus en plus sécularisée et ne favorise pas la croissance de la foi, avec pour conséquence le fait que les fidèles catholiques ont des difficultés à témoigner d’un style de vie selon l’Evangile, également en ce qui concerne le sacrement du mariage. Dans ce contexte, il est nécessaire que l’Eglise, dans toutes ses articulations, agisse de manière concordante pour offrir un soutien spirituel et pastoral approprié. Dans le ministère quotidien au service du mariage chrétien, vous faites l’expérience de deux aspects-clés fondamentaux non seulement de la théologie et du droit matrimonial canonique, mais aussi, et avant même, de l’essence de l’Eglise du Christ : l’ *unité* et la *fidélité*. Ces deux biens matrimoniaux, en effet, avant d’être, ou plutôt parce qu’ils sont des obligations juridiques de toute union conjugale dans le Christ, doivent être l’épiphanie de la foi baptismale.
+
+Pour qu’il soit validement contracté, le mariage exige que soit établie chez chacun des futurs époux une pleine *unité* et harmonie avec l’autre, afin qu’à travers l’échange mutuel des richesses humaines, morales et spirituelles respectives — presque comme des vases communicants — les deux époux deviennent un. Le mariage requiert également un engagement de fidélité, qui absorbe toute la vie, devenant durablement *consortium totius vitae* (can. 1135).
+
+Unité et fidélité sont deux valeurs importantes et nécessaires, non seulement entre les époux mais en général dans les relations interpersonnelles et dans les relations sociales. Nous sommes tous conscients des inconvénients que déterminent, dans le mariage civil, les promesses non tenues, le manque de fidélité à la parole donnée et aux engagements pris.
+
+L’ *unité* et la *fidélité*. Ces deux biens indispensables et constitutifs du mariage, demandent non seulement d’être expliqués de manière adéquate aux futurs époux, mais ils sollicitent l’action pastorale de l’Eglise, en particulier celle des évêques et des prêtres, pour accompagner la famille dans les différentes étapes de sa formation et de son développement. Cette action pastorale ne peut naturellement pas se limiter à l’exécution de pratiques, bien que celles-ci soient nécessaires et à effectuer avec soin. Une triple préparation au mariage est nécessaire : éloignée, proche et permanente. Il est bon que cette dernière comprenne de manière sérieuse et structurelle les différentes étapes de la vie conjugale, à travers une formation soignée, destinée à faire croître chez les époux la conscience des valeurs et des engagements propres à leur vocation.
+
+Les sujets principaux de cette formation matrimoniale, en vertu de leur service et de leur ministère, sont les pasteurs ; toutefois, il est plus que jamais opportun, ou plutôt nécessaire d’impliquer les communautés ecclésiales dans leurs différentes composantes, qui sont coresponsables de cette pastorale sous la direction de l’évêque du diocèse et du curé. L’obligation est donc *in solidum*, avec la responsabilité principale des pasteurs et la participation active de la communauté pour promouvoir le mariage et accompagner les familles par un soutien spirituel et formatif.
+
+Pour comprendre cette nécessité pastorale, il sera bon pour nous de considérer, dans les Ecritures, l’expérience des saints époux Aquila et Priscille. Ils furent parmi les plus fidèles compagnons de la mission de saint Paul qui les appelle avec une affection reconnaissante ses *sinergoi*, c’est-à-dire ses plus proches collaborateurs quant au zèle et au travail de l’apôtre. On est frappé et ému par cette profonde reconnaissance de la part de Paul envers l’œuvre missionnaire de ces époux ; et, dans le même temps, on peut reconnaître que cette synergie est un don précieux de l’Esprit aux premières communautés chrétiennes. Demandons donc à l’Esprit Saint de donner, aujourd’hui encore, à l’Eglise des prêtres capables d’apprécier et de valoriser les charismes des époux qui ont une foi solide et un esprit apostolique comme Aquila et Priscille.
+
+Le soin pastoral constant et permanent de l’Eglise pour le bien du mariage et de la famille demande d’être réalisé par les différents moyens pastoraux : la fréquentation de la Parole de Dieu, en particulier à travers la *lectio divina*; les rencontres de catéchèse ; la participation à la célébration des sacrements, surtout de l’Eucharistie ; l’entretien et la direction spirituelle ; la participation aux groupes familiaux et de service caritatif, pour développer la confrontation avec d’autres familles et l’ouverture aux besoins des plus désavantagés.
+
+D’autre part, les époux qui vivent leur mariage dans l’ *unité généreuse* et avec un *amour fidèle*, se soutenant mutuellement avec la grâce du Seigneur et avec le soutien nécessaire de la communauté ecclésiale, représentent à leur tour une aide pastorale précieuse pour l’Eglise. En effet, ils offrent à tous un exemple de véritable amour et deviennent des témoins et des coopérateurs de la fécondité de l’Eglise elle-même. Beaucoup d’époux chrétiens sont vraiment une homélie silencieuse pour tous, je dirais une homélie « de la semaine », de tous les jours, et nous devons malheureusement constater qu’un couple qui vit ensemble depuis longtemps ne fait pas la une — cela est triste — alors que les scandales, les séparations, les divorces font la une… (cf. [*Homélie à Sainte Marthe*, vendredi 18 mai 2018](http://w2.vatican.va/content/francesco/fr/cotidie/2018/documents/papa-francesco-cotidie_20180518_la-boussole-du-pasteur.html)).
+
+Les époux qui vivent dans l’unité et dans la fidélité reflètent bien l’image et la ressemblance de Dieu. Voici la bonne nouvelle : la fidélité est possible parce que c’est un don, chez les époux comme chez les prêtres. C’est la nouvelle qui devrait aussi rendre plus fort et consolant le ministère fidèle et plein d’amour évangélique des évêques et des prêtres ; comme l’amour et la fidélité conjugale des époux Aquila et Priscille furent un réconfort pour Paul et Apollos.
+
+Chers prélats-auditeurs, je redis à chacun ma gratitude pour le bien que vous faites au peuple de Dieu, en servant la justice à travers vos sentences. Outre l’importance du jugement en soi pour les parties intéressées, elles concourent à interpréter correctement le droit matrimonial. Ce droit se met au service de la *salus animarum* et de la foi des époux. C’est pourquoi, on comprend la référence ponctuelle des sentences de la Rote aux principes de la doctrine catholique, en ce qui concerne l’idée naturelle du mariage, avec les obligations et les droits qui en découlent, et plus encore en ce qui concerne sa réalité sacramentelle.
+
+Merci de tout cœur pour votre travail ! J’invoque sur lui l’assistance divine et je vous donne de tout cœur ma Bénédiction apostolique. Et s’il vous plaît, n’oubliez pas de prier pour moi. Merci !

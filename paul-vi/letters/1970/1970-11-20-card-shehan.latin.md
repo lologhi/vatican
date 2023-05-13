@@ -1,0 +1,17 @@
+PAULUS PP. VI
+
+***NUNTIUS GRATULATORIUS AD E.MUM P. D. LAURENTIUM IOSEPHUM S. R. E. CARDINALEM SHEHAN, ARCHIEPISCOPUM BALTIMORENSEM, QUINQUE CONDENTEM LUSTRA A SUSCEPTA ORDINATIONE EPISCOPALI.****
+
+Aeque Nobis ad proferenda, ac tibi, Venerabilis Frater Noster, ad accipienda iucunda sane et grata adveniant flagrantissima vota, quae hasce per litteras fausti eventus re cordatio nem celebraturo mittere studemus : quinque enim lustra fugax temporis orbis completurus est, ex quo ipse episcopalem ordinationem suscepisti. Bene ominantibus verbis hunc diem volumus religiosa honestare laetitia, ut durabilis eius memoria tibi animo inhaereat. Salutaribus autem precationibus, quibus in praesens tibi antiquam benevolentiam Nostram in te novam et apertiorem manifestam facimus, decet prorsus ante omnia gratulationes internecti, quibus quidem egregia existimatio et ponderatio hactenus a te gesti pastoralis muneris tibi perspicua pateat. Profecto primo Auxiliaris Antistes Baltimorensis Archiepiscopi, dein Bridgeportensis Episcopus, denique spectatissimae eidem Baltimorensi Sedi prius Coadiutor ac postea novem iam annos sacer Ordinarius pastor praepositus, digne subinde a Nobis Sacra Romana purpura exornatus, in te positae fiduciae plane et plene respondisti, ac recte agendo, sustinendo, docendo praeclare de catholica re meritus es. Profecto rectae conscientiae retinentissimus, sagax et simplex, gravis et festivus officium tuum parentis, ductoris et doctoris animorum omni cum sedulitate implevisti, in id incumbens, ut Archidioecesis istius aptae moderationi et temperationi vacares. Quocirca varia diversaque opera et consilia exsuscitasti, quibus cleri et fidelium omnis coetus, tuae vigilis adsiduaeque curae, spiritualibus necessitatibus consuleres. Hoc videtur tibi praestitisse praeceptum actionis, hunc vitae tenorem : universale omnium bonum, quod ceteris divinius est, liceat semper amare, diligere, praeferre, etiamsi eo potiri aliquando non detur. Honestamus autem te praeter cetera laude, quod, confisus Omnipotentis praesentia et ope, praecipue catholicis scholis ad incrementum provehendis atque iuventuti christiana disciplina educandae diligentiae plenas sollicitudines admovisti et admoves. Cuncta vero quae hactenus a te in rem deducta sunt, facile spondent in posterum maioris fructus messem inde editum iri, si quam maxime catholicae fidei dogma integre ab
+
+omnibus sartum tectumque semper servabitur, et cbristianae legi morum reverentia praestabitur. Quapropter ad meliora, ad maiora incessanti msu prosequenda te exstimulantes, Deum omnis gratiae, auctorem virtutum, praemiorum largitorem, pro te magnis precibus oramus : « Memor sit omnis sacrificii tui, et holocaustum tuum pingue fiat. Tribuat tibi secundum cor tuum et omne consilium tuum confirmet » (1). Ita eveniet, ut usque ad extremum halitum oris miles Christi strenuus, Sanctae Matris Ecclesiae nostrae servus bonus et fidelis, antiquis meritis nova tibi addas, usque lucentiora, quae sine casu et occasu felicitate coronet olim aetermtas. Haec imo e pectore ominatis, nihil Nobis restat, Venerabilis Frater Noster, msi ut tibi, praesertim Antistitibus Auxiliaribus tuis, Apostolicam Benedictionem, praecipuae caritatis Nostrae pignus, peramanter impertiamus hancque volumus et ad universos sacro anmversario tuo interfuturos pertinere.
+
+*Ex Aedibus Vaticanis, die XX mensis Novembris, anno MCMLXX, Pontificatus Nostri octavo.*
+
+**PAULUS PP. VI**
+
+* * *
+
+*A.A.S., vol. LXIII (1971), n. 2, pp. 108-109
+
+© Copyright 1970 - Libreria Editrice Vaticana

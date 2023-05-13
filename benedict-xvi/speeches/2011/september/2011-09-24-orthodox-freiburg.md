@@ -1,0 +1,33 @@
+[VOYAGE APOSTOLIQUE EN ALLEMAGNE\
+\
+22-25 SEPTEMBRE 2011](/content/benedict-xvi/fr/travels/2011/index_germania.html)
+
+RENCONTRE AVEC LES REPRÉSENTANTS DES ÉGLISES ORTHODOXES ET ORTHODOXES ORIENTALES
+
+***DISCOURS DU PAPE BENOÎT XVI***
+
+**Séminaire de Freiburg im Breisgau**
+
+*Samedi 24 septembre 2011*
+
+**( [Vidéo](http://player.rv.va/vaticanplayer.asp?language=it&tic=VA_HB78ER9F))**
+
+*Éminences, Excellences,*
+
+*Vénérés Représentants des Églises orthodoxes et orthodoxes orientales,*
+
+C’est avec une grande joie que nous nous rencontrons ici aujourd’hui. Je vous remercie tous de grand cœur pour votre présence et pour la possibilité de cet échange amical. Je vous remercie en particulier, cher Métropolite Augustinos pour vos paroles qui vont en profondeur. Je suis surtout ému par ce que vous avez dit sur la Mère de Dieu et sur les saints qui embrassent et unissent tous les siècles. Et en cette circonstance, je répète volontiers ce que j’ai dit ailleurs : parmi les Églises et les communautés chrétiennes, l’Orthodoxie est, sans doute, théologiquement la plus proche de nous ; catholiques et orthodoxes ont conservé la même structure de l’Église des origines ; en ce sens, nous sommes toutes « Église des origines » qui, toutefois, est toujours présente et nouvelle. Et ainsi nous osons espérer, même si humainement nous rencontrons sans cesse des difficultés, que ne soit pas pourtant si loin le jour où nous pourrons de nouveau célébrer l’Eucharistie ensemble (cf. *Lumière du Monde. Entretien avec Peter Seewald*, pp. 119 et ss.).
+
+Avec intérêt et sympathie, l’Église catholique –et moi personnellement- suit le développement des communautés orthodoxes en Europe occidentale qui, en ces dernières décennies, ont enregistré une croissance remarquable. Environ un million six cents mille chrétiens orthodoxes et orthodoxes orientaux –ai-je appris- vivent aujourd’hui en Allemagne. Ils sont devenus une partie constitutive de la société, qui contribue à rendre plus vivant le patrimoine des cultures chrétiennes et de la foi chrétienne en Europe. Je me félicite de l’intensification de la collaboration panorthodoxe qui en ces dernières années a fait des progrès essentiels. La fondation des Conférences Épiscopales Orthodoxes là où les Églises orthodoxes sont en diaspora –dont vous avez parlé-, est l’expression des relations solides à l’intérieur de l’orthodoxie. Je me réjouis qu’un tel pas ait été fait en Allemagne l’année dernière. Puissent les expériences vécues au sein de ces Conférences Épiscopales renforcer l’union entre les Églises orthodoxes et faire progresser les efforts vers un concile panorthodoxe.
+
+Depuis le temps où j’étais professeur à Bonn, et ensuite, particulièrement comme Archevêque de Munich et Freising, grâce à l’amitié personnelle avec des représentants des Églises orthodoxes, j’ai pu connaître et apprécier l’Orthodoxie d’une manière toujours plus profonde. En ce temps-là, a aussi commencé le travail de la Commission conjointe de la Conférence Épiscopale Allemande et de l’Église orthodoxe. Depuis lors, par ses textes sur des questions pastorales et pratiques, elle promeut la compréhension réciproque et contribue à renforcer et à développer les relations entre les catholiques et les orthodoxes en Allemagne.
+
+De même la continuation du travail pour élucider les différences théologiques demeure importante, car leur dépassement est indispensable pour le rétablissement de la pleine unité, que nous désirons et pour laquelle nous prions. Nous savons que c’est surtout sur la question du primat que nous devons continuer nos efforts en vue de sa juste compréhension, avec patience et humilité. Je pense qu’ici, les réflexions sur le discernement entre la nature et la forme de l’exercice du primat comme les a faites le Pape [Jean-Paul II](/content/john-paul-ii/fr.html) dans l’Encyclique [*Ut unum sint* (n. 95)](http://www.vatican.va/edocs/FRA0080/__PJ.HTM), peuvent encore nous donner des impulsions fructueuses.
+
+J’observe avec gratitude aussi le travail de la Commission mixte internationale pour le dialogue théologique entre l’Église Catholique et les Églises orthodoxes orientales. Je suis content, Vénérées Éminences et Vénérés Représentants des Églises orthodoxes orientales, de rencontrer avec vous les représentants des Églises impliquées dans ce dialogue. Les résultats obtenus font croître la compréhension mutuelle et le rapprochement les uns des autres.
+
+Dans la tendance actuelle de notre temps, où un nombre non négligeable de personnes veulent, pour ainsi dire, « libérer » la vie publique de Dieu, les Églises chrétiennes en Allemagne - parmi lesquelles également les chrétiens orthodoxes et orthodoxes orientaux -, sur la base de la foi dans l’unique Dieu et Père de tous les hommes, marchent ensemble sur le chemin d’un témoignage pacifique pour la compréhension et la communion entre les peuples. En faisant cela, elles n’omettent pas de mettre le miracle de l’incarnation de Dieu au centre de l’annonce. Conscientes que toute dignité de la personne est fondée sur ce miracle, elles s’engagent ensemble pour la protection de la vie humaine, de sa conception jusqu’à sa mort naturelle. La foi en Dieu, le Créateur de la vie, et l’absolue fidélité à la dignité de chaque personne confortent les chrétiens dans leur opposition résolue à toute intervention manipulatrice et sélective par rapport à la vie humaine. En outre, connaissant la valeur du mariage et de la famille, comme chrétiens, il nous tient beaucoup à cœur, comme une chose importante, de protéger l’intégrité et la singularité du mariage entre un homme et une femme contre toute interprétation erronée. Ici, l’engagement commun des chrétiens, parmi lesquels les fidèles orthodoxes et orthodoxes orientaux, donne une contribution précieuse à l’édification d’une société qui peut avoir un avenir, et où est porté à la personne humaine le respect dû.
+
+Je voudrais, enfin, tourner mon regard vers Marie - vous nous l’avez présentée comme *Panaghi*-, vers la *Hodegetria*, *celle qui montre le chemin*, et qui est vénérée aussi en Occident sous le titre « Notre Dame du Chemin ». La Sainte Trinité a donné à l’humanité Marie, la Vierge Mère, afin que, par son intercession, Elle nous guide à travers le temps et nous indique le chemin vers l’accomplissement. Nous voulons nous confier à elle et lui présenter notre désir de devenir, en Christ, une communauté toujours plus intimement unie, pour la louange et la gloire de son nom. Que Dieu vous bénisse tous ! Merci.
+
+© Copyright 2011 - Libreria Editrice Vaticana

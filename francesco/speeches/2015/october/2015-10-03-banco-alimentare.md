@@ -1,0 +1,29 @@
+***DISCOURS**DU PAPE FRANÇOIS******AUX PARTICIPANTS À LA RENCONTRE ORGANISÉE PAR LA BANQUE ALIMENTAIRE ITALIENNE***
+
+*Salle Paul VI*
+
+*Samedi 3 octobre 2015*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/10/3/bancoalimentare.html)]**
+
+* * *
+
+*Chers frères et sœurs, bonjour !*
+
+Je suis heureux de vous rencontrer, vous tous, associations et particuliers, qui collaborez à ce « réseau de charité» significatif appelé *Fondation Banque alimentaire*. Je salue aussi ceux qui suivent cette rencontre depuis la place Saint-Pierre. Voilà 25 ans que vous êtes quotidiennement engagés en tant que bénévoles, sur le front de la pauvreté. En particulier, votre préoccupation est celle de remédier au gaspillage de nourriture, de la récupérer et de la distribuer aux familles en difficulté et aux personnes indigentes. Je vous remercie pour ce que vous faites et vous encourage à poursuivre sur cette voie.
+
+La faim aujourd’hui a revêtu les dimensions d’un véritable « scandale » qui menace la vie et la dignité de tant de personnes — des hommes, des femmes, des enfants et des personnes âgées. Chaque jour, nous devons nous confronter à cette injustice, je dirais même plus, à ce péché, dans un monde riche de ressources alimentaires, également grâce aux immenses progrès technologiques, de trop nombreuses personnes n’ont pas le nécessaire pour survivre ; et ce, pas uniquement dans les pays pauvres, mais aussi toujours plus dans les sociétés riches et développées. La situation s’est aggravée par l’augmentation des flux migratoires, qui amènent en Europe des milliers de réfugiés ayant fui leurs pays et qui manquent de tout. Face à un problème aussi démesuré, les paroles de Jésus résonnent : « J’ai eu faim et vous m’avez donné à manger » (Mt 25, 35). Nous voyons dans l’Evangile que le Seigneur, quand il s’aperçoit que les foules venues pour l’écouter ont faim, n’ignore pas le problème et ne fait pas non plus un beau discours sur la lutte contre la pauvreté, mais effectue un geste qui étonne tout le monde : il prend le peu que les disciples ont apporté avec eux, le bénit, et multiplie les pains et les poissons, au point qu’à la fin, « l’on emporta le reste des morceaux : douze pleins couffins !» (Mt 14, 20-21).
+
+Nous ne pouvons pas accomplir un miracle comme l’a fait Jésus ; mais nous pouvons néanmoins faire quelque chose, face à l’urgence de la faim, quelque chose d’humble, et qui ait aussi la force d’un miracle. Avant toute chose, nous pouvons nous éduquer à l’humanité, à reconnaître l’humanité présente chez toute personne qui manque de tout. Sans doute Danilo Fossati, entrepreneur du secteur alimentaire et fondateur de la *Banque alimentaire*, pensait-il précisément à cela lorsqu’il confia à don Giussani son malaise face à la destruction de produits encore comestibles, en voyant ceux qui souffraient de la faim en Italie. Don Giussani en resta frappé et dit : « J’avais eu peu de fois l’occasion de rencontrer un puissant qui choisisse de donner sans rien demander en retour et je n’avais jamais connu un homme qui donnait sans vouloir apparaître... La Banque a été son œuvre. Jamais publiquement, toujours sur la pointe des pieds, il l’a suivie depuis sa naissance ».
+
+Votre initiative, qui fête ses 25 ans, prend ses racines dans le cœur de ces deux hommes, qui ne sont pas restés indifférents au cri des pauvres. Et ils ont compris que quelque chose devait changer dans la mentalité des personnes, que les murs de l’individualisme et de l’égoïsme devaient être abattus. Poursuivez avec confiance cette œuvre, mettant en pratique la culture de la rencontre et du partage. Bien sûr, votre contribution peut avoir l’air d’une goutte d’eau dans l’océan du besoin, en réalité celle-ci est précieuse ! Avec vous, d’autres s’engagent, et cela étend le fleuve qui alimente l’espérance de millions de personnes.
+
+C’est Jésus lui-même qui nous invite à faire de la place dans notre cœur à l’urgence de « donner à manger à ceux qui ont faim », et l’Eglise en a fait une des œuvres de miséricorde corporelle. Partager ce que nous avons avec eux, qui n’ont pas les moyens de satisfaire un besoin aussi basique, nous éduque à cette charité qui est un don débordant de passion pour la vie des pauvres que le Seigneur nous fait rencontrer.
+
+En partageant la nécessité du pain quotidien, vous rencontrez chaque jour des centaines de personnes. N’oubliez pas que ce sont des personnes, pas des numéros, chacun avec son fardeau de douleur qui parfois semble impossible à porter. En gardant toujours cela à l’esprit, vous saurez les regarder en face, les regarder dans les yeux, leur serrer la main, percevoir en eux la chair du Christ et également les aider à reconquérir leur dignité et à se remettre sur pieds. Je vous encourage à être des frères et des amis pour les pauvres ; à leur faire sentir qu’ils sont importants aux yeux de Dieu. Que les difficultés que vous rencontrez certainement ne vous découragent pas ; qu’elles vous poussent plutôt à vous soutenir toujours plus les uns les autres, en rivalisant de charité active.
+
+Que la Vierge, Mère de la charité, vous protège. Je vous accompagne avec ma bénédiction. Et je vous demande à vous aussi, s’il vous plaît, de prier pour moi. Merci !
+
+Prions tous ensemble la Vierge. Et je vous suggère une chose : dans la prière à la Vierge et en recevant la bénédiction, pensez à une personne, ou à deux ou trois, que nous connaissons, qui ont faim et qui ont besoin de pain de chaque jour. Ne pensons pas à nous, et demandons à la Vierge pour eux. Que le Seigneur les bénisse.
+
+[Je vous salue Marie... Bénédiction]

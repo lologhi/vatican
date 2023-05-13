@@ -1,0 +1,19 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À UNE DÉLÉGATION DE L'ALLIANCE***
+
+***MONDIALE DES ÉGLISES RÉFORMÉES***
+
+*Samedi 7 janvier 2006*
+
+Chers amis,
+
+Au début de cette nouvelle année, je vous souhaite la bienvenue, chefs de l'Alliance mondiale des Eglises réformées, à l'occasion de votre visite au Vatican. Je me souviens avec gratitude de la présence des délégations de l'Alliance mondiale [aux funérailles de mon prédécesseur le Pape Jean-Paul II](http://www.vatican.va/gpII/documents/index_fr.htm), ainsi qu'à [l'inauguration de mon ministère pontifical](/content/benedict-xvi/fr/homilies/2005/documents/hf_ben-xvi_hom_20050424_inizio-pontificato.html). Dans ces signes de respect mutuel et d'amitié, je suis heureux de voir un fruit providentiel du dialogue fraternel et de la coopération instaurés au cours des quarante dernières années, et un gage d'espérance certaine pour l'avenir.
+
+En effet, le mois dernier a marqué le quarantième anniversaire de la conclusion du Concile Vatican II, qui a vu la promulgation du Décret sur l'Oecuménisme *Unitatis Redintegratio*. Le dialogue entre l'Eglise catholique et les Eglises réformées, qui vit le jour peu après, a apporté une contribution importante au travail exigeant de la réflexion théologique et de la recherche historique indispensables pour surmonter les divisions tragiques qui sont apparues entre chrétiens au XVI siècle. L'un des résultats de ce dialogue a été d'identifier des domaines importants de convergence entre la conception de l'Eglise par les réformés en tant que *Creatura Verbi* et la conception de l'Eglise par les catholiques en tant que Sacrement primordial de la grâce de Dieu déversée dans le Christ (cf. *[Lumen gentium](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19641121_lumen-gentium_fr.html)*, n. 1). C'est un signe encourageant que l'étape actuelle du dialogue continue d'explorer la richesse et la complémentarité de ces approches.
+
+Le décret sur l'oecuménisme a affirmé qu'« *il n'y a pas  de véritable oecuménisme sans conversion intérieure* » (n. 7). Au tout début de mon Pontificat, j'ai exprimé ma conviction selon laquelle cette « *conversion intérieure est le présupposé de tout progrès sur la voie de l'oecuménisme* » ( *[Homélie dans la Chapelle Sixtine](/content/benedict-xvi/fr/messages/pont-messages/2005/documents/hf_ben-xvi_mes_20050420_missa-pro-ecclesia.html)*, 20 avril 2005) et j'ai rappelé l'exemple de mon prédécesseur Jean-Paul II, qui a souvent parlé du besoin de « *purification de la mémoire* » comme instrument pour ouvrir nos coeurs à recevoir la pleine vérité du Christ. Le défunt Pape, en particulier à l'occasion du grand Jubilé de l'An 2000, a donné un élan puissant à cet effort au sein de l'Eglise catholique, et je suis heureux d'apprendre que de nombreuses Eglises réformées qui sont membres de l'Alliance mondiale ont entrepris de semblables  initiatives. De tels gestes constituent les fondements pour construire une relation plus profonde qui doit être nourrie dans la vérité et l'amour.
+
+Chers amis, je prie pour que notre rencontre d'aujourd'hui porte elle aussi du fruit à travers un engagement renouvelé en vue de d'oeuvrer pour l'unité de tous les chrétiens. Le chemin qui nous attend exige sagesse, humilité, étude patiente et échange. Puissions-nous nous mettre en route avec une confiance renouvelée, dans l'obéissance à l'Evangile et avec l'espérance fermement enracinée dans la prière du Christ pour son Eglise, dans l'amour du Père et dans la puissance de l'Esprit Saint (cf. *Unitatis Redintegratio*, n. 24).
+
+© Copyright 2006 - Libreria Editrice Vaticana

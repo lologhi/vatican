@@ -1,0 +1,33 @@
+CHIROTONIA ÉPISCOPALE DU NOUVEL ARCHEVÊQUE MÉTROPOLITE
+
+DE PHILADELPHIE DES UKRAINIENS MGR MYROSLAW LUBACHIVSKY
+
+***HOMÉLIE DU PAPE JEAN-PAUL II***
+
+*12 novembre 1979*
+
+C'est avec une grande émotion que je me trouve aujourd'hui à l'autel pour accomplir avec vous, vénérables frères, l'acte de consécration épiscopale du nouveau Métropolite de Philadelphie des Ukrainiens.
+
+Il y a quelques semaines, durant mon voyage aux États-Unis j'ai eu la joie de visiter la cathédrale de Philadelphie.
+
+La rencontre avec l'Archevêque élu et avec les Evêques de la Province ecclésiastique de Philadelphie, avec les prêtres, les religieuses et les fidèles qui, très nombreux, s'étaient réunis autour de leurs Pasteurs, fut pour moi un événement que j'ai vécu intensément. Il est de fait que je connais de près l'histoire de votre peuple et l'histoire de l'Église qui y est liée depuis des siècles. De là vient mon empressement à imposer aujourd'hui les mains avec vous, vénérables frères, sur celui que le Saint Esprit appelle au ministère épiscopal. Il l'appelle en même temps à l'union avec le successeur de Pierre et avec toute la hiérarchie de cette Église dont le plus éminent dignitaire est notre très vénérable frère, le Cardinal Joseph Slipyj.
+
+2. Aussi, Éminence, permets que je m'adresse particulièrement à toi. Non seulement les fils et les filles de ton peuple, mais toute l'Église et le monde contemporain connaissent le témoignage exceptionnel que par ta vie difficile et, en particulier, par ton emprisonnement durant de nombreuses années, tu as donné à Jésus Christ et à l'Église née de sa Croix et de sa Résurrection. Cette incarcération t'a arraché au bien-aimé Siège de Lviv auquel t'avait nommé mon vénéré Prédécesseur [Pie XII](http://www.vatican.va/holy_father/pius_xii/index_fr.htm). C'est une grande consolation de te voir aujourd'hui parmi nous, libéré désormais depuis de nombreuses années grâce à la sollicitude de mon vénéré Prédécesseur [Jean XXIII](http://www.vatican.va/holy_father/john_xxiii/index_fr.htm), et créé Cardinal par [Paul VI](http://www.vatican.va/holy_father/paul_vi/index_fr.htm). Tu peux donc te consacrer au bien de ton peuple en vue duquel selon l'Épître aux Hébreux, tu as été constitué (cf. *He* 5, 1).
+
+Et tu continues à être constitué comme le pasteur qui offre sa vie pour ses brebis (cf. *Jn* 10, 15), exilé de cette Église qui, depuis l'an 1596, vit dans l'union avec le Siège de Pierre et lui maintient sa propre fidélité depuis bientôt 400 ans. Particulièrement durant les derniers siècles cette fidélité a été payée par de grands sacrifices. Ta vie de Pasteur en est particulièrement un exemple et une preuve.
+
+3. Je désire profiter de l'occasion présente pour manifester la vénération que le Siège Apostolique et toute l'Église catholique nourrissent à l'égard de votre Église. La fidélité témoignée à Pierre et à ses successeurs nous impose une toute particulière gratitude et, également, une réciproque fidélité à l'égard de ceux qui la gardent avec tant de fermeté et de noblesse d'âme. Nous désirons leur offrir un tribut de vérité et d'amour. Nous désirons, de toutes nos forces alléger les épreuves de ceux qui souffrent précisément à cause de leur foi. Nous désirons de tout cœur assurer l'unité interne de votre Église et l'unité avec le Siège de Pierre.
+
+Permettez, Excellence, que je manifeste les mêmes sentiments à l'égard de l'autre co-consacrant, le Métropolite Maxim Hermaniuk de Winnipeg au Canada et aux représentants de la hiérarchie de votre Église ici présents, tout comme je manifeste mon estime et mon affection à l'Église ukrainienne tout entière.
+
+5. Nous célébrons la liturgie eucharistique de consécration le jour dédié à la mémoire de saint Josaphat, évêque et martyr, que votre Église vénère comme son Patron particulier. Ses reliques qui depuis 1963, sont déposées dans la Basilique Saint-Pierre, constituent également une raison de l'événement d'aujourd'hui, au cours duquel le nouveau Pasteur est associé au corps des Evêques de votre Église en recevant l'ordination à Rome, près des reliques de ce saint martyr. Aujourd'hui toute l'Église catholique vénère saint Josaphat avec vous.
+
+5. Et toi, Mgr Lubachivsky, tu es appelé, comme nouveau pasteur du troupeau, à donner un nouveau témoignage de cette fidélité qui constitue une si importante part de la tradition de ton peuple. Comme Évêque catholique, tu es appelé à être un signe de la fidélité même de Dieu à son alliance, un signe de l'amour immortel du Christ, pour son Église. Voici le ministère qui t'es confié aujourd'hui : offrir sans cesse aux fidèles le pain de vie qui, selon les paroles de Vatican II est pris à la table tant de la parole de Dieu que du Corps du Christ (cf. *[Dei Verbum](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_fr.html)*, n. 21).
+
+Oui, par la parole et par l'exemple tu soutiendras ton peuple dans sa fidélité à l'Évangile, et tu le guideras sur la voie du salut. La parole de Dieu est une lampe pour ses pas et une lumière sur son chemin (cf. 119, 105). Et tous tes efforts tendront à cette fin : que la parole de Dieu soit la norme pratique de la vie chrétienne et porte des fruits de justice et de sainteté dans la vie de la communauté à laquelle tu présideras et que tu serviras. Par la célébration du sacrifice eucharistique tu continueras à soutenir le peuple dans la joie, le confirmant dans la paix, dans l'unité et les liens de fraternité. C'est là, vénérable frère, une grande mission dans laquelle tu seras l'héritier et le gardien d'une grande tradition, tout ensemble catholique et ukrainienne. C'est pourquoi je t'exhorte au nom de Notre Seigneur Jésus-Christ, à marcher de l'avant, dans la continuité apostolique et dans la fidélité à ta mission de proclamer au peuple l'Évangile du salut. Rentré à Philadelphie, je te prie de transmettre à tes fidèles, mon très cordial salut et ma bénédiction.
+
+6. Que cette assemblée en présence de la majesté de Dieu Tout-Puissant dans la Sainte Trinité soit une confirmation nouvelle de cette voie le long de laquelle s'avance votre peuple, en liaison avec ce grand millième anniversaire du Baptême dont vous avez entrepris les préparatifs cette année.
+
+Que l'amour de Dieu le Père, la grâce de Notre Seigneur Jésus-Christ et la communion du Saint-Esprit, par l'intercession de la très sainte et immaculée Mère du Christ, de saint Josaphat et de tous les saints, soit avec vous tous. Amen !
+
+© Copyright 1979 - Libreria Editrice Vaticana

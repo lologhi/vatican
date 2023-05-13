@@ -1,0 +1,35 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS \
+\
+AU SRI LANKA ET AUX PHILIPPINES](/content/francesco/fr/travels/2015/outside/documents/papa-francesco-sri-lanka-filippine-2015.html)
+
+(12-19 JANVIER 2015)
+
+**RENCONTRE AVEC LES AUTORITÉS ET LE CORPS DIPLOMATIQUE**
+
+***DISCOURS******DU SAINT-PÈRE***
+
+*Rizal Ceremonial Hall du Palais de Malacañang , Manille*
+
+*Vendredi 16 janvier 2015*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/it/events/event.dir.html/content/vaticanevents/it/2015/1/16/incontroautorita.html)]**
+
+* * *
+
+*Mesdames et Messieurs,*
+
+Je vous remercie, Monsieur le Président, pour votre aimable accueil et pour vos paroles de salutations au nom des Autorités et du peuple philippin, ainsi que des distingués membres du Corps Diplomatique. Je suis très reconnaissant de votre invitation à visiter les Philippines. Ma visite est avant tout pastorale. Elle a lieu alors que l’Église de ce pays se prépare à célébrer le cinquième centenaire de la première proclamation de l’Évangile de Jésus-Christ sur ces rivages. Le message chrétien a eu une immense influence sur la culture philippine. Mon espérance est que cet important anniversaire mette en relief sa fécondité constante et sa capacité à inspirer une société  digne de la bonté, de la dignité et des aspirations du peuple philippin.
+
+Cette visite veut, en particulier, exprimer ma proximité à nos frères et sœurs qui ont connu la souffrance, la perte et la dévastation causées par le typhon Yolanda. Avec beaucoup de gens à travers le monde, j’ai admiré la force héroïque, la foi et la résistance dont ont fait preuve beaucoup de Philippins face à ce désastre naturel et à beaucoup d’autres. Ces vertus, enracinées principalement dans l’espérance et la solidarité inculquées par la foi chrétienne, ont été à l’origine d’une profusion de bonté et de générosité, surtout de la part de beaucoup de jeunes. En ce moment de crise nationale, d’innombrables personnes sont venues en aide à leurs voisins dans le besoin. Avec grand sacrifice, ils ont offert leur temps et leurs ressources, en créant un réseau de secours mutuels et d’engagements pour le bien commun.
+
+Cet exemple de solidarité dans le travail de reconstruction nous enseigne une leçon importante. Toute société, telle une famille, puise dans ses ressources les plus profondes pour affronter de nouveaux défis. Aujourd’hui les Philippines, avec beaucoup d’autres nations d’Asie, se trouvent devant la nécessité de construire une société moderne fondée sur des bases solides – une société respectueuse des valeurs humaines authentiques, qui garde notre dignité ainsi que les droits humains, fondés sur Dieu, et qui soit prête à affronter de nouvelles et complexes questions éthiques et politiques. Comme l’ont signalé de nombreuses voix de votre nation, il est maintenant plus que jamais nécessaire que les dirigeant politiques se distinguent par leur honnêteté, leur intégrité et leur responsabilité envers le bien commun. Ils pourront ainsi préserver les riches ressources humaines et naturelles avec lesquelles Dieu a béni ce pays. Ils seront ainsi capables de gérer les ressources morales nécessaires pour affronter les requêtes du présent, et transmettre aux générations futures une société vraiment juste, solidaire et pacifique.
+
+L’exigence morale d’assurer la justice sociale et le respect de la dignité humaine est essentielle  à la réalisation  de ces objectifs nationaux. La grande tradition biblique prescrit à tous les peuples le devoir d’entendre la voix des pauvres et de briser les chaînes de l’injustice et de l’oppression qui donnent lieu à d’évidentes – et vraiment scandaleuses – inégalités sociales. La réforme des structures sociales qui entretiennent la pauvreté et l’exclusion des pauvres, requiert avant tout une conversion de l’esprit et du cœur. Les Évêques des Philippines ont demandé que cette année soit proclamée  « Année des Pauvres ». J’espère que cette requête prophétique provoquera en chacun, à tous les niveaux de la société, le refus ferme de toute forme de corruption qui détourne les ressources destinées aux pauvres. Puisse-t-elle inspirer des efforts concertés pour inclure tout homme, toute femme et tout enfant dans la vie de la communauté.
+
+Un rôle fondamental pour le renouvellement de la société est joué, naturellement, par la famille et spécialement par les jeunes. Un aspect particulier de ma visite sera ma rencontre avec les familles et avec les jeunes ici à Manille. Les familles ont une mission indispensable dans la société. C’est dans la famille que les enfants grandissent dans des valeurs saines, des idéaux élevés, et dans une authentique préoccupation pour les autres. Mais, comme tous les dons de Dieu, la famille peut aussi être défigurée et détruite. Elle a besoin de notre appui. Nous savons combien il est difficile aujourd’hui pour nos démocraties de préserver et de défendre ces valeurs humaines de base, comme le respect de l’inviolable dignité de toute personne humaine, le respect des droits à la liberté de conscience et de religion, le respect de l’inaliénable droit à la vie, depuis celle des enfants qui ne sont pas encore nés, jusqu’à celle des  personnes âgées et des malades. Pour cette raison, les familles et les communautés locales doivent être encouragées et assistées dans leurs efforts pour transmettre à nos jeunes les valeurs et la vision qui peut aider à créer une culture de l’intégrité – comme faire honneur à la bonté, à la sincérité, à la fidélité et à la solidarité qui sont les fondements solides et le ciment moral qui maintiennent unie la société.
+
+Monsieur le Président, illustres Autorités, cher amis,
+
+Au début de ma visite à ce pays, je ne peux pas manquer de mentionner le rôle important des Philippines dans la promotion de la compréhension et de la coopération entre les pays d’Asie, ainsi que la contribution, souvent négligée mais non moins réelle, des Philippins de la diaspora à la vie et au bien être des sociétés dans lesquelles ils vivent. C’est précisément à la lumière du riche héritage culturel et religieux dont votre nation est fière, que je vous lance un défi et un encouragement. Puissent les plus profondes valeurs spirituelles du peuple philippin continuer à trouver leur expression dans l’effort pour procurer à vos concitoyens un développement humain intégral. De cette manière, toute personne sera  capable de réaliser ses propres potentialités et ainsi contribuer sagement et bien à l’avenir du pays. J’ai confiance que les efforts louables pour promouvoir dialogue et coopération entre les membres des différentes religions porteront du fruit dans la poursuite de ce noble objectif. De façon particulière, j’exprime ma confiance que les progrès accomplis pour apporter la paix dans le sud du pays produiront des solutions justes en accord avec les principes fondateurs de la nation et dans le respect des droits inaliénables de tous, y compris ceux des populations indigènes et des minorités religieuses.
+
+Sur vous et sur tous les hommes, femmes et enfants de cette nation bien-aimée j’invoque de tout cœur les abondantes bénédictions de Dieu.

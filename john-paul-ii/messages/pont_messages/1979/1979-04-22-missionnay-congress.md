@@ -1,0 +1,35 @@
+***MESSAGE DU PAPE JEAN-PAUL II***
+
+***AU CONGRÈS NATIONAL MISSIONNAIRE D'IRLANDE***
+
+***(22-29 AVRIL 1979)***
+
+*Loué soit Jésus-Christ !*
+
+A vous tous, réunis à Knock pour célébrer le Congrès National Missionnaire : « *Grâce et paix de par Dieu, notre Père et le Seigneur Jésus-Christ !* » (1 *Co* 1, 3).
+
+Je sais que vous êtes réunis non pas seulement pour une réflexion sur le grand thème des missions mais aussi pour prier, comme pèlerins, au Sanctuaire National de Notre-Dame. En vérité, votre but est des plus élevés : avec la grâce du Saint-Esprit, raviver la ferveur et l'engagement missionnaire d'Irlande.
+
+A cet effet — pour réaliser cet objectif — vous vous efforcez de réveiller en vous-mêmes et dans l'Eglise d'Irlande tout entière une conscience nouvelle de la vocation missionnaire de tout le Peuple de Dieu, comme nous y invite tous le [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm).
+
+A cet égard, il importe que les familles se rendent compte que c'est pour elles un devoir et aussi une grande dignité de prier et d'œuvrer pour la cause des missions. Quant aux enfants, aux malades et à toutes les catégories de la communauté ecclésiale, ils doivent réaliser et apprécier la contribution qu'ils sont seuls à pouvoir offrir au Royaume de Dieu.
+
+La ferveur et l'engagement missionnaires effectivement renouvelés doivent entraîner la jeunesse à percevoir, au milieu des nombreuses voix discordantes de la société moderne, l'aimable mais fort appel du Christ. Les jeunes doivent être encouragés à accueillir cette merveilleuse invitation : le suivre en générosité et amour en sacrifice et joie — abandonner actuellement toutes choses, aller et propager l'Evangile du salut.
+
+Renouveler les idéaux missionnaires veut dire surtout pénétrer chacun de la certitude que la nature de l'évangélisation est claire comme le jour. Comme l'a écrit [Paul VI](/content/paul-vi/fr.html) : « *Il n'y a pas d'évangélisation vraie si le nom, l'enseignement, la vie, les promesses, le Règne, le mystère de Jésus de Nazareth Fils de Dieu ne sont pas annoncés* » ( *[Evangelii Nuntiandi](/content/paul-vi/fr/apost_exhortations/documents/hf_p-vi_exh_19751208_evangelii-nuntiandi.html)*, 22). Oui, évangéliser signifie porter la Bonne Nouvelle à toutes les couches de l'humanité, cela veut dire transformer l'humanité du dedans et la rendre nouvelle. L'évangélisation, et par conséquent toute l'activité missionnaire, consistent à proclamer clairement que le don de la grâce et de la miséricorde de Dieu a son fondement en son Fils bien-aimé, que le salut est en Jésus Christ. Le missionnaire se met en route pour diffuser un message d'espérance et d'amour fraternel et, dès le début, il sait tout au fond de son cœur qu'il ne saurait annoncer le nouveau commandement du Christ sans promouvoir également le véritable, l'authentique progrès de l'homme, avec justice et dans la paix.
+
+C'est grâce à l'activité missionnaire que l'Eglise s'implante ; par la parole et le sacrement qu'elle s'édifie. Et aujourd'hui, dans un monde qui évolue, l'activité missionnaire signifie souvent un service — humble, généreux et fraternel — à l'Eglise locale, de sorte qu'à son tour, cette Eglise locale se fasse missionnaire et puisse réaliser sa propre vocation. Avec les changeantes conditions dans le monde et dans l'Eglise, l'activité missionnaire prend de nouveaux aspects et requiert de nouvelles facultés d'adaptation ; elle demande une nouvelle sensibilité aux besoins des communautés chrétiennes. Mais le message reste toujours pareil : « *Jésus et Jésus crucifié* » (1 *Co* 2, 2).
+
+Le succès de toute activité missionnaire dépend de la manière de garder et d'enseigner effectivement la foi catholique telle qu'elle a été transmise par les apôtres — foi en Jésus-Christ, Fils de Dieu et Rédempteur de l'homme. L'efficacité missionnaire est tributaire de la transmission de cette foi dans toute son intégrité.
+
+Durant l'Année Sainte, [Paul VI](/content/paul-vi/fr.html), qui aimait sincèrement l'Irlande, rappela aux pèlerins irlandais ce qu'avec fierté saint Colomban avait dit à Rome à saint Grégoire le Grand. Aujourd'hui je répète cette affirmation comme incitation à votre Congrès : « *Nous, les Irlandais,... nous sommes tous des disciples de saint Pierre et de saint Paul... ; nous avons maintenu intacte la foi catholique* » (27 août 1975).
+
+Comme Successeur de Pierre et Vicaire du Christ, je fais appel aujourd'hui à une nouvelle générosité missionnaire, afin de rendre témoignage, par la parole et l'exemple, — jusqu' aux confins de la terre — de cette foi catholique inchangée. Je souhaite qu'une nouvelle génération de prêtres et de religieux prenne place — dans l'esprit des saints missionnaires du passé — à côté de leurs frères et de leurs sœurs dans les Eglises locales. Chers jeunes : Voulez-vous accepter cette invitation ? Voulez-vous répondre « oui » à cet appel ? Voulez-vous donner votre vie par amour pour le Christ et ses frères ?
+
+Et aux laïcs irlandais, chez eux ou à l'étranger, je demande de transmettre, à leurs familles spécialement — par la parole et l'action, avec un légitime orgueil et au prix de n'importe quel sacrifice, le trésor de leur foi. Partout dans le monde, des millions de familles irlandaises ont rendu au Christ et à son Eglise un glorieux et convaincant témoignage ; il importe que cela ne cesse jamais. Et je prie pour que tout le monde, chaque secteur du peuple de Dieu, tienne compte de l'impérieuse nécessité de partager la foi avec les autres. La nature la plus intime de l'Eglise le requiert. La volonté de Dieu et la gloire de la Très Sainte Trinité sont en jeu. L'Eglise est, et doit rester missionnaire jusqu'à ce que le Christ revienne dans sa gloire.
+
+Ceci est donc, j'en suis convaincu, une heure d'espoir pour l'Irlande et pour le monde. C'est le moment d'une fidélité renouvelée, d'une générosité ranimée, et d'un amour plus ardent. C'est, une fois de plus, l'heure des missions, l'heure de l'évangélisation, l'heure d'aller de l'avant et de proclamer « *l'insondable richesse du Christ* » ( *Ep* 3, 8). Et mettons notre confiance dans le Christ qui écoute notre prière : que cette génération de disciples et de missionnaires porte de nombreux fruits — des fruits qui demeurent (cf. *Jn* 15, 16).
+
+Voilà l'espoir, le désir que je confie à Marie Mère de Dieu et Mère de l'Eglise. Dans son rôle aimant de Reine des Missions elle a, tout au long des ans, été très proche des innombrables missionnaires irlandais, soutenant leur joie par la prière et leur donnant, au milieu de leurs sacrifices, la plénitude de son amour maternel. Elle se tiendra également aux côtés des générations actuelles et les protégera au moment de gagner l'aire de leur apostolat où « *les champs sont blancs pour la moisson* » ( *Jn* 4, 35).
+
+A vous tous, fils et filles d'Irlande, frères et sœurs dans la foi, je donne ma spéciale bénédiction apostolique : au nom du Père et du Fils et du Saint-Esprit ! Amen !

@@ -1,0 +1,29 @@
+***ADDRESS OF HIS HOLINESS JOHN PAUL II***
+
+***TO H.E. MR ANDERS THUNBORG***
+
+***AMBASSADOR OF SWEDEN TO THE HOLY SEE****
+
+*Saturday, 6 July 1996*
+
+Monsieur l’Ambassadeur,
+
+Je vous souhaite une cordiale bienvenue au Vatican, et j'accepte avec joie les Lettres qui vous accréditent comme Ambassadeur extraordinaire et plénipotentiaire de Suède près le Saint-Siège. Je vous remercie pour vos aimables paroles au sujet du rôle et de l'activité du Saint-Siège dans la Communauté internationale, et, en particulier, pour les vœux que vous m'avez transmis de la part de Sa Majesté le Roi Charles XVI Gustave. J'assure Sa Majesté de mon estime et je prie pour la paix durable et la prospérité de votre nation.
+
+Votre Excellence a rappelé la visite que j'ai accomplie en Suède en 1989 et particulièrement ma visite à Uppsala et à Vadstena, qui ont été comme un voyage au cœur même de l'héritage spirituel, culturel et historique de la Suède. Ce fut pour moi une merveilleuse rencontre avec le passé et le présent de la Suède. A Uppsala, j'ai eu l'occasion de rappeler les origines ecclésiastiques de la célèbre université de la ville, ainsi que la digne histoire d'éducation dans un humanisme chrétien, fondé sur les valeurs universelles, de cette institution. A Vadstena j'ai rencontré les jeunes de Suède et d'autres pays nordiques, qui représentent non seulement notre avenir mais également un défi sérieux et actuel à notre capacité à transmettre les vérités religieuses et les réalisations culturelles qui représentent le cœur même de l'identité et de l'héritage de l'Europe.
+
+La nouvelle Europe, qui sort actuellement de presque 50 ans d'efforts, auxquels la Suède a participé de façon active, ne doit pas perdre de vue les valeurs fondamentales de notre civilisation que j'ai brièvement énumérées à Uppsaia : « La dignité de la personne, le caractère sacré de la vie, le rôle central de la famille, l'importance de l'instruction la liberté de pensée d'expression, dé professer ses convictions personnelles ou sa religion, la protection légale des individus et des groupes, la collaboration de tous en vue du bien commun la notion de travail comme participation à l'œuvre même du Créateur, l'autorité de l'État, gouverné à son tour par la loi et la raison » (Rencontre avec la communauté universitaire suédoise, 9 juin 1989, n. 4).
+
+Ces valeurs sont le résultat d'une évolution intellectuelle et sociale longue et parfois difficile, « une réussite spirituelle faite de raison et de justice qui honore les peuples d'Europe dans leurs efforts pour mettre en pratique, dans l'ordre temporel, l'esprit de fraternité chrétienne enseigné par l'Évangile » (ibid). En tant que dépositaire de cet Évangile, l'Église, avec toute la gloire de ses grands hommes et femmes – saints enseignants et fondateurs, comme votre sainte Brigitte – et, en dépit des restrictions apportées par un grand nombre de ses membres, contribua à créer les conditions qui permirent cette évolution. Faut-il se demander pourquoi 1'Eglise tourne un regard plein d'espoir et d’attente vers l'Europe, et pourquoi elle lui offre la sagesse qu'elle a accumulée en vue de la tâche délicate et difficile d'édifier une véritable culture de justice, de paix et de solidarité sur ce continent ? L'Église catholique n'est pas seule à avoir ce désir. Les progrès réalisés dans les relations œcuméniques au cours des dernières décennies ont beaucoup servi à accroître la contribution de la pensée et de la vie religieuse à cette tâche commune. Je suis très heureux de savoir que les relations entre les catholiques dans votre pays et les membres de l'Église de Suède sont solidement ancrées dans l'estime réciproque et une grande coopération. Suite à mes nombreuses rencontres avec les évêques de l'Église de Suède, Je sais que nous partageons un désir profond et sincère d'atteindre le but ultime de notre engagement œcuménique : l'unité qui correspond à la volonté du Christ lui-même (cf. Jn 17 21).
+
+Les catholiques de votre pays, y compris ceux qui ont immigré récemment forment une petite minorité. Toutefois, en union avec leurs voisins luthériens et avec toutes les personnes de bonne volonté, ils contribuent activement à promouvoir les valeurs culturelles et civiles qui sont à la base d'une société juste et humanitaire. Dans leur foi ils trouvent les raisons et les ressources Pour exercer leurs droits et leurs devoirs en tant que citoyens ayant à cœur le bien de leur nation.
+
+Les relations diplomatiques entre la Suède et le Saint-Siège, officiellement établies en 1983, ont apporté de nouvelles possibilités de contact et de coopération dans le service à la paix et à la justice dans la Communauté internationale. Je voudrais exprimer combien le Saint-Siège apprécie le rôle joué Par la Suède dans les programmes de développement et d'assistance dans les régions les plus pauvres du monde, son travail dévoué dans la défense des droits humains et, en particulier, la contribution qu'elle a apportée et qu'elle continue d'apporter a la recherche de la paix dans les Balkans.
+
+Monsieur l'Ambassadeur, je suis certain que, dans l'exercice de votre mission, vos qualités personnelles et vos compétences contribueront à renforcer plus encore les liens d'amitié et de bonne volonté qui nous unissent. Je vous assure de la pleine coopération des différents services de la Curie romaine. J'invoque cordialement sur vous, sur Sa Majesté et la famille royale, ainsi que sur le peuple suédois, l'abondance des Bénédictions divines.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.32 p.4.
+
+© Copyright 1996 - Libreria Editrice Vaticana

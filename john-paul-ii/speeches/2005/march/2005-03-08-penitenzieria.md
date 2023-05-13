@@ -1,0 +1,31 @@
+***MESSAGE DU PAPE JEAN-PAUL II**AUX PARTICIPANTS AU COURS SUR LE FOR INTERNE***
+
+***ORGANISÉ PAR LE TRIBUNAL DE LA PÉNITENCERIE APOSTOLIQUE***
+
+*Très chers frères !*
+
+1. C'est avec une grande joie que j'adresse un salut cordial à vous tous, qui participez au Cours sur le For interne, organisé par le Tribunal de la Pénitencerie apostolique. Une pensée spéciale va au Cardinal James Francis Stafford, Pénitencier Majeur, à ses collaborateurs, ainsi qu'aux Pénitenciers des Basiliques de l'Urbs qui effectuent un service plus que jamais précieux et important.
+
+Le Cours sur le For interne rencontre un grand intérêt chez les jeunes prêtres élèves des Universités et Facultés pontificales et il constitue un rendez-vous de formation d'un grand intérêt, qui met en lumière la nécessité d'une mise à jour théologique, pastorale et spirituelle permanente des prêtres, auxquels est « *confié le ministère de la réconciliation* »(cf. 2 *Co* 5, 18).
+
+2. Les pages évangéliques proposées à notre attention par la liturgie, en ce [temps de Carême](http://localhost/liturgical_year/lent/index-lent2005_fr.htm), aident à mieux comprendre la valeur de ce ministère sacerdotal particulier. Celles-ci présentent le Sauveur alors qu'il convertit la Samaritaine, se transformant en source de joie pour elle ; alors qu'il guérit l'aveugle de naissance et devient pour lui une source de lumière ; alors qu'il ressuscite Lazare et se manifeste comme vie et résurrection qui vainc la mort, conséquence du péché. Son regard pénétrant, sa parole et son jugement d'amour illuminent la conscience de ceux qu'il rencontre, provoquant en eux la conversion et un renouvellement profond.
+
+Nous vivons dans une société qui semble souvent avoir égaré le sens de Dieu et du péché. C'est pourquoi, dans ce contexte, devient plus urgente l'invitation du Christ à la conversion, qui suppose la confession consciente de ses propres péchés et la demande de pardon et de salut qui s'ensuit. Dans l'exercice de son ministère, le prêtre sait qu'il agit « *en la personne du Christ et sous l'action de l'Esprit Saint* », c'est pourquoi il doit nourrir en lui les mêmes sentiments que le Christ, faire grandir en lui la charité de Jésus maître et pasteur, médecin des âmes et des corps, guide spirituel, juge juste et miséricordieux.
+
+3. Dans la tradition de l'Eglise, la réconciliation sacramentelle a toujours été considérée en étroite relation avec [le banquet sacrificiel de l'Eucharistie](http://localhost/holy_father/special_features/eucharist/index_fr.html), mémorial  de  notre rédemption. En cette année, consacrée de manière particulière au Mystère eucharistique, il me semble plus que jamais utile d'attirer votre attention sur le rapport vital existant entre ces deux Sacrements.
+
+Dans les premières communautés chrétiennes, on ressentait déjà la nécessité de se préparer, à travers une conduite de vie digne, à célébrer la fraction du pain eucharistique, qui est « communion » avec le corps et le sang du Seigneur, et « communion » (koinonia) avec les croyants qui ne forment qu'un seul corps, car nourris par le corps même du Christ (cf. 1 *Co* 10 16-17).
+
+Il est très utile de rappeler les exhortations de Paul aux fidèles de Corinthe, qui prenaient à la légère la célébration de la « *cène eucharistique* », n'étant pas attentifs au sens profond du mémorial de la mort du Seigneur et à ses exigences de communion fraternelle (cf. 1 *Co* 11, 17sq)! Ses paroles de grande sévérité nous exhortent nous aussi à nous approcher de l'Eucharistie dans d'authentiques attitudes de foi et d'amour (cf. *ibid.*, 11, 27-29).
+
+Dans le rite de la Messe de nombreux éléments soulignent cette exigence de purification et de conversion :  de l'acte pénitentiel initial aux prières pour obtenir le pardon, du signe de la paix, aux prières que les prêtres et les fidèles récitent avant la communion. Seul celui qui a sincèrement conscience de ne pas avoir accompli un péché mortel peut recevoir le corps du Christ. C'est ce que dit clairement le Concile de Trente lorsqu'il affirme qu'« *aucune personne, consciente d'être en état de péché mortel, même si elle ressent de la contrition, ne peut s'approcher de la sainte Eucharistie sans avoir au préalable effectué la confession sacramentelle* » (Session XIII, chap. 7 ; Denzinger 1646-1647). Cela continue à être l'enseignement de l'Eglise aujourd'hui aussi (cf. *[Catéchisme de l'Eglise catholique](http://www.vatican.va/archive/FRA0013/_INDEX.HTM)*, n. 1385, et *[Lettre encyclique Ecclesia de Eucharistia](http://www.vatican.va/edocs/FRA0344/_INDEX.HTM)*, nn. 36-37).
+
+4. Très chers frères, soyez attentifs à célébrer vous aussi le Mystère eucharistique avec pureté de cœur et un amour sincère. Le Seigneur nous avertit que nous ne devons pas devenir des sarments coupés de la vigne. Prêchez avec clarté et simplicité la juste doctrine à propos de la nécessité du sacrement de la Réconciliation pour s'approcher de la communion, lorsqu'on est conscient de ne pas se trouver dans la grâce de Dieu. Dans le même temps, encouragez les fidèles à recevoir le corps et le sang du Christ pour être purifiés des péchés véniels et des imperfections, de façon à ce que les célébrations eucharistiques soient agréables à Dieu et nous associent à l'offrande de la Victime sainte et immaculée, en ayant le cœur contrit et humble, confiant et réconcilié. Soyez pour tous des ministres assidus, disponibles et compétents du sacrement de la Réconciliation, de véritables images du Christ, saint et miséricordieux.
+
+Que Marie, Mère de miséricorde, vous aide, ainsi que tous les prêtres, à être des « instruments » dociles de la miséricorde et de la sainteté de Dieu. Qu'Elle rende chaque prêtre conscient de la haute mission qu'il est appelé à accomplir avec pureté de cœur et docilité à l'action de l'Esprit Saint, pour déverser sur le monde, avec l'imagination et l'ardeur de la charité, le don qu'il reçoit lui-même sur l'autel.
+
+Avec ces sentiments, je vous bénis tous de tout cœur.
+
+*De la Polyclinique Gemelli, le 8 mars 2005*
+
+Copyright © Libreria Editrice Vaticana

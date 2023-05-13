@@ -1,0 +1,153 @@
+[VOYAGE APOSTOLIQUE DU PAPE FRANÇOIS \
+\
+EN IRAK](http://www.vatican.va/content/francesco/fr/travels/2021/outside/documents/papa-francesco-iraq-2021.html)
+
+[5-8 MARS 2021]
+
+***CONFERENCE DE PRESSE DU SAINT-PERE***
+
+***AU COURS DU VOL DE RETOUR***
+
+*Vol papal*
+
+*Lundi 8 mars 2021*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/3/8/iraq-volodiritorno.html)]**
+
+* * *
+
+**Matteo Bruni :**
+
+Bonjour Sainteté. Bonjour à vous tous. Merci pour ce voyage extraordinaire qui a touché l'histoire de ce pays, de nombreux lieux, mais aussi le cœur de nombreux Irakiens et de tant de personnes qui ont pu suivre ces journées, également grâce au travail de nos collègues journalistes. Parmi nous il y a aussi Mgr Dieudonné Datonou, qui a travaillé à la réalisation de ce voyage... « le nouveau shérif » ! Nous le remercions lui aussi pour son travail, sachant qu'il a pu compter  sur l'expérience du Bureau des voyages de la Secrétairerie d'Etat, mais aussi sur l'expérience de nombreux éléments de la structure du Saint-Siège qui participent à l'organisation du voyage. Et maintenant, si vous le voulez, un mot de salutation, puis il y a plusieurs questions de la part des journalistes sur ces journées.
+
+**Pape François :**
+
+Avant tout, merci pour votre travail et votre compagnie... et pour votre fatigue !
+
+Et aujourd'hui, c'est la journée de la femme : tous mes vœux aux femmes. La fête de la femme... Nous disons : pourquoi n'y a-t-il pas la fête des hommes... Lors de la rencontre avec l'épouse du Président [de la République d'Irak], j'ai dit : « Parce que c'est toujours notre fête à nous, les hommes ! ». La fête des femmes est nécessaire. L'épouse du Président a tenu un beau discours sur les femmes, elle m'a dit de belles choses aujourd'hui : la force qu'ont les femmes pour porter de l'avant la vie, l'histoire, la famille... tant de choses. Et félicitations à tous !
+
+Troisièmement : c'est aujourd'hui, l'anniversaire de la journaliste de la Cope, pas l’autre jour ! Tous mes vœux ! Nous devons le fêter... On verra comment. A présent, à vous la parole.
+
+**Matteo Bruni :**
+
+La première question, Saint-Père, vient précisément du monde arabe, d'Imad Atrach, journaliste de Sky News Arabia.
+
+**Imad Abdul Karim Atrach (Sky News Arabia)**:
+
+Sainteté, il y a deux ans, à Abou Dhabi, il y a eu une rencontre avec l'imam al-Tayyeb d'Al Azhar et la signature de la *Déclaration sur la fraternité*. Il y a trois jours, vous avez rencontré al-Sistani : peut-on penser à quelque chose de semblable avec la partie chiite de l'islam ? Et puis une deuxième chose : saint Jean Paul II disait du Liban qu’il est plus qu'un pays, c'est un message. Aujourd'hui, malheureusement, en tant que Libanaise, je vous dis que ce message est en train de disparaître. Pouvons-nous penser qu'une visite de votre part au Liban est imminente ? Merci.
+
+**Pape François :**
+
+[Le Document d'Abou Dhabi](http://www.vatican.va/content/francesco/fr/travels/2019/outside/documents/papa-francesco_20190204_documento-fratellanza-umana.html) du 4 février [2019] a été préparé avec le Grand Imam en secret, pendant six mois, en priant, en réfléchissant et en corrigeant le texte. Cela a été – c'est un peu présomptueux de ma part de le dire –  une première étape de ce que vous demandez. On peut dire que cette rencontre [avec al-Sistani] serait la deuxième étape.  Et il y en aura d'autres. Le chemin de la fraternité est important. Puis les deux documents : celui d'Abou Dhabi a laissé en moi l'inquiétude de la fraternité, puis [l'encyclique] *[Fratelli tutti](http://www.vatican.va/content/francesco/fr/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html)* est parue. Les deux documents doivent être étudiés car ils vont dans la même direction, ils cherchent... sur la fraternité. L'ayatollah Al-Sistani a une phrase que j'essaie de bien retenir : les hommes sont soit frères par la religion, soit égaux par la création. La fraternité et l'égalité, mais on ne peut pas aller au-dessous de l'égalité. Je crois que c'est aussi un chemin culturel. Pensons à nous, chrétiens, à la guerre de Trente Ans, à la nuit de la Saint-Barthélemy, pour donner un exemple. Pensons à cela. Comment la mentalité change parmi nous. Parce que notre foi nous fait découvrir que c'est cela, la révélation de Jésus est l'amour, et la charité nous conduit à cela. Mais combien de siècles pour le réaliser !
+
+C'est important, la fraternité humaine, qu'en tant qu'hommes, nous sommes tous frères, et nous devons aller de l'avant avec les autres religions. Le [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) a fait un grand pas en avant dans cette direction ; et également les institutions, le [Conseil pour l'Unité des chrétiens](http://www.vatican.va/content/romancuria/fr/pontifici-consigli/pontificio-consiglio-per-la-promozione-dellunita-dei-cristiani.index.html) et le [Conseil pour le Dialogue interreligieux](http://www.vatican.va/content/romancuria/fr/pontifici-consigli/pontificio-consiglio-per-il-dialogo-interreligioso.index.html) : le cardinal Ayuso nous accompagne aujourd'hui. Tu es humain, tu es fils de Dieu, tu es mon frère, point. Ce serait la meilleure indication, et il faut souvent prendre des risques pour accomplir ce pas. Vous savez qu'il y a des critiques : que le Pape n'est pas courageux, que c'est un inconscient qui accomplit des pas contre la doctrine catholique, qu'il est à un doigt de l'hérésie... Il y a des risques. Mais ces décisions sont toujours prises dans la prière, dans le dialogue, en demandant conseil, en réfléchissant. Ce n'est pas un caprice, et c'est aussi la ligne que le Concile a enseignée. Cela en ce qui concerne votre première question.
+
+La deuxième question : le Liban est un message. Le Liban souffre, le Liban est plus qu'un équilibre, il a la faiblesse des diversités, certaines encore non réconciliées, mais il a la force du grand peuple réconcilié, comme la force des cèdres. Le patriarche Raï m'a demandé de faire une halte à Beyrouth au cours de ce voyage, mais cela m'a semblé peu. Une « miette » face à un problème, face à un pays qui souffre comme le Liban. Je lui ai écrit une lettre, je lui ai promis de faire un voyage. Mais le Liban est en ce moment en crise, mais en crise – je ne veux pas offenser – en crise de vie. Le Liban est tellement généreux dans l'accueil des réfugiés... C’est le deuxième voyage.
+
+**Matteo Bruni :**
+
+Merci, Sainteté. La deuxième question vient de Johannes Neudecker, de l’agence de presse allemande Dpa :
+
+**Johannes Claus Neudecker (agence de presse allemande Dpa):**
+
+Merci, Saint-Père. Ma question porte également sur la rencontre avec al-Sistani. Dans quelle mesure la rencontre avec Al-Sistani était-elle aussi un message pour les chefs  religieux d'Iran ?
+
+**Pape François :**
+
+Je crois que cela a été un message universel. J'ai ressenti le devoir, au cours de ce pèlerinage de foi et de pénitence, d'aller voir un grand, un sage, un homme de Dieu. Ce n'est qu'en l'écoutant qu'on peut percevoir cela. En parlant de messages, je dirais :  c'est un message pour tous, c'est un message pour tous. Et c'est une personne qui a cette sagesse et aussi cette prudence. Il m'a dit : *«* Depuis 10 ans – je crois que c'est ce qu'il m'a dit – je ne reçois personne qui vienne me voir pour d'autres raisons, politiques ou culturelles, non, seulement religieuses ». Et il a été très respectueux, très respectueux lors de la rencontre, et je me suis senti honoré. Même au moment de me saluer : il ne se lève jamais, et là, il s'est levé pour me saluer, par deux fois. C'est un homme humble et sage. Cette rencontre a fait du bien à mon âme. Il est une lumière. Et ces sages sont partout parce que la sagesse de Dieu a été répandue dans le monde entier. La même chose se passe avec les saints qui ne sont pas seulement ceux qui sont sur les autels.  Ces sont les saints de tous les jours, ce que j'appelle les saints « de la porte d'à côté »,  les saints – hommes et femmes – qui vivent leur foi, quelle qu'elle soit, avec cohérence, qui vivent les valeurs humaines avec cohérence, la fraternité avec cohérence. Je pense que nous devrions découvrir ces gens, les mettre en avant, parce qu'il y a tant d'exemples... Quand il y a des scandales, même dans l'Eglise, tant, et cela n'aide pas... Mais faisons voir les gens qui cherchent le chemin de la fraternité, les saints de la porte d'à côté, et nous trouverons sûrement des gens de notre famille, sûrement :  un grand-père, une grand-mère… Sûrement !
+
+**Matteo Bruni :**
+
+La troisième question vient précisément d'Eva Maria Fernández Huescar, de Cope, à laquelle nous présentons encore tous nos vœux.
+
+**Eva Maria Fernández Huescar (Cadena Cope 31H):**
+
+Saint-Père, comme c'est beau de reprendre les conférences de presse ! C'est vraiment très beau ! Ces jours-ci, votre voyage en Irak a eu un énorme retentissement dans le monde entier. Pensez-vous qu'il pourrait être « *le* » voyage de votre pontificat ? On a également dit que c'était le plus risqué : avez-vous eu peur à un moment quelconque du voyage ? Et à présent que nous reprenons les voyages, et que vous êtes sur le point de célébrer la huitième année de votre pontificat,  pensez-vous encore que celui-ci sera court ? Et enfin, la grande question de toujours, Saint-Père : reviendrez-vous jamais en Argentine ? Et, puisque j'y suis, étant donné que je suis espagnole : viendrez-vous un jour en Espagne ? Merci, Saint-Père !
+
+**Pape François :**
+
+Merci, Eva. Je t'ai fait fêter deux fois ton anniversaire : une en avance, et une autre en retard.
+
+Je commence par la dernière, qui est une question que je comprends, parce qu'il y a ce livre de mon ami journaliste Nelson Castro, un médecin. Il avait écrit un livre sur les maladies des présidents et je lui ai dit un jour [quand j'étais] déjà à Rome : tu dois en écrire un sur les maladies des Papes, parce qu'il serait intéressant de connaître les maladies des Papes, du moins de certains des derniers temps. Il a commencé à le faire ; il m'a interviewé, et le livre est sorti. On m’a dit que c’est un bon livre, je ne l'ai pas vu. Il m'a posé une question : « Si vous démissionnez – si je meurs ou si je démissionne –  si vous démissionnez, retournerez-vous en Argentine ou resterez-vous ici ?» – « Je ne retournerai pas en Argentine – ai-je dit – mais je resterai ici dans mon diocèse ». Mais dans cette hypothèse – et cela est lié à la question sur quand j’irai en Argentine ou pourquoi je n'y vais pas – je réponds toujours un peu ironiquement : j’ai passé 76 ans en Argentine, c’est suffisant, non ?
+
+Mais il y a une chose qui, je ne sais pas pourquoi, n'est pas dite : un voyage en Argentine était programmé en novembre 2017. On commençait à y travailler, nous devions visiter le Chili, l'Argentine et l'Uruguay.  Mais ensuite, – cela aurait été pour la fin novembre – mais ensuite, à cette époque  le Chili était en campagne électorale, parce que en ce temps-là, en décembre, le successeur de Michelle Bachelet a été élu, et je devais y aller avant que le gouvernement ne change, je ne pouvais pas y aller après. Mais aller au Chili en janvier, et puis en Argentine et en Uruguay en janvier n'était pas possible, car janvier est comme août chez nous, juillet-août pour les deux pays. En y repensant, la suggestion a été faite : pourquoi ne pas associer le Pérou ? Parce que le Pérou avait été exclu du [voyage en Equateur, en Bolivie, au Paraguay](http://www.vatican.va/content/francesco/fr/travels/2015/outside/documents/papa-francesco-ecuador-bolivia-paraguay-2015.html), il avait été laissé de côté. Et de là est né le voyage de janvier [2018] [au Chili et au Pérou](http://www.vatican.va/content/francesco/fr/travels/2018/outside/documents/papa-francesco-cile-peru_2018.html). Mais je veux le dire pour qu'il n'y ait pas d'inventions de « *patrie-phobie* ». Quand l'occasion se présentera, cela devra se faire, car il y a l'Argentine, l'Uruguay et le sud du Brésil, qui est un ensemble culturel très important.
+
+Ensuite, en ce qui concerne les voyages : pour prendre une décision sur les voyages, j'écoute ; il y a beaucoup d'invitations. J'écoute l'avis des conseillers et aussi des gens. Parfois quelqu’un vient me voir et je demande : qu'en pensez-vous, devrais-je aller à cet endroit ? Cela me fait du bien d'écouter, cela m'aide à prendre des décisions plus tard. J'écoute les conseillers, et à la fin je prie, je prie, je réfléchis beaucoup, sur certains voyages j'ai réfléchi beaucoup. Puis la décision vient de l'intérieur : on le fait ! Presque spontanément, mais comme un fruit mûr. C'est un long parcours. Certains sont plus difficiles, d'autres plus faciles.
+
+La décision pour ce voyage vient d'avant : la première invitation a été faite par l'ambassadrice précédente, médecin pédiatre qui était ambassadrice d'Irak : une femme bien, bien, qui a insisté. Puis est venue l'ambassadrice en Italie, c'est une femme de combat. Puis le nouvel ambassadeur au Vatican est arrivé, et il a combattu. Avant cela, le président était venu. Toutes ces choses sont restées en moi.
+
+Mais il y a quelque chose auparavant, que je voudrais aussi mentionner : l'une d'entre vous m'a offert l'édition espagnole du livre *Pour que je sois la dernière*, [de Nadia Mourad]. Je l'ai lu en italien. Puis je l'ai donné à Elisabetta Piqué, pour qu'elle le lise. Tu l'as lue ? Plus ou moins… C'est l'histoire des Yézidis. Et Nadia Mourad raconte des choses terrifiantes, terrifiantes... Je vous conseille de le lire. A certains moments, étant donné qu'il est biographique, il pourra sembler un peu lourd, mais c'est pour moi la raison fondamentale de ma décision. Ce livre travaillait à l'intérieur, à l'intérieur...  et aussi quand j'ai écouté Nadia qui est venue ici me raconter des choses... terribles ! Puis, avec le livre, toutes ces choses ensemble ont mené à cette décision, en pensant à toutes ces choses, toutes les problématiques, tant… Mais finalement, la décision est venue et je l'ai prise.
+
+Ensuite concernant, la huitième année du pontificat. Je ne sais pas si les voyages se ralentiront ou non, mais j'avoue que pendant ce voyage, j'ai été beaucoup plus fatigué que pendant les autres. 84 [ans] n'arrivent pas tout seuls ! C'est une conséquence... mais nous verrons. A présent [en septembre], je dois me rendre en Hongrie pour la Messe de clôture du Congrès eucharistique international. Pas pour une visite dans le pays, mais  pour la Messe. Mais Budapest est à deux heures de route de Bratislava : pourquoi ne pas rendre visite aux Slovaques ? Je ne sais pas... C'est comme ça que commencent les choses...
+
+**Aaron Patrick Harlan (The Washington Post):**
+
+Merci Saint-Père ! Ce voyage a eu évidemment une signification extraordinaire pour les personnes qui ont pu vous voir, mais cela a été également l'occasion d'événements qui ont créé les conditions pour une diffusion du virus, en particulier à l'égard de personnes non vaccinées, rassemblées, alors qu'elles chantaient. Quand vous avez étudié la possibilité du voyage et ce qu'il aurait comporté, vous êtes-vous préoccupé également du fait que les personnes qui allaient venir vous voir auraient pu tomber malades et même mourir ? Pouvez-nous nous faire part de vos réflexions et de vos prévisions ?
+
+**Pape François :**
+
+Comme je l'ai dit récemment, les voyages se « cuisinent » dans le temps dans ma conscience, et c'est l'une des choses qui m'a donné de la force, de la force [cela me tenait à cœur]... J'y ai beaucoup réfléchi, j'ai beaucoup prié et à la fin, j'ai pris la décision, librement, qui venait de l'intérieur. Et j'ai dit : Celui qui me pousse à décider, qu'il prenne soin des gens. Et ainsi, j'ai pris ma décision, ainsi, mais après la prière, et en connaissant les risques. Après tout ça.
+
+**Matteo Bruni :**
+
+Merci. La prochaine question est posée par Philippine de Saint-Pierre, M.C. KTO.
+
+**Philippine de Saint-Pierre, (M.C. KTO):**
+
+Sainteté, nous avons vu le courage, le dynamisme des chrétiens irakiens, nous avons aussi vu les défis auxquels ils sont confrontés, la menace de la violence islamiste, l'exode et le témoignage de la foi dans leur environnement. Tels sont les défis que doivent relever les chrétiens dans toute la région. Nous avons parlé du Liban, mais aussi de la Syrie, de la Terre Sainte... Il y a dix ans, a eu lieu un synode pour le Moyen-Orient, mais son développement a été interrompu par l'attaque de la cathédrale de Bagdad. Envisagez-vous de faire quelque chose pour l'ensemble du Moyen-Orient, un synode régional, ou toute autre initiative ?
+
+**Pape François :**
+
+Je ne pense pas à un synode. En effet, je suis ouvert à de nombreuses initiatives, mais un synode ne m'est pas venu à l’esprit. Vous avez semé la première graine, nous allons voir ce qui se passe. La vie des chrétiens en Irak est une vie troublée, mais pas seulement celle des chrétiens… Je viens de parler des Yézidis..., et d’autres religions qui ne se soumettaient pas au pouvoir de Daesh.  Et cela, je ne sais pas pourquoi, m'a donné une très grande force. Il y a le problème dont vous parlez de la migration. Hier, alors que nous revenions en voiture de Qaraqosh à Erbil, j'ai vu beaucoup de gens, des jeunes, des personnes d’un très jeune âge. Tant de gens jeunes. Et  quelqu'un m'a demandé: mais quel est l'avenir de ces jeunes ? Où iront-ils ? Beaucoup devront quitter le pays, beaucoup. Avant de partir pour le voyage l'autre jour, vendredi, douze réfugiés irakiens sont venus me saluer : l'un d'eux avait une prothèse à la jambe, parce qu'il s'était enfui sous les camions et avait eu un accident… Beaucoup de personnes ont fui, beaucoup, beaucoup. La migration est un double droit : le droit de ne pas migrer et le droit de migrer. Ces personnes n'ont ni l'un ni l'autre, car elles ne peuvent pas ne pas migrer, mais elles ne savent pas comment. Et elles ne peuvent pas migrer parce que le monde n'a pas encore pris conscience que la migration est un droit de l'homme.
+
+Un sociologue italien m'a dit, en parlant de l'hiver démographique en Italie : « Dans 40 ans, nous devrons « importer » des étrangers pour travailler et payer les impôts pour nos retraites ». Vous, les Français, vous avez été plus malins, vous avez fait un saut de dix ans en avant avec la loi pour soutenir la famille, votre niveau de croissance est très élevé. Mais la migration est vécue comme une invasion. Hier - parce qu’il l’a demandé -, j'ai voulu recevoir, après [la Messe](http://www.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/3/7/iraq-santamessa.html), le papa d'Alan Kurdi, cet enfant… C’est un symbole, Alan Kurdi est un symbole : c'est pourquoi j'ai offert une sculpture à la FAO. C'est un symbole qui va au-delà d'un enfant mort au cours d’une migration, un symbole de civilisations mortes, de civilisations qui meurent, qui ne peuvent pas survivre, un symbole d’humanité. Des mesures urgentes sont nécessaires pour que les gens puissent travailler dans leur propre pays et ne soient pas obligés d'émigrer. Et également des mesures visant à protéger le droit d'émigrer. Il est vrai que chaque pays doit bien étudier sa capacité d’accueil. Car il ne s'agit pas seulement de les recevoir pour les laisser ensuite sur la plage ; il s'agit de les accueillir, de les accompagner, de les faire progresser et de les intégrer. L'intégration des migrants est la clé. Deux anecdotes : à Zaventem, en Belgique, les terroristes étaient Belges, nés en Belgique, mais immigrés musulmans ghettoïsés, non intégrés. L'autre exemple a eu lieu lorsque [je suis allé en Suède](http://www.vatican.va/content/francesco/fr/travels/2016/outside/documents/papa-francesco-svezia-2016.html), la ministre que j’ai saluée en prenant congé du pays était très jeune et avait une physionomie particulière, pas typique des Suédois. C’était la fille d'un migrant et d'une Suédoise, tellement intégrée qu'elle est devenue ministre. Pensons à ces deux choses. Elles nous feront beaucoup, beaucoup réfléchir sur l'intégration. Sur la migration qui est, à mon avis, le drame de la région. Je voudrais également remercier les pays généreux, les pays qui reçoivent les migrants : le Liban, le Liban qui a été généreux avec les migrants,  je crois qu’il a reçu deux millions de Syriens… [un million et demi de Syriens plus 400 mille Palestiniens]; la Jordanie  que nous ne survolerons malheureusement pas, alors que le roi qui est si aimable, le roi Abdullah, voulait nous rendre un hommage aérien lors de notre passage, je le remercie maintenant ; la Jordanie est très généreuse : plus d'un million et demi de migrants. Merci à ces pays généreux ! Merci, merci beaucoup !
+
+**Matteo Bruni :**
+
+Merci Sainteté. La prochaine question est posée en italien par la journaliste Stefania Falasca, du quotidien Avvenire.
+
+**Stefania Falasca (Avvenire)**
+
+En trois jours dans ce pays, qui est un pays clé du Moyen-Orient, vous avez fait ce dont les puissants de la terre discutent depuis 30 ans. Vous avez déjà expliqué la genèse intéressante de vos voyages, comment naissent les choix de vos voyages, mais maintenant, dans ce contexte, en pensant aussi au Moyen-Orient, pouvez-vous également prendre en compte un voyage en Syrie ? Quels pourraient être les objectifs, d'ici un an, d’autres lieux où votre présence est demandée ?
+
+**Pape François :**
+
+Au Moyen-Orient, la seule hypothèse, et aussi la promesse, est le Liban. Je n'ai pas pensé à un voyage en Syrie, je n’y ai pas pensé car l'inspiration ne m'est pas venue. Mais je suis très proche de la Syrie martyrisée et bien-aimée, comme je l'appelle. Je me souviens au début de mon pontificat, d’un après-midi de prière sur la place Saint-Pierre, il y avait l'adoration du Saint-Sacrement, la prière du chapelet… Mais combien, combien de musulmans avec des tapis sur le sol priaient avec nous pour la paix en Syrie, pour arrêter les bombardements, à un moment où l'on disait qu'il y aurait eu un bombardement féroce. Je porte la Syrie dans mon cœur. Mais penser à un voyage ne m'est pas venu à l'esprit en ce moment. Merci.
+
+**Matteo Bruni :**
+
+La prochaine question est posée par Sylwia Wysocka PAP - POLSKA AGENCJA PRASOWA.
+
+**Sylwia Wysocka (PAP - Polska Agencja Prasowa):**
+
+Sainteté, pendant ces douze derniers mois très difficiles, votre activité a également été très limitée. Hier, vous avez eu le premier contact direct et très proche avec les habitants de Qaraqosh : qu'avez-vous ressenti ? C’est ma première question. Et ensuite, la deuxième.  Selon vous, à présent, avec toutes les précautions sanitaires, pouvez-vous reprendre les audiences générales en présence de fidèles, comme auparavant ?
+
+**Pape François :**
+
+Je me sens différent lorsque je suis loin des personnes présentes aux audiences. J'aimerais recommencer les audiences générales dès que possible. Espérons que les conditions soient bonnes, dans ce domaine, je suis les normes des autorités. Ce sont elles qui ont cette responsabilité et elles ont la grâce de Dieu pour nous aider en cela. Elles ont la responsabilité d’établir des règles. Que cela nous plaise ou non, mais ce sont elles les responsables et elles doivent le faire. A présent, j'ai repris l'Angelus sur la place, on peut le faire en respectant les distances. Il existe une proposition de petites audiences générales, mais je ne prends pas de décision tant que l'évolution de la situation n'est pas claire. Mais après ces mois d'emprisonnement, car je me suis réellement senti un peu prisonnier, c’est revivre pour moi. Revivre, c'est toucher l'Eglise, toucher le saint peuple de Dieu, toucher tous les peuples. Un prêtre devient prêtre pour servir, au service du peuple de Dieu, non par carriérisme, non pour l'argent. Ce matin, à la Messe, la lecture biblique était la guérison de Naaman le Syrien et il est dit que ce Naaman voulait faire des cadeaux après avoir été guéri, mais le prophète Elisée refusa. La Bible continue : l'assistant du prophète Elisée, après leur départ, a pris soin d’installer le prophète et s'est empressé de suivre Naaman et de lui demander les cadeaux. Et Dieu a dit : « La lèpre que Naaman avait, te sera donnée » (cf. 2 R 5, 1-27). Je crains que nous, hommes et femmes d'Eglise, et surtout nous, les prêtres, n'ayons pas cette proximité gratuite avec le peuple de Dieu qui est celui qui nous sauve, et que nous fassions comme le serviteur de Elisée : oui, aider, mais ensuite courir derrière... J’ai peur de cette lèpre. Et le seul qui nous sauve de la lèpre de la cupidité, de l'orgueil, c'est le saint peuple de Dieu. C’est celui dont Dieu parle à David : « Je t'ai sorti du troupeau, n'oublie pas le troupeau ». Ce dont Paul parle à Timothée : « Souviens-toi de ta mère et de ta grand-mère qui t'ont nourri dans la foi ».  C'est-à-dire ne perd pas ton appartenance au peuple de Dieu pour devenir une caste privilégiée de consacrés, de clercs, ou autre. C’est pourquoi le contact avec les gens nous sauve, nous aide ; nous donnons l'Eucharistie, la prédication, notre fonction au peuple. Mais eux nous donnent l’appartenance. N'oublions jamais cette appartenance au peuple de Dieu.
+
+Vous avez ainsi commencé : qu’avez-vous rencontré en Irak, à [Qaraqosh](http://www.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2021/3/7/iraq-comunita-qaraqosh.html)? Je n’imaginais pas les ruines de Mossoul, de Qaraqosh, vraiment je n’imaginais pas.... Oui, j'avais vu des choses, j'avais lu le livre, mais cela touche, c’est touchant. Ce qui m'a le plus marqué, c'est le témoignage d'une maman à Qaraqosh. On a écouté les témoignages d’un prêtre qui connaît vraiment la pauvreté, le service, la pénitence, et d’une femme qui a perdu son fils dans les premiers bombardements de Daesh. Elle a dit un mot : pardon. J'ai été ému. Une maman qui dit : je pardonne, je demande pardon pour eux. Cela m'a rappelé [mon voyage en Colombie](http://www.vatican.va/content/francesco/fr/travels/2017/outside/documents/papa-francesco-colombia_2017.html), cette rencontre à [Villavicencio](http://www.vatican.va/content/francesco/fr/speeches/2017/september/documents/papa-francesco_20170908_viaggioapostolico-colombia-incontrodipreghiera.html) où tant de personnes, surtout des femmes, des mères et des épouses, ont parlé de leur expérience de l’assassinat de leurs enfants et de leurs maris ; et elles disaient : « Je pardonne, je pardonne ». Mais ce mot nous l’avons perdu, nous savons insulter sans limites, nous savons condamner sans limites, moi le premier, cela nous savons bien le faire. Mais pardonner ! Pardonner nos ennemis : c'est l’Evangile pur. C'est ce qui m'a le plus frappé à Qaraqosh.
+
+**Matteo Bruni :**
+
+La dernière question est de Catherine Laurence Marciano, AFP :
+
+**Catherine Laurence Marciano (AFP):**
+
+Sainteté, je voudrais savoir ce que vous ressentiez dans l'hélicoptère en voyant la ville détruite de Mossoul et ensuite lorsque vous avez prié dans les ruines d'une église. Si vous me le permettez, puisque c'est la journée de la femme, je voudrais poser une petite question sur les femmes aussi. Vous avez soutenu les femmes à Qaraqosh avec de très belles paroles, mais que pensez-vous du fait qu'une femme musulmane amoureuse ne puisse pas épouser un chrétien sans être rejetée par sa famille ou pire encore ? La première question était sur Mossoul. Merci Sainteté.
+
+**Pape François :**
+
+A propos de Mossoul, j'ai dit un peu « en passant » ce que j'ai ressenti quand je me suis arrêté devant l'église détruite, je n'avais pas de mots. Incroyable, incroyable... Pas seulement cette église, mais aussi d'autres églises, et même une mosquée détruite. Il faut croire qu’il y avait un désaccord avec les gens … Notre cruauté humaine est incroyable. En ce moment, je ne veux pas dire le mot, ça recommence : regardons l'Afrique, regardons l’Afrique. Et avec notre expérience à Mossoul, ces églises détruites et tout le reste, on crée l'inimitié, la guerre, et même le soi-disant Etat islamique recommence à agir. C'est une mauvaise chose, très mauvaise.
+
+Avant de passer à l’autre question. Une question m'est venue à l'esprit dans l'église, et c’est la suivante : mais qui vend les armes à ces destructeurs ? Car ils ne fabriquent pas eux-mêmes les armes chez eux. Oui, ils fabriquent quelques explosifs... Mais qui vend les armes ? Qui est responsable ? Je demanderais au moins à ceux qui vendent les armes d’avoir la sincérité de dire : nous vendons les armes. Ils ne le disent pas. C'est affreux.
+
+Les femmes. Les femmes sont plus courageuses que les hommes, c’est vrai, je le pense ainsi. Mais la femme est humiliée aujourd'hui encore. Allons jusqu'à cet extrême : l'une d'entre vous, je ne sais pas qui, m'a montré la liste des tarifs des femmes… [liste établie par l’EI qui achetait des femmes chrétiennes et yézidies, ndlr]. Je ne pouvais pas le croire : si la femme est comme ça, elle coûte tant... tout cela pour les vendre. Les femmes sont vendues, les femmes sont réduites en esclavage. Même dans le centre de Rome. La lutte contre la traite est un travail de tous les jours. Pendant le Jubilé [de la Miséricorde], je suis allé visiter l'une des nombreuses maisons de l'Œuvre de Don Benzi : Des jeunes filles sauvées, l'une avec l'oreille coupée parce qu’un jour elle n'avait pas ramené l'argent qu’il fallait, l'autre transportée de Bratislava dans le coffre d’une voiture, une esclave, enlevée. Et cela se produit parmi nous, les « personnes cultivées », la traite des êtres humains. Dans certains pays, en particulier dans une partie de l'Afrique, la mutilation existe, la mutilation est un rituel qui est pratiqué. Mais les femmes sont toujours esclaves et nous devons nous battre, lutter, pour la dignité des femmes. Ce sont elles qui font avancer l'histoire, ce n'est pas une exagération, les femmes font avancer l'histoire. Et ce n'est pas un compliment, parce qu’aujourd'hui c'est la journée des femmes, c’est vrai. L'esclavage est ainsi, le refus de la femme... Si l’on pense qu’à un certain endroit, il y a eu une discussion pour savoir si la répudiation de la femme devait être exprimé par écrit ou seulement oralement… Elles n’ont même pas le droit d'obtenir l'acte de répudiation ! Et cela se passe aujourd'hui. Mais pour éviter de nous éloigner, pensons au centre de Rome, aux jeunes filles qui sont enlevées et exploitées. Je crois que j'ai tout dit à ce sujet.
+
+**Matteo Bruni :**
+
+Merci, Saint-Père.
+
+**Pape François :**
+
+Je vous souhaite une bonne fin de voyage et je vous demande de prier pour moi, j’en ai besoin ! Merci !

@@ -1,0 +1,19 @@
+PIUS PP. XI
+
+EPISTULA
+
+***LAETO IUCUNDOQUE****
+
+AD E.MOS PP. DD. ALEXANDRUM TIT. S. AUGUSTINI S. R. E. PRESBYTERUM CARDINALEM KAKOWSKI ARCHIEPISCOPUM VARSAVIENSEM, AUGUSTUM TIT. S. MARIAE DE PACE S. R. E. PRESBYTERUM CARDINALEM HLOND, ARCHIEPISCOPUM GNESNENSEM ET POSNANIENSEM ; DE STUDIORUM HEBDOMADA AD UNIONEM CHRISTIANORUM DISSIDENTIUM RESTAURANDAM.
+
+*Dilecti filii nostri salutem et apostolicam benedictionem*. — Laeto iucundoque animo audivimus sollertes Poloniae Episcopos, una vobiscum nuper congregatos, concorditer decrevisse, ut sollemnis istic hebdomada ad restaurandam, christianorum dissidentium cum Petri Cathedra coniunctionem proxime celebretur. Omnia equidem consilia et studia, quae in istam causam a bonis conferentur, id praesertim efficient, ut hinc fideles Poloniae clarius intimiusque intellegant se peculiari officio obstringi ad promovendam, pro cuiusque viribus, quam plurimorum fratrum reconciliationem, illinc fratres ipsi deerrantes persentiant quanto studio a catholicis viris eorum ad unum ovile reditus exoptetur, quantoque ipsi cumulentur gaudio si ad benignam Matrem revertantur Ecclesiam, quae semper eos diligit, semperque pro eis Deum precatur. Haec autem studia, hae piae ad Deum supplicationes eo magis vertente anno impense instanterque peragentur, quod per saecularia sollemnia sacrumque Iubilaeum recoletur, cum magnifico Redemptoris opere, ipsa ab eo condita super firmissimum Petri fundamentum Ecclesia, quae, tamquam mysticum Christi corpus, praemonente sancto Paulo, divisa exstare non potest. Nos igitur supplicibus vobiscum precationibus Deo adhibitis, omnia optata inceptaque vestra ad conciliationem fratrum fovendam paternis votis ominibusque prosequimuri atque novum praeterea Nostrae erga orientales filios sollicitudinis documentum exhibere cupientes, adiectam heic pecuniam vobis mittendam curamus, ut profugis ex Oriente in egestate constitutis, cuiuscumque sunt nationis aut confessionis, auxilio veniatis, dolentes vero quod amplius in praesenti ob rerum angustias praestare nequimus. Ceterum minime dubitamus, quin et Episcopi et boni isti fideles, pro sua quisque facultate, adiu vandis fratribus reliqua, quae necessaria sint, adiumenta pia liberalitate adferre velint. Scimus profecto in quanto rei oeconomicae discrimine, quo totua afficitur mundus, ipsi Poloni versentur, neque minime ignoramus plures ex eis gravissimis angustiis premi et nonnullos fortasse ad extremam usque indigentiam, pariter ac profugos orientales, redactos esse ; attamen scimus quoque caritatem adeo esse sollicitam, ut, augescemibus necessitatibus, ipsa magia augeatur, et adeo sollertem ac liberalem, ut pauperi quoque desiderium ac modum pauperiorem fratrem adiuvandi inspirare valeat. Hisce votis studiisque Nostris, dum filios, a paterna domo avulsos, vehementer hortamur, ut quam primum in Ecclesiae sinu pacem et salutem requirant, Deum omnipotentem, qui mentes et corda hominum gratia sua efficaciter permovet, instantissime deprecamur, ut laetus affulgeat dies, quo christianae fidei cultorum unitas et concordia perficiatur. Huius interea salutaris conciliationis auspicem, peculiarisque Nostrae caritatis testem, apostolicam benedictionem vobis, dilecti filii Nostri, ceterisque Poloniae Episcopis, cunctisque fidelibus praesertim iis, qui studiis laboribusque proximae sollemnis hebdomadae quacumque ratione favebunt, peramanter in Domino impertimus.
+
+*Datum Romae apud Sanctum Petrum, die VI mensis Ianuarii, in Epiphania Domini, anno MDCCCCXXXIII, Pontificatus Nostri undecimo.*
+
+**PIUS PP. XI**
+
+* * *
+
+A.A.S., vol. XXV (1933), n. 1, pp. 23-24
+
+© Copyright 1933 - Libreria Editrice Vaticana

@@ -1,0 +1,21 @@
+***ALLOCUTIO IOANNIS PAULI II***
+
+***AD VICTORES XXII CERTAMINIS VATICANI***
+
+*Die XXVI mensis Novembris, anno Domini MCMLXXIX*
+
+*Venerabilis Frater Noster ac dilecti Fratres et Sorores,*
+
+Iucunda nobis sunt ea, quae Pericles Cardinalis Felici modo, verbis usus humanissimis, dixit, atque in memoriam tempus revocamus, quo eum, cum esset Secretarius Concilii Oecumenici Vaticani Secundi, in Basilica Sancti Petri ex tempore ac profluenter Latine loquentem audivimus.
+
+Post annum elapsum gaudemus vos iterum salutare, moderatores et socios Operis Fundati, cui nomen Latinitas, atque victores Certaminis Vaticani, quibus ex animo gratulamur ; salutamus vos, qui hisce temporibus ignem Latinitatis vigilanter custoditis, sollerter alitis, intrepide defenditis.
+
+Scitote Nos favore et benevolentia vos et operam prosequi vestram. Nosmet ipsi, ut scitis, hoc anno Constitutionem Apostolicam edidimus, Latine, ut moris est, conscriptam et a verbis Sapientia Christiana incipientem, qua studiorum Universitates et Facultates ecclesiasticae novo quodam ordine componerentur. Ei Constitutioni additae sunt Ordinationes Sacrae Congregationis pro Institutione Catholica, in quibus haec norma continetur : “Congrua linguae Latinae cognitio in Facultatibus scientiarum sacrarum requiritur, ut studentes harum scientiarum fontes et Ecclesiae documenta intellegere atque adhibere possint”. Ii ergo alumni, qui ad altiorum studiorum ecclesiasticorum sedes accedunt, nisi linguae Latinae curriculum antea absolverint, eandem linguam, praetermissa quasi compensando, discant oportet, quemadmodum in Pontificiis Universitatibus et Athenaeis Romanis, ut exemplum afferamus, iam fieri contingit.
+
+Novimus equidem Operi Fundato, quod Latinitas appellatur, propositum esse studium et usum linguae Latinae promovere. Si mentem in usum ipsum intendimus, ponitur quaestio utrum lingua Latina — quae a non paucis iam seiuncta aestimatur ab hominum consuetudine, quasi sermo quidam antiquus et, ut aiunt, mortuus — adhuc possit reapse vigere. Ecclesia, quae Latina vocatur, quamvis propter utilitates pastorales in Liturgiam etiam sermones vulgares induxerit, tamen a principio, ex quo lingua eius propria est Latina, non discedit. Potiora quidem documenta Apostolicae Sedis eadem lingua pergunt conscribi. Verumtamen possuntne omnes notiones, omnia inventa, quibus haec aetas, tot mutationibus obnoxia, utitur, verbis reddi Latinis ? Haec quaestio non facilis esse videtur.
+
+Re quidem vera per totum medium aevum et etiam postea linguae Latinae usus satis communis erat in scholis, in libris conscribendis : in actis publicis conficiendis : quapropter is sermo ad res novas significandas flectebatur aut verba nova recipiebat. Si ergo temporibus nostris volumus, ut lingua Latina reflorescat non solum ut umbratilis exercitatio litteratorum, sed etiam, ac quidem maxime, licet intra fines circumscriptos, in usu hominum doctrina excultorum et sic vinculum quoddam unitatis evadat, oportet aptum fiat instrumentum ad ea omnia interpretanda, quae aequales nostri cogitatione exprimunt, animi affectione enuntiant, operatione efficiunt. Iam venerandus Decessor Noster Paulus VI id sensit, cum quaereret, an sperandum esset atque agendum, ut lingua Latina pristinas possessiones servare posset et amplificare. Respondit ipse : “Non infitiandum est rem esse gravem, laboriosam ac magnis difficultatibus obseptam. Sed saltem ex parte et communi cum utilitate ad effectum deducetur, si in id incumbatur, ut quemadmodum vetera, ita nova reperta maioris momenti Latinis vocabulis significentur”. En campus late patens, in quem industria vestra excurrat. Accepimus quidem vos eiusmodi negotium, operam inter vos sociantes, iam esse aggressos. Optamus ergo, ut res ex sententia procedat.
+
+Macte virtute et ingenio estote ! Linguam Latinam, Romana maiestate et breviloquentia insignem, quasi ad sculpendum verum et rectum idoneam, ad acriter et logice cogitandum impellentem, diligenter colite et meditatis consiliis quoquoversus provehite ! Contendite, ut, antiquorum praecepta secuti, semper dilucide et plane et, cum res fert, ornate et numerose, apte et congruenter dicatis Latine atque scribatis.
+
+Denique divina auxilia vobis precantes, Benedictionem Apostolicam amantissime impertimus.

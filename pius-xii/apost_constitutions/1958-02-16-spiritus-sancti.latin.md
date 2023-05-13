@@ -1,0 +1,41 @@
+PIUS EPISCOPUS
+
+SERVUS SERVORUM DEI
+
+AD PERPETUAM REI MEMORIAM
+
+CONSTITUTIO APOSTOLICA
+
+***SPIRITUS SANCTI (VICTORIENSIS SPIRITUS SANCTI)***
+
+***(CACHOËIRENSIS DE ITAPEMIRIM - S. MATTHAEI)****
+
+A DIOECESI SPIRITUS SANCTI QUAEDAM TERRITORIA DETRAHUNTUR,
+
+QUIBUS DUAE NOVAE DIOECESES CONSTITUUNTUR ; DIOECESIS PRAETEREA
+
+SPIRITUS SANCTI AD DIGNITATEM ARCHIDIOECESIS METROPOLITANAE
+
+EVEHITUR, « VICTORIENSIS SPIRITUS SANCTI » APPELLANDA.
+
+Cum territorium dioecesis Spiritus Sancti latissime pateat eiusque populus fiat frequentior in dies, censuit venerabilis Frater Armandus Lombardi, Archiepiscopus titulo Caesariensis Philippi et in Foederatis Brasiliae Civitatibus Apostolicus Nuntius, prospere fieri, si eadem divideretur atque ex ea novae dioeceses novaque Ecclesia metropolitana conderentur : per hoc enim et disciplinam ecclesiasticam foveri, et populi necessitatibus aptiore consuli ratione. Quae cum ita sint, consilio petito a venerabilibus Fratribus Nostris S. R. E. Cardinalibus S. Congregationi Consistoriali praepositis, atque explorato quid Ordinarii Praesules provinciae ecclesiasticae S. Sebastiani Fluminis Ianuarii sentirent, admotis precibus concedendum esse arbitramur. Consensum igitur eorum supplentes qui in hac re aliquid iuris habeant, de Nostra summa et apostolica auctoritate haec statuimus et iubemus. A dioecesi Spiritus Sancti municipia separamus vulgari sermone cognominata : Cachoeiro de Itapemirim, Alegre, Castelo, Guaçuí, Iconha, Itapemirim, Iúna, Mimoso do Sul, Muniz Freire, Muqui, Rio Novo de Sul, São José do Calçado et Vala do Sousa ; quibus ex terris novam dioecesim efficimus, *Cachoëirensem de Itapemirim* appellandam, iisdemque limitibus terminandam ac municipia e quibus coalescit. Sedes huius dioecesis urbs Cachoeiro de Itapemirim erit, in qua Episcopus morabitur, cathedra suae auctoritatis in curiali templo S. Petri Apostoli collocata, quod scilicet ad gradum et dignitatem cathedralis evehimus. Ex eiusdem item dioecesis territorio septemtrionali, quod dividimus, alteram dioecesim condimus, *S. Matthaei* nomine, cuius hi fines : ad septemtrionem, iisdem quibus terminantur regiones seu, uti dicunt, Status civiles vulgo Espírito Santo et Bahia ; ad orientem, Oceanus Atlanticus ; ad occidentem, iidem quibus circumscribuntur Status civiles Espírito Santo et Minas Gerais ; ad meridiem autem recta linea quae a Serra de Sousa proficiscens, apud fines qui praedictos Status Espírito Santo et Minas Gerais dividunt, per divortium aquarum procedit inter flumina Rio Pancas et Rio São José usque ad caput rivi Braço Sul ; hinc sequitur rivum Braço Sul usque ad affluvium apud flumen Rio São José, deinde autem Rio São José usque ad confluentem Rio Maocir Avidos ; hinc vero linea in partes septemtrionales pergit, usque ad flumen Rio Barra Sêca eosdem civiles fines attingens ac civile municipium Säo Mateus ; ac tandem per Rio Barra Sêca et Lagoa Barra Sêca usque ad locum Barra Sêca appellatum, apud Oceanum Atlanticum exstantem, descendit. Sedem dioecesis in urbe vulgo São Mateus eius Episcopus ponet, ibique commorabitur ; cathedra vero episcopalis potestatis in templo S. Matthaei Apostoli et Evangelistae collocabitur, quod templum ad gradum cathedralis aedis extollimus. Utrique autem dioecesi, sive scilicet Cachoëirensi de Itapemirim, sive S. Matthaei omnia iura damus, privilegia, insignia, honores, quae Ecclesiis eiusdem ordinis sunt propria ; sacris vero Praesulibus quibus dioeceses administrandae committentur, etiam onera iniungimus suo muneri congruentia. In utraque Ecclesia Canonicorum Collegium condatur, ad normas aliarum Litterarum a Nobis edendarum. Interim autem Consultores dioecesani deligantur, Episcopum iuvaturi ; qui tamen a munere cessabunt, Canonicis constitutis. Seminarium quoque, saltem elementarium, gravi quidem obligatione, in dioecesibus struatur, secundum leges iuris communis et S. Congregationis de Seminariis et Studiorum Universitatibus. Suo vero tempore Episcopi lectos iuvenes Romam mittent, in Pontificium Collegium Pianum Brasilianum, qui sacra theologia ac philosophia recte imbuantur. Mensam episcopalem, quam dicunt, dioecesium efficient : Curiae proventus, christianorum pecunia et dona, stipendium ab auctoritate civili pendendum, pars denique bonorum dioecesis Spiritus Sancti, ad normam canonis 1500 C. I. C. Quod ad regimen, ad administrationem attinet, ad electionem Vicarii Capitularis, Sede vacante, ceteraque huiusmodi, iussa pariter C. I. C. fiant. De clero autem hoc statuimus : ut sacerdotes ei Ecclesiae sint ascripti in qua beneficium aut officium ecclesiasticum habeant ; ceteri vero clerici, ubi legitimo degant domicilio. Documenta denique et acta, ad novas dioeceses quomodolibet pertinentia, ad earum Curias mittantur, ibique religiose in tabulario asserventur. De Nostra insuper summa auctoritate censemus ut dioecesis Spiritus Sancti ab archidioecesi S. Sebastiani Fluminis Ianuarii, cui adhuc fuit suffraganea, iurisdictione eximatur, ex eaque una cum dioecesibus Cachoëirensi de Itapemirim et S. Matthaei, nova provincia ecclesiastica fiat, Victoriensis Spiritus Sancti appellanda ; quae scilicet aeque patebit ac tres dioeceses quas modo numeravimus. Praeterea dioecesim Spiritus Sancti in ordinem Ecclesiarum archiepiscopatum metropolitanarum redigimus, cui erit in posterum cognomen *Victoriensis Spiritus Sancti,* cuique ut congruum, omnia iura, privilegia facimus, quae ad normas iuris communis ad huiusmodi Sedes spectare solent, datis item eius sacrorum Antistiti iuribus, insignibus, honoribus, impositis obligationibus suae congruentibus dignitati. Prae ceteris autem illud memorare placet : posse eum, videlicet, in suis finibus, et crucem ante se ferre in sacris caerimoniis peragendis, et pallio uti cum tamen in sacro Consistorio illud impetraverit. Ecclesiae Cachoëirensis de Itapemirim et S. Matthaei suffraganeae erunt metropoli Victoriensi Spiritus Sancti, cuius Antistiti duarum dioecesium Praesules oboedient. Canonicorum Collegium, postremo, cathedralis templi Spiritus Sancti ad honorem et dignitatem Collegii metropolitani evehimus, cum debitis iuribus, privilegiis, insignibus. Ceterum, haec omnia quae per has Litteras mandavimus, exsequenda curabit venerabilis Frater Armandus Lombardi, cui omnes potestates facimus ad id necessarias, quas poterit, si visum fuerit, alii cuilibet delegare, dummodo sacerdotio insigni. Idem, acta re, documenta exarari studebit, quorum exemplum sincere scriptum, ad S. Congregationem Consistorialem cito mittet. Quod si tempore exsecutionis alius Apostolicae Nuntiaturae in Brasilia praesit, hic iussa Nostra faciet.
+
+Has vero Litteras nunc et in posterum efficaces esse et fore volumus ; ita quidem ut quae per eas decreta sunt ab iis quorum res est religiose serventur, atque igitur vim suam obtineant. Quarum Litterarum efficacitati nulla, cuiusvis generis, contraria praescripta officere poterunt, cum per has Litteras iisdem derogemus omnibus. Quapropter si quis, quavis praeditus auctoritate, sive sciens sive insciens contra egerit ac Nos ediximus, id prorsus irritum atque inane haberi iubemus. Nemini praeterea haec voluntatis Nostrae documenta vel scindere vel corrumpere liceat ; quin immo harum Litterarum exemplis et locis, sive typis impressis sive manu exaratis, quae sigillum viri praeferant in ecclesiastica dignitate constituti simulque ab aliquo publico tabellione sint subscripta, eadem omnino habenda erit fides, quae hisce haberetur, si ostenderentur. Quae Nostra decreta in universum si quis vel spreverit vel quoquo modo detrectaverit, sciat se poenas esse subiturum iis iure statutas, qui Summorum Pontificum iussa non fecerint.
+
+*Datum Roma, apud S. Petrum, die decimo sexto mensis Februarii, anno Domini millesimo nongentesimo quinquagesimo octavo, Pontificatus Nostri undevicesimo.*
+
+|     |     |
+| --- | --- |
+| CELSUS Card. COSTANTINI<br>*S. R. E. Cancellarius* | MARCELLUS Card. MIMMI<br>*S. Congr. Consistorialis a Secretis* |
+
+Hamletus Tondini
+
+*Apostolicam Cancellariam Regens*
+
+Franciscus Hannibal Ferretti,*Proton. Apost.*
+
+Caesar Federici,*Proton. Apost.*
+
+* * *
+
+*A.A.S., vol.   L (1958), n. 14-15, pp. 665-668

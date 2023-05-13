@@ -1,0 +1,43 @@
+PAPE FRANÇOIS
+
+***AUDIENCE GÉNÉRALE***
+
+*Salle Paul VI*
+
+*Mercredi 10 août 2022*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2022/8/10/udienzagenerale.html)]**
+
+_________________________
+
+**Catéchèse sur la vieillesse : *16. “Je pars vous préparer une place” (cf. Jn 14, 2). La vieillesse, temps orienté vers l'accomplissement.***
+
+*Chers frères et sœurs, bonjour !*
+
+Nous en sommes aux dernières catéchèses consacrées à la vieillesse. Aujourd'hui, nous entrons dans l'intimité émouvante de l'adieu de Jésus aux siens, amplement rapporté dans l'Évangile de Jean. Le discours d'adieu commence par des paroles de consolation et de promesse : « Que votre cœur ne soit pas bouleversé » (14,1) ; « Quand je serai parti vous préparer une place, je reviendrai et je vous emmènerai auprès de moi, afin que là où je suis, vous soyez, vous aussi. » (14,3). Ce sont de belles paroles, celles du Seigneur.
+
+Plus tôt, Jésus avait dit à Pierre : « tu me suivras plus tard » (13,36), lui rappelant le passage à travers la fragilité de sa foi. Le temps de vie qui reste aux disciples sera, inévitablement, un passage à travers la fragilité du témoignage et à travers les défis de la fraternité. Mais ce sera aussi un passage à travers les enthousiasmantes bénédictions de la foi : « Celui qui croit en moi fera les œuvres que je fais. Il en fera même de plus grandes » (14,12). Pensez à quelle promesse cela représente ! Je ne sais pas si nous y pensons au fond, si nous y croyons pleinement ! Je ne sais pas, parfois je pense que non...
+
+La vieillesse est le moment propice pour le témoignage émouvant et joyeux de cette attente. Le vieil homme et la vieille femme attendent, ils attendent un rendez-vous. Dans la vieillesse, les œuvres de la foi, qui nous rapprochent, nous et les autres, du royaume de Dieu, sont désormais hors de portée des énergies, des paroles et des élans de la jeunesse et de la maturité. Mais ainsi ils rendent encore plus transparente la promesse de la vraie destination de la vie. Et quelle est la vraie destination de la vie ? Une place à table avec Dieu, dans le monde de Dieu. Il serait intéressant de voir s'il existe quelque référence spécifique dans les églises locales, destinée à revitaliser ce ministère spécial de l'attente du Seigneur- c’est un ministère, le ministère de l’attente du Seigneur -encourageant les charismes individuels et les qualités communautaires de la personne âgée.
+
+Une vieillesse qui se consume dans l’avilissement des occasions manquées conduit à l’avilissement pour soi et pour tous. Au contraire, la vieillesse vécue avec douceur et vécue avec le respect pour la vie réelle dissipe définitivement l’équivoque d'une puissance qui doit se suffire à elle-même et à son propre succès. Il dissipe même l’équivoque d'une Église qui s'adapte à la condition mondaine, pensant ainsi gouverner définitivement sa perfection et son accomplissement. Lorsque nous nous libérons de cette présomption, le temps du vieillissement que Dieu nous accorde est déjà en soi une de ces œuvres « *plus grandes* » dont parle Jésus. En effet, c'est une œuvre qu'il n'a pas été donné à Jésus d’accomplir : sa mort, sa résurrection et son ascension au ciel l'ont rendue possible pour nous ! Rappelons-nous que « *le temps est supérieur à l'espace* ». C'est la loi de l'initiation. Notre vie n’est pas faite pour se renfermer sur elle-même, visant une perfection terrestre imaginaire : elle est destinée à aller au-delà, à travers le passage de la mort- parce que la mort *est* un passage. En effet, notre lieu de stabilité, notre point d'arrivée n'est pas ici, c’est auprès du Seigneur, là où Il demeure pour toujours.
+
+Ici, sur terre, commence le processus de notre « noviciat » : nous sommes des apprentis de la vie qui - au milieu de mille difficultés - apprennent à apprécier le don de Dieu, en assumant la responsabilité de le partager et de le faire fructifier pour tous. Le temps de la vie sur terre est la grâce de ce passage. L'idée d'arrêter le temps - vouloir l’éternelle jeunesse, le bien-être sans limite, le pouvoir absolu - n'est pas seulement impossible, cela relève du délire.
+
+Notre existence sur terre est le temps de l'initiation à la vie : c'est la vie, mais qui te conduit à une vie plus complète, l'initiation à une vie plus complète ; une vie qui ne trouve son accomplissement qu'en Dieu seul. Nous sommes imparfaits dès le début et nous restons imparfaits jusqu'à la fin. Dans l'accomplissement de la promesse de Dieu, la relation est inversée : l'espace de Dieu, que Jésus nous prépare avec tous les soins, est supérieur au temps de notre vie mortelle. Ici : la vieillesse rapproche l'espérance de cet accomplissement. La vieillesse connaît définitivement le sens du temps et les limites du lieu dans lequel nous vivons notre initiation. La vieillesse est sage à ce titre : les vieux sont sages pour cela. C'est pourquoi elle est crédible lorsqu'elle nous invite à nous réjouir du temps qui passe : ce n'est pas une menace, c'est une promesse. La vieillesse est noble, elle n'a pas besoin de maquillage pour montrer sa noblesse. Peut-être le maquillage vient-il lorsque la noblesse fait défaut. La vieillesse est crédible quand elle invite à se réjouir du temps qui passe : mais le temps passe... Oui, mais ce n'est pas une menace, c'est une promesse. La vieillesse, qui retrouve la profondeur du regard de la foi, n'est pas conservatrice par nature, comme on dit ! Le monde de Dieu est un espace infini, sur lequel le passage du temps n'a plus aucun poids. Et précisément lors de la dernière Cène, Jésus se projette vers ce but, lorsqu'il a dit à ses disciples : « Désormais, je ne boirai plus de ce fruit de la vigne, jusqu’au jour où je le boirai, nouveau, avec vous dans le royaume de mon Père » ( *Mt* 26, 29). Il est allé plus loin. Dans notre prédication, le Paradis est souvent, à juste titre, plein de félicité, de lumière, d'amour. Peut-être manque-t-il un peu de vie. Jésus, dans les paraboles, parlait du royaume de Dieu en y mettant plus de vie. Ne sommes-nous plus capables de le faire, nous ? La vie qui se poursuit ...
+
+Chers frères et sœurs, la vieillesse, vécue dans l'attente du Seigneur, peut devenir l’“apologie” accomplie de la foi, qui rend raison, à tous, de notre espérance pour tous (cf. 1 *P* 3, 15). Car la vieillesse rend transparente la promesse de Jésus, en se projetant vers la Cité Sainte dont parle le livre de l'Apocalypse (chap. 21-22). La vieillesse est le moment de l’existence le plus apte à transmettre la joyeuse nouvelle que la vie est une initiation pour un accomplissement définitif. Les vieux sont une promesse, un témoignage de la promesse. Et *le meilleur est encore à venir*. Le meilleur est encore à venir : cela ressemble au message du vieil homme croyant, au message de la vieille femme croyante, le meilleur est encore à venir. Que Dieu nous accorde à tous une vieillesse capable de cela ! Merci.
+
+* * *
+
+Je salue cordialement les pèlerins de langue française, en particulier la jeunesse franciscaine de Bitche.
+
+Nous fêterons bientôt Notre Dame de l’Assomption. Que la Vierge Marie, entrée dans la gloire du Ciel, soutienne notre courage dans ce temps d’initiation que nous avons encore à vivre ici-bas. Qu’elle aide les personnes âgées à rendre joyeusement témoignage de leur foi et de leur espérance.
+
+Que Dieu vous bénisse.
+
+* * *
+
+**Résumé de la catéchèse du Saint-Père :**
+
+Frères et Sœurs, Jésus annonce à ses disciples, dans son discours d’adieu, que le temps qui leur reste à vivre consistera en un passage, certes, à travers la fragilité du témoignage, mais qui connaîtra les enthousiasmantes bénédictions que procure la foi. Dans la vieillesse, les œuvres de la foi ne sont plus celles des paroles ni des élans de la jeunesse. Elles consistent plutôt dans le témoignage de l’attente, émouvante et joyeuse, de la réalisation de la promesse du Seigneur : « je vous prendrai avec moi pour que, là où je suis, vous soyez aussi ».  Notre vie n’est pas faite pour se renfermer sur elle-même, visant une perfection terrestre imaginaire. Les désirs d’éternelle jeunesse, de pouvoir absolu, de bien-être sans limite, sont des illusions. La vie ici-bas est un apprentissage, une initiation à la vraie vie qui nous attend, une vie qui trouve en Dieu seul son accomplissement. Nous sommes imparfaits dès le commencement, et nous le resterons jusqu’à la fin ; la vieillesse témoigne davantage encore de ces limitations. Mais, vécue dans la foi et dans l’espérance de ce que Jésus nous prépare, elle devient le moment de l’existence la plus apte à transmettre la joyeuse nouvelle que la vie est une initiation pour un accomplissement définitif.

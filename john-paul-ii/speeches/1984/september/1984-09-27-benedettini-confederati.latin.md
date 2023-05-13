@@ -1,0 +1,37 @@
+***ALLOCUTIO IOANNIS PAULI PP. II***
+
+***AD FRATRES CONFOEDERATIONIS BENEDICTINAE***
+
+*Die XXVII, mensis Septembris, anno MCMLXXXIV*
+
+*Carissimi Fratres Benedictini*,
+
+**I.**
+
+Valde quidem placet mihi vos singulos hic coram conspicere hac in aula vosque maxima qua possum benevolentia in Domino consalutare atque optatam hanc accipere occasionem ut confirmem animos vestros in vitae Benedictinae propositis diligenter fortiterque prosequendis, in rationibus vitae vestrae renovandis, in significationibus operum et institutorum vestrorum penitus ponderandis. Scio probe participes vos esse maximi Congressus ipsius Confoederationis Benedictinae apud Coenobium Sancti Anselmi in Aventino ; scio pariter summo vos consensu fervidoque plausu confirmavisse ad quadriennium Reverendissimum Abbatem Victorem Dammertz in Abbatis Primatis officio, cui meam simul gratulationem defero ac preces simul promitto ad prosperrimam muneris eius perfunctionem laetissimamque familiae Benedictinae gubernationem secundum Foederationis normas. Huc igitur hodie mane venistis ut “videre Petrum” possitis et fortasse etiam aliquam vocem fraternam ab eo recipere, veluti recordationem congressionis vestrae Romanae necnon salutationis huius apud Christi Vicarium.
+
+**II.**
+
+Nolo vos diutius pluribusque hic verbis detinere. Tamen inscriptio ac titulus Congressus vestri suggerit animo nonnullas cogitationes prorsus Benedictinas : “Vos vero quem me dicitis esse ?” ( *Marc*. 8, 29). Agitur, ut patet, de cognitione familiari Christi ante omnia, deinde de testificatione eius inter homines huius temporis. Interrogat Christus etiam hodie quem homines eum esse putent, quem vos potius ipsi eum esse existimetis. Vita vestra est eiusdem Christi sequela ; vos Christum sequimini, quoniam scitis quis ille sit. Et homines ad vos accedent ut discant, ut experiantur, ut videant quis Iesus Christus sit, ex vestris vitae exemplis, ex vestris liturgiae sacrae ritibus, ex vestris studiorum fructibus. Coenobia vestra sunt ea loca, ubi vos in primis Iesum Nazarenum cognovistis, ubi eum vobiscum hospitem perpetuum comitemque habetis. Coenobia igitur vestra loca etiam erunt ubi alii viri ac mulieres nostrae aetatis signa quaerent praesentiae Christi, fraternitatis Christi, caritatis Christi, sanctitatis Christi.
+
+**III.**
+
+Vita vestra cum Christo verius ac magis proprie vocanda est vita Eius vobiscum. Tum omnino, cum difficultatem itineris sentitis, vos consolatur eius affirmatio : “Confidite, ego sum ; nolite timere” ( *Ibid*. 6, 50). Ipse comes vester et dux est : cibus vester ac potus, baculus et virga ( *Ps*. 23). De hoc vestro cotidiano cum Christo itinere loquitur Conciliare Decretum “ *[Perfectae Caritatis](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651028_perfectae-caritatis_lt.html)*” ( *Perfectae Caritatis*, 9): “Religiosi ergo suae professioni fideles omnia propter Christum dimittentes ( *Marc*. 10, 28), Ipsum tamquam unum necessarium ( *Luc*. 10, 42) sequantur ( *Matth*. 19, 21), Eius verba audientes ( *Luc*. 10, 39), de iis quae Eius sunt solliciti” ( *1 Cor*., 7, 32).
+
+**IV.**
+
+Vos Benedictini percurritis hoc iter cum Christo in “dominici schola servitii” — uti dicitur luculenter in Regula Benedicti (S. Benedicti, *Regula*, Prol. 45). Quae schola secum affert continuam institutionem a Sancto Spiritu impertitam in audiendis verbis Magistri ( *Ibid*. 1)qui est Christus. “Lectio divina” vobis adiumentum praebet mirabiliter efficax ad consequendam “eminentiam scientiae Christi Iesu Domini” ( *Phil*. 3, 8 ; *[Dei Verbum](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651118_dei-verbum_lt.html)*, 5). Eodem autem tempore haec schola, orationis quoque continuae schola est, quia in celebratione “Operis Dei” renovatur et exauditur simul petitio discipulorum : “Domine, doce nos orare” ( *Luc*. 11, 1). Virtus et laetitia huius vestri cotidiani itineris cum Christo in coenobiis vestris oritur vobis ex celebratione in communitate ipsius liturgiae Horarum atque Eucharistiae. Earum primatus et necessitas cotidiana vobis indicare debent hereditatem Sancti Benedicti fideliter custoditam et immunem a quavis disputatione vel experimento. Hoc modo vita vestra magis magisque evadit vera quaedam inquisitio Dei Patris (S. Benedicti, *Regula*, 58, 7)necnon participatio Paschatis Domini quod ipse vobiscum celebrat.
+
+**V.**
+
+Idcirco convenitis in tales Congressus ut meditemini quibus melioribus modis domus vestrae fieri possint domicilia communitatis christianae, castra — ut ita dicam — precationis, sedes etiam studiorum : secundum regulas et constitutiones vestras. Sunt coenobia vestra “ecclesiolae monasticae” secundum celeberrimam Patris Benedicti sententiam : “(Monachi) se invicem praeveniant, infirmitates suas sive corporum sive morum patientissime tolerent ; oboedientiam sibi certatim impendant ; nullus quod sibi utile iudicat sequatur, sed quod magis alii ; caritatem fraternitatis caste impendant” ( *Ibid*., 72, 4-8). Talibus vitae vestrae virtutibus et viis Christus praesens redditur inter vos ; et si tales virtutes colere sciveritis inter vos, ostendetis tum Ecclesiae toti tum hominibus Christum quaerentibus vos scire quis sit Christus, et quid sibi velit ipsum christianum nomen. Per hos viae vestrae thesauros ac divitias spiritalis vitae vos ipsi intellegetis qualis persona et opera sit Christi, ac valebitis simul respondere hominibus : qui sitis vos, quare Christum vos sequamini, quomodo et illi in propriae vitae condicionibus eundem Dominum Iesum hodie invenire possint.
+
+**VI.**
+
+Docente iterum Sancto Benedicto, monachus nihil carius novit quam Christum ( *Ibid*. 5, 2), qui quaerit monachum illum tamquam operarium suum (Ibid., *Prol*., 14), qui vicissim ex eiusdem Christi amore percurrit regiam viam oboedientiae et humilitatis, silentii et servitii, doloris et iucunditatis. Haec vero omnia merito existimantur responsa data maximae illi interrogationi : quem Christum dicatis et putetis vos — fratres Benedictini, Abbates coenobiorum, huius Congressus participes. Aperitur vobis praeclarissimus rerum futurarum prospectus ; aperitur etiam latissimus campus benedictini apostolatus. Vestrae ideo partes sunt : cognoscere inter vos et intra vos ipsum Dominum Iesum eiusque mysterium multiplex, deinde idem efficaciter docere homines, quotquot vos adeunt in domibus, in ecclesiis, in scholis vestris. Gratulor vos vehementer de titulo sapientissime imposito huic vestro Congressui. Gratulor vos de traditione vestra Benedictina deque maximo vigore vitae Benedictinae per totam hodie Ecclesiam.
+
+**VII.**
+
+Optimos fructus precor a Deo ex deliberationibus et collocutionibus vestris hos per dies. Placebit mihi etiam aliquando inspicere et recensere ultimas Congressus ipsius conclusiones et proposita. Interea fraternitatis magnae affectu amplector Reverendissimum Abbatem Primatem, et unumquemque vestrum. Adero animo inter vos proximis hisce diebus bene precans operisque vestri optimum exitum ominans ad venturam familiae Benedictinae et operae Benedictinae prosperitatem. Haec igitur habetote cogitata quaedam mea et simplicia verba. Accipitote etiam Benedictionem meam ac salutationem ex animo veluti auspicem divini posthac semper favoris testemque meae erga vos universos benevolentiae.
+
+© Copyright 1984 - Libreria Editrice Vaticana

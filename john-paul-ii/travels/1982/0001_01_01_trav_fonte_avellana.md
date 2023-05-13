@@ -1,6 +1,0 @@
-|     |
-| --- |
-|  |
-| ***Visite Pastorale à Fonte Avellana (Italie)***<br>***(5 septembre 1982)***<br>**A la population de Serra Sant'Abbondio (5 septembre 1982)**\[ [Italien](/content/john-paul-ii/it/speeches/1982/september/documents/hf_jp-ii_spe_19820905_serra-s-abbondio.html), [Portugais](/content/john-paul-ii/pt/speeches/1982/september/documents/hf_jp-ii_spe_19820905_serra-s-abbondio.html)\]<br>- **Messe au Monastère de Sainte-Croix de Fonte Avellana (5 septembre 1982)**\[ [Italien](/content/john-paul-ii/it/homilies/1982/documents/hf_jp-ii_hom_19820905_fonte-avellana.html), [Portugais](/content/john-paul-ii/pt/homilies/1982/documents/hf_jp-ii_hom_19820905_fonte-avellana.html)\]<br>- **A la communauté des moines Camaldules (5 septembre 1982)**\[ [Italien](/content/john-paul-ii/it/speeches/1982/september/documents/hf_jp-ii_spe_19820905_monaci-camaldolesi.html), [Portugais](/content/john-paul-ii/pt/speeches/1982/september/documents/hf_jp-ii_spe_19820905_monaci-camaldolesi.html)\] |
-|  |
-|  |

@@ -1,0 +1,6 @@
+|     |
+| --- |
+|  |
+| ***Voyage Apostolique en Albanie***<br>***(25 avril 1993)***<br>- **Cérémonie de bienvenue à l'Aéroport international de Tirana (Albanie, 25 avril 1993)**<br>  <br>  [ [Italien](/content/john-paul-ii/it/speeches/1993/april/documents/hf_jp-ii_spe_19930425_arrivo-albania.html)]<br>  <br>- **Ordination de quatre évêques albanais dans la Cathédrale du Sacré Cœur de Scutari (Albanie, 25 avril 1993)**<br>  <br>  [ [Italien](/content/john-paul-ii/it/homilies/1993/documents/hf_jp-ii_hom_19930425_scutari.html)]<br>  <br>- **Récitation du Regina Cæli à Scutari (Albanie, 25 avril 1993)**[ [Espagnol](/content/john-paul-ii/es/angelus/1993/documents/hf_jp-ii_reg_19930425.html), [Italien](/content/john-paul-ii/it/angelus/1993/documents/hf_jp-ii_reg_19930425.html)]<br>  <br>- **Message à la nation albanaise sur la Place Scanderbeg à Tirana (Albanie, 25 avril 1993)**<br>  <br>  [ [Italien](/content/john-paul-ii/it/speeches/1993/april/documents/hf_jp-ii_spe_19930425_nazione-albanese.html)] |
+|  |
+|  |

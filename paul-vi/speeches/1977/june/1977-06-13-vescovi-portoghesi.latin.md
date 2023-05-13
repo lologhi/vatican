@@ -1,0 +1,31 @@
+***DISCORSO DEL SANTO PADRE PAOLO VI***
+
+***AD UN GRUPPO DI VESCOVI PORTOGHESI***
+
+***IN VISITA « AD LIMINA APOSTOLORUM »***
+
+*Lunedì, 13 giugno 1977*
+
+*Venerabilis Frater Noster Sanctae Romanae Ecclesiae Cardinalis,*
+
+*Patriarcha Lisbonensis,*
+
+*ceterique dilectissimi Nobis Fratres in Episcopatu,*
+
+Ex animovos salvere iubemus, qui e Provinciis ecclesiasticis Lisbonensi et Eborensi in hanc Urbem vos contulistis ad visenda limina Apostolorum Nosque, hac oblata occasione, adire voluistis. Hic adventus vester in diem feliciter incidit, qua memoria recolitur Sancti Antonii, appellati quidem Patavini, sed Olisipone circiter annum millesimum centesimum nonagesimum quintum nati, nomine Ferdinandi imposito. Qui anno millesimo ducentesimo vicesimo primo Asisium pervenit, deinde, quodam temporis spatio interiecto, Patavium, ubi iuvenili adhuc aetate die tertia decima mensis Iunii anno millesimo ducentesimo tricesimo primo in Domino obdormivit. Fuit sacer orator, eloquentia praeclarus, scientia eximius, quapropter in Ecclesiae Doctorum numerum est aggregatus ; est tamen populo notior ut Sanctus miraculorum patrator. Hodie ergo eum supplices invocemus, ut gratiarum copiam praesertim patriae suae Lusitanae, quam Nos habemus carissimam, impetret.
+
+Nova quidem aetas coepit pro Natione vestra, « Natione Fidelissima », ut nuncupatur, quae simul est Natio missionaria – satis est cogitare de magnanimis viris, qui fidem in exteris regionibus propagarunt, praesertim Sanctus Franciscus Xaverius, qui in Lusitanum hoc opus evangelizationis est insertus - quae est simul marialis, potissimum ob sanctuarium Fatimense, quod a fidelibus totius orbis terrarum pie celebratur.
+
+Novae quaedam formae politicae et sociales in patria vestra sunt exortae, quae impellunt, ut « animam religiosam », Lusitaniae inquiramus ac deprehendamus ; etenim Nostra imprimis interest, quid quid ad sanctam pertinet religionem.
+
+Ante omnes autem nos Episcopi ipsi provocamur, cum salus et profectus gregum magnam partem ex nobis pendeat. Ut novis temporibus pares simus, oportet vitam nostram sacerdotalem inspiciamus ; ac forsitan expediat, ut, spirituales exercitationes instituendo, rebus animarum nostrarum aliquandiu vacemus et rationes pastoralis actionis nostrae luce Dei affulgente perscrutemur. Semper enim memores simus, priores partes muneris nostri, qui sumus rectores et magistri populi fidelis, ipsi conversationi nostrae esse tribuendas. Profecto verum iugiter exstat, quod ait Sanctus Gregorius Magnus : « Illa namque vox libentius auditorum cor penetrat, quam dicentis vita commendat » (S. GREGORII MAGNI *Reg. Past*., 2, 3 : *PL* 77, 28).
+
+Magnitudo officii episcopalis conscientiam nostram debet sollicitare. Hoc pondus persensit Sanctus Augustinus, die anniversaria ordinationis suae populum Hipponensem his verbis allocutus : « Et quanto anni accedunt, imo decedunt, nosque propinquiores faciunt diei ultimo, utique quandoque sine dubitatione venturo ; tanto mihi est acrior cogitatio, et stimulus plenior, qualem Domino Deo nostro rationem possim reddere pro vobis » (’S. AUGUSTINI *Sermo* 339, 1 : *PL* 38, 1480).
+
+Quemadmodum in Actibus Apostolorum legimus, « vos Spiritus Sanctus posuit episcopos, pascere Ecclesiam Dei, quam acquisivit sanguine suo » ( *Act*. 20, 28). Ut autem frugifere praesimus, idem Spiritus, qui sanctitatem operatur, oportet praesens sit in nobismet ipsis et vitam spiritualem nostram alat, confirmet, promoveat. Haec ipsa eius praesentia animas nostras purificat et vigore superno corroborat, quibus rebus prorsus indigemus. Non autem administratores sumus, tranquillam et pacificam aetatem agentes, sed vocamur ad occurrendum temporibus difficilibus et ad solvendas quaestiones gravissimas.
+
+Haec ipsa hora nos admonet, ut sancti simus, ea quidem sanctitate quae est propria Episcoporum. Cuius quasdam notas Nobis libet in lumine ponere : a) imprimis inculcatur nobis orandi consuetudo : « nos vero orationi et ministerio verbi instantes erimus » ( *Ibid*. 6, 4). Decet ergo nos viros esse precibus fundendis debitos, quae oportet sint constantes et impensae ; b) deinde postulatur, ut studia exerceamus ac praesertim doctrinae religiosae simus periti : scilicet legere debemus, commentari, nosque de tot rebus certiores facere. Versatur hic ante oculos mentis Nostrae Sanctus Augustinus, qui Beatissimum Episcopum Mediolanensem Ambrosium mirabatur « legentem tacite » (S. AUGUSTINI *Confessiones*, 6, 3, 3 : *PL* 32, 720); c) cogitandi et agendi ratio nostra conformanda est normis et praeceptis Concilii Vaticani Secundi, quod quasi « tomus » aetatis nostrae potest appellari ; d) maxime praedicatione verbi Dei alias ad Christum perducere debemus ; ait enim eadem universalis Synodus Vaticana : « Inter praecipua Episcoporum munera eminet praedicatio Evangelii » ( *Lumen Gentium*, 25). Haec, licet sit brevis et simplex, semper tamen e meditatione promanet sitque gravis et pia ; e) Episcopi denique est illa opera fovere, quae cum eius magisterio conectuntur, qualia sunt scholae, quibus hodie tot pericula impendent, et seminarium, quod est « cor dioecesis » (Cfr. *Optatam Totius*, 5). Praeterea officium magistri, saltem interdum, etiam latius patere potest et ipsa instrumenta communicationis socialis complecti, veluti rem radiophonicam : est enim in patria vestra huiusmodi statio catholica.
+
+Ut omnia paucis comprehendamus, necessaria est nobis evangelizatio sancta et sanctificans : « Signa temporum magnam nobis suadent vigilantiam. Etenim vehementer semper . . . nos interrogant : Creditisne vos ipsi ea quae dicitis ? Vivitisne ea quae creditis ? Praedicatisne revera ea quae vivitis ? Plus quam umquam alias testimonium vitae sic factum est pernecessaria condicio plenae efficacitatis praedicationis. Quapropter, ecce in nos ipsos tamquam auctores quadamtenus recidit omnis progressus et effectus Evangelii, quod proclamamus » (PAULI PP. VI *Evangelii Nuntiandi*, 76 : *AAS* 68 (1976) 67).
+
+Haec habuimus, quae ad vos amanti animo diceremus, mandatum Domini exsecuti, quod per Beatum Petrum eiusque Successores ad Nos pervenit : « confirma fratres tuos » ( *Luc*. 22, 32). Demum Benedictionem Apostolicam vobis singulis, qui adestis, necnon sacerdotibus et fidelibus, curae uniuscuiusque vestrum commissis, libentissime impertimus.

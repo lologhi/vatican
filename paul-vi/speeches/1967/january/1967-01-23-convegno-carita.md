@@ -1,0 +1,15 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX PARTICIPANTS AU CONGRÈS Œ CUMÉNIQUE DE CHARITÉ***
+
+*Lundi 23 janvier 1967*
+
+*Chers Messieurs,*
+
+C’est une joie pour Nous, au tours de tette « semaine de l’Unité», qui voit s’élever vers le Ciel pour tette grande cause tant de ferventes prières, d’accueillir ici un groupe de personnes particulièrement qualifiées, qui travaillent non seulement en paroles, mais « en œuvre et en vérité» (cf. *2 Io*, 3, 18) à acheminer le monde chrétien vers l’union tant désirée.
+
+Vous avez choisi, avec un sens parfait de l’opportunité et des possibilités actuelles de l’action œcuménique, le terrain sur lequel une initiative commune est possible, désirable, et suggérée même - pourrait-on dire - de façon impérieuse par les conditions présentes de la société. Nous voyons en effet aujourd’hui, dans un monde où la technique e le bien-être abondent, des millions de nos frères humains aux prises avec les pires fléaux : la famine, la maladie, la misère, et toutes les conséquences de ce qu’on est convenu d’appeler le « sous-développement ». Etat de fait, qu’il est désormais impossible d’ignorer et qui dicte à tout cœur chrétien sa ligne de conduite : aider, secourir, le mieux possible, le plus efficacement possible, le plus rapidement possible.
+
+Vous avez pris au sérieux cet appel du frère dans le besoin, et ce sont des sentiments de vraie et pure charité qui vous inspiraient, chers fils et amis, lorsque vous vous réunissiez pour la première fois à Genève, il y a juste un an. Vous aviez conscience qu’il vous fallait étudier en commun les moyens de remédier à la situation actuelle, dans une même et efficace résolution de rendre ensemble témoignage à la charité de notre unique Seigneur, présent - il nous l’a dit - dans tout homme qui souffre. Attitude éminemment chrétienne et qui ne pouvait porter que de bons fruits. De fait, les résultats de votre premier colloque ont été positifs. Vous avez déterminé les champs possibles d’action commune et suggéré des réalisations immédiates. Et vous venez de vous réunir à nouveau à Rome ces jours-ci pour tenter de faire un pas de plus dans cette direction.
+
+Nous avons eu connaissance du programme de vos journées romaines. Nous savons combien vous êtes sensibilisés à cet «œcuménisme pratique », qui rapproche les cœurs et qui prépare et annonce le si heureux et si désiré rapprochement des esprits. Venant à Rome - et plusieurs d’entre vous pour la première fois - vous avez manifesté le désir de Nous rendre visite. Nous vous remercions de cette occasion que vous Nous avez donnée de vous rencontrer et d’appeler avec vous la bénédiction de Dieu et de son Christ sur l’œuvre entreprise. Aussi est-ce de grand cœur qu’en vous accueillant ici aujourd’hui Nous formons des vœux pour le succès croissant de vos initiatives et invoquons sur vos personnes, sur les deux très dignes présidents de cette session, sur ceux que vous y représentez et sur tous ceux qui vous sont chers, une grande abondance des divines grâces.

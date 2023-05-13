@@ -1,0 +1,29 @@
+***LETTRE DU PAPE PAUL VI***
+
+***À******Mgr EDOUARD MASSAUX***
+
+***RECTEUR DE L'UNIVERSITÉ CATHOLIQUE DE LOUVAIN***
+
+*A Monseigneur Edouard Massaux*
+
+*Recteur de l'université Catholique de Louvain*
+
+Le transfert à Louvain-la-Neuve des Facultés de Théologie et de Droit canonique consacre définitivement l'effort gigantesque qui a permis de tirer, d'une conjoncture particulièrement douloureuse et périlleuse, une réalisation merveilleuse et riche d'espérance. Nous ne pouvons ignorer ni le courage des autorités religieuses et académiques ni la généreuse intelligence des autorités civiles qui ont permis un tel résultat. Notre admiration s'étend à tout l'ensemble de cette Université, mais la circonstance nous invite à nous féliciter plus expressément de l'installation dans le complexe universitaire des Facultés de Théologie et de Droit canonique.
+
+Quelle place en effet n'ont pas glorieusement tenue ces Facultés non seulement dans l'Eglise de Belgique, mais dans l'Eglise universelle ! Il est inutile d'évoquer ici des faits et des noms. Ils sont présents à tous les esprits, témoins de la tradition prestigieuse qu'en cette solennelle occasion Nous voulons de tout cœur évoquer, encourager et bénir. Il n'échappe à personne à quel point les sciences sacrées importent à la vie de l'Eglise alors qu'on assiste à l'avènement d'une culture toujours plus marquée par des caractères scientifiques et technologiques, cependant qu'on voit naître ici et là de nouvelles formes de culture plus en accord avec les traditions de tel ou tel peuple.
+
+Face à cette situation, les sciences ecclésiastiques doivent assumer des tâches en partie nouvelles. Leur fonction en effet ne peut se limiter soit à former des professeurs compétents dans les diverses disciplines sacrées soit à pratiquer la recherche scientifique ; il s'agit encore pour elles d'entrer en dialogue avec les nouveaux styles de culture qui apparaissent. Un peu partout dans le monde on s'est mis à l'œuvre dans ce sens et Nous pensons volontiers aux nombreux théologiens qui, souvent sans faire parler d'eux, vouent tous leurs efforts à cette mission délicate et urgente. La période actuelle est difficile pour les sciences théologiques ; le risque est peut-être inévitable de déviations qui laissent l'Eglise profondément troublée : en plusieurs circonstances Nous avons dû parler, comme l'ont fait également bien des Episcopats.
+
+En effet, cherchant à rendre le message chrétien plus accessible à la mentalité moderne, certains ont mis en question le contenu même du message ! Non pas qu'il faille refuser au théologien la juste liberté, indispensable à son travail, mais la théologie n'est pas une affaire privée : n'est plus théologie ce qui n'est pas dans l'Eglise et pour l'Eglise. La responsabilité du théologien se situe à l'intérieur de la « communia Ecclesiae ». Or la théologie aujourd'hui est parfois tentée de penser que ses droits à la liberté académique sont identiques à ceux des sciences profanes. En réalité la définition des droits du théologien découle de critères qui sont propres à cette science : la fonction du théologien s'exerce en vue de l'édification de la communion ecclésiale, afin que le Peuple de Dieu croisse dans l'expérience de la foi.
+
+Responsable pour sa part de la Parole de Dieu, le théologien est donc tenu à la fidélité envers le Christ et envers l'Eglise et, plus particulièrement, envers ceux qui, par volonté expresse du Christ, sont dans l'Eglise l'authentique interprète de cette Parole de Dieu. La foi et le Magistère appartiennent à l'essence même de la théologie. La théologie ne pourra jamais se concevoir comme une instance autonome à l'intérieur de l'Eglise ou comme une alternative au Magistère. Pensant à Louvain, Nous avons plutôt motif de nous réjouir sincèrement, car Nous connaissons la collaboration existant entre la Faculté théologique et l'Episcopat. Collaboration où les rôles et les droits propres à chacun sont respectés et comme réciproquement fécondés et enrichis. Plus d'une fois, Nous avons pu apprécier la prudence des théologiens de l'Université de Louvain, plus soucieux d'assurer l'accord de leur pensée avec la foi de toujours que d'obtenir une popularité facile dans l'opinion publique. Nous nous en réjouissons et Nous désirons que l'on persévère dans cette voie qui est la vraie.
+
+En cette même solennelle occasion, Nous prenons volontiers acte de la présence sur le campus universitaire de la Faculté de Droit canonique. Nous n'ignorons pas ses difficultés présentes. Elles sont le fait de tous ; au cours de ces dernières années et pour diverses raisons l'étude du droit canonique a perdu sensiblement de son intérêt, en particulier auprès des étudiants ecclésiastiques. Or tout en soulignant le primat de la charité et de l'intériorité, le Concile Vatican II n'a pas méconnu la fonction du droit canonique, et la Sacrée Congrégation pour l'Education Catholique, dans une note récente dont il Nous plaît de dire l'importance, n'a pas manqué de relever à quel point l'étude du droit canonique était en harmonie avec l'ecclésiologie du deuxième Concile du Vatican.
+
+Nous sommes heureux enfin d'exprimer à vous-même, Monseigneur le Recteur, aux autres autorités académiques, à tout le corps enseignant et aux étudiants en toutes les disciplines, combien Nous nous sentons proche de vous tous par le cœur, l'affection et la confiance, Souvent dans le passé l'Eglise a regardé avec admiration vers l'Université Catholique de Louvain et attendu beaucoup de ses travaux ; elle continuera certainement à le faire à l'avenir, car au sein de cette Université tous sentent l'Eglise présente, vivante et agissante.
+
+A ces sentiments d'estime et d'affection, Nous joignons notre Bénédiction Apostolique, implorant sur vous tous abondance de dons célestes de la part de l'Esprit de Sagesse et d'Intelligence.
+
+*Du Vatican, le 13 septembre 1975.*
+
+**PAULUS PP. VI**

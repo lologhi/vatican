@@ -1,0 +1,35 @@
+VOYAGE APOSTOLIQUE DU PAPE
+
+BENOÎT XVI
+
+EN TURQUIE
+
+(28 NOVEMBRE - 1er DÉCEMBRE 2006)
+
+**RENCONTRE** **AVEC LES JOURNALISTES**
+
+**À BORD DE L'AVION,  AVANT LE DÉPART POUR LA TURQUIE**
+
+***SALUT*** ***DU SAINT-PÈRE***
+
+*Aéroport de Rome-Fiumicino*
+
+*Mardi 28 novembre 2006*
+
+Chers amis, journalistes, cameramen, je vous salue tous cordialement à bord de ce vol et je voudrais vous exprimer ma gratitude sincère pour le travail que vous accomplissez. Je sais qu'il s'agit d'un travail difficile, un travail qui s'exerce dans des situations souvent difficiles :  donner des informations brèves sur des événements complexes et difficiles, faire une synthèse et rendre compréhensible l'essence de ce qui a eu lieu ou de ce qui a été dit. Tous les événements ne parviennent à l'humanité que grâce à votre médiation, et ainsi, vous accomplissez réellement un service de grande importance, pour lequel je vous suis reconnaissant. Nous savons que le but de ce voyage est le dialogue, la fraternité:  un engagement pour la compréhension entre les cultures, pour la rencontre des cultures avec les religions, pour la réconciliation. Nous ressentons tous la même responsabilité en ce moment difficile de l'histoire et nous collaborons, et votre travail est d'une grande importance. C'est pourquoi je vous répète, une fois de plus, merci.
+
+**Ce voyage qui commence aujourd'hui se présente, en raison des tensions qui s'ajoutent à son caractère oecuménique, comme l'un des plus délicats de l'histoire des voyages pontificaux modernes. Dans quel esprit l'affrontez-vous ?**
+
+Je l'affronte avec une grande confiance et espérance. Je sais que de nombreuses personnes nous accompagnent par leur sympathie, par leur prière. Je sais également que le peuple turc est un peuple accueillant, ouvert, qui désire la paix. Je sais que la Turquie est depuis toujours un pont entre les cultures et qu'elle est également un lieu de rencontre et de dialogue. Je voudrais souligner qu'il ne s'agit pas d'un voyage politique, mais d'un voyage pastoral et, précisément en tant que voyage pastoral, il a comme définition caractéristique le dialogue et l'engagement commun pour la paix. Un dialogue qui revêt diverses dimensions :  dialogue entre les cultures, dialogue entre christianisme et islam, dialogue avec nos frères chrétiens, en particulier l'Eglise orthodoxe de Constantinople, et, généralement, dialogue pour une meilleure compréhension entre nous tous. Naturellement, nous ne devons pas exagérer, on ne peut pas s'attendre à de grands résultats en trois jours, je dirais qu'il s'agit plutôt d'une valeur symbolique, le fruit des rencontres en tant que telles, des rencontres dans l'amitié et le respect, le fait de se rencontrer comme serviteurs de paix a son importance. Il me semble que ce symbolisme de l'engagement pour la paix et la fraternité devrait être le résultat de ce voyage.
+
+**Votre Sainteté, vous arrivez dans un pays marqué par de nombreuses tensions, mais également de nombreuses espérances qui souhaite devenir une nation européenne. Pensez-vous que l'Europe puisse apporter une aide à la Turquie afin que l'on puisse parler de façon plus consciente d'intégration, de respect des diverses identités culturelles et également religieuses ?**
+
+Sans doute est-il utile de rappeler que le Père de la Turquie moderne, Kemal Atatürk, avait devant lui comme modèle de reconstruction de la Turquie la Constitution française. A l'origine de la Turquie moderne figure le dialogue avec la raison européenne et avec sa pensée, sa façon de vivre, pour être réalisé de façon nouvelle dans un contexte historique et religieux différent. Le dialogue entre la raison européenne et la tradition musulmane turque est donc inscrit précisément dans l'existence de la Turquie moderne et, dans ce sens, nous avons une responsabilité réciproque les uns envers les autres. En Europe, nous assistons au débat entre laïcité « saine » et laïcisme. Et il me semble précisément que cela est également important pour le véritable dialogue avec la Turquie. Le laïcisme, c'est-à-dire une idée qui sépare totalement la vie publique de toute valeur des traditions, est une impasse, une voie sans issue. Nous devons redéfinir le sens d'une laïcité qui souligne et conserve la véritable différence et autonomie entre tous les domaines, mais également leur coexistence, la responsabilité commune. Ce n'est que dans le contexte de valeurs qui ont fondamentalement une origine commune, que la religion et la laïcité peuvent vivre, dans une relation féconde réciproque. Nous, Européens, devons repenser notre raison laïque, laïciste et la Turquie doit donc, à partir de son histoire, de ses origines, réfléchir avec nous sur la façon de reconstruire à l'avenir ce lien entre laïcité et tradition, entre raison ouverte, tolérante, qui a comme élément fondamental la liberté, et les valeurs qui confèrent son contenu à la liberté.
+
+**Au cours de ce voyage, la visite et la rencontre avec le Patriarche Bartholomaios occupent une place importante. Quelle signification cela a-t-il dans le programme d'engagements en vue du rapprochement avec les Eglises chrétiennes que vous avez affirmé dès le début de votre Pontificat ?**
+
+Ce ne sont pas les chiffres ou la quantité qui comptent :  c'est le poids symbolique, historique et spirituel qui compte. Et nous savons que Constantinople est comme la « *deuxième Rome* ». Elle a toujours été le point de référence pour l'orthodoxie, elle nous a donné la grande culture byzantine orthodoxe, et demeure toujours un point de référence pour tout le monde orthodoxe et donc également pour toute la chrétienté. C'est donc également la valeur symbolique du Patriarcat de Constantinople qui est importante aujourd'hui. Même si le Patriarche ne possède pas de juridiction comme le Pape, il représente toutefois un phare pour le monde orthodoxe. C'est une rencontre avec le Patriarche, avec l'Eglise de l'Apôtre André, frère de saint Pierre. C'est une rencontre de grande qualité entre les deux Eglises soeurs de Rome et de Constantinople, et donc un moment très important dans la recherche de l'unité des chrétiens. Il existe d'autres communautés chrétiennes ; avec chacune d'elles, même si elles sont petites, mais présentes, nous nous rencontrons, et naturellement également avec la petite communauté catholique. Disons qu'il s'agit d'un événement de communion, plutôt que de relations entre les domaines géographiques et culturels. Dans ce sens, je pense que le symbole n'est pas seulement quelque chose en soi, vide, mais quelque chose riche de réalité. Et ce symbolisme de Constantinople, cette fonction véritable et réelle du Patriarche de l'Orthodoxie, lui confère également une grande importance pour tout le chemin oecuménique.
+
+Et à présent, je vous demande pardon, car nous ne pouvons pas faire une véritable Conférence de presse, nous n'avons pas assez de temps, j'espère au moins avoir dit quelque chose qui puisse être utile.
+
+© Copyright 2006 - Libreria Editrice Vaticana

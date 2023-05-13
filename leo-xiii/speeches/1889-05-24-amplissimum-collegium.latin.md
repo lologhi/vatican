@@ -1,0 +1,13 @@
+LEONE XIII
+
+ALLOCUTIO
+
+***AMPLISSIMUM COLLEGIUM****
+
+**Amplissimum Collegium** vestrum itemque ordinem Episcoporum hodierna die suppletur, valde velimus pacatiore vos laetioreque animo affari, nihilque in hunc locum, nisi quod audire liberet, afferre .— At vero qui possumus in tam aspero laboriosoque statu ? Circumstant, ut videtis, mala atque incommoda eadem quae undeviginti ante annis, capta Urbe, consecuta sunt : imo evasere diuturnitate graviora, nec apparet quem sint habitura modum, si voluntas inimicorum spectetur, quibus longo successu crevisse animos, nimis acerbe experimur. — Testes estis, Venerabiles Fratres, quali res ferantur cursu, quanta sit in Pontifice violando ex una parte audacia, ex altera impunitas. Neque dubium est quae consilia agitentur : erumpunt enim undique, et multiplici factorum testimonio convincuntur. Scilicet adversus instituta christiana acerbiores quotidie exercentur inimicitiae, constricta romani Pontificis oppressaque libertate. Idcirco contra sacram Sedis Apostolicae potestatem incitari opinionem popularem, invidiamque multitudinis quotidiana dictorum petulantia impune inflammari videmus. — Iamque huc ventum est, ut in hac ipsa urbe, in conspectu prope Nostro, impietati liceat religionem Iesu Christi insigni eademque perenni iniuria lacessere, honoribus virtuti debitis desertori catholici nominis non sine insolenti ostentatione decretis.
+
+His de causis catholicos ex omnibus terris assidua quaedam tenet, velut fixa in pectore, sollicitudo. Neque enim possunt aut ferre leviter parentis publici indignam conditionem, aut libertatem augustissimi ministerii non curare in Episcopo animarum suarum. — Consolari Nos pietate mirabili maximoque studio numquam intermittunt : novissimo autem tempore, cum ex variis Europae partibus in civitates principes summa voluntate convenissent, utilia rebus communibibus consilia inter se collaturi, nostis quantam partem cogitationum et curarum suarum Sedi Apostolicae tribuerint. Iamvero quod censuerunt, ad custodiendam apostolici muneris in Pontifice libertatem civili principatu esse opus, sententias suas ad exemplum doctrinasque Sedis Apostolicae, ut aequum, erat, confirmarunt. Quod autem enitendum sibi omni ratione legitima decreverunt, ut re ipsa Pontifex in libertatem debitam restituatur, iure suo usi sunt, caussae iustissimae, quae catholicorum omnium communis putanda est, tutela suscepta.—Pro qua caussa Nos quidem maxime et ante alios, ut debemus, diu propugnamus, ab eaque vindicanda, ita adsit propitius Deus, nec longinquitas temporis Nos, neque ulla difficultatum magnitudo deterrebit.
+
+*** * ***
+
+* *A.S.S.*, vol. XXI (1888), pp. 641-642.

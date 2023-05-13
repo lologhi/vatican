@@ -1,0 +1,23 @@
+***Discurso a la Embajadora de GHANA,*** ***Excma. Sra. Doña Therese STRIGGNER SCOTT****
+
+*24 de marzo de 1986*
+
+1. Je suis heureux de vous accueillir au Vatican et de recevoir de vos mains vos Lettres de Créance comme Ambassadeur Extraordinaire et Plénipotentiaire de la République du Ghana. Soyez assurée que je considère cet acte comme un facteur de stabilité et de continuité dans le maintien des bonnes relations existant entre votre pays et le Saint-Siège.
+
+Les habitants du Ghana ne me sont pas étrangers. J'ai conservé le souvenir très vivace de ma visite dans votre pays en 1980, à l'occasion des célébrations du centenaire de la présence de l'Église dans cette partie de l'Afrique. J'ai eu l'expérience de la chaleur de votre hospitalité et cela a confirmé mon respect et mon estime pour la culture distincte de l'Afrique qui est telle que, dans la grande diversité de ses expressions, elle manifeste une unité substantielle. A l'époque de ma visite, j'ai décrit les aspects essentiels de la culture africaine comme « une vision du monde où le sacré est central, une profonde perception du lien entre le Créateur et la nature, un grand respect pour toute vie, un sens de la famille et de la communauté qui s'épanouit dans une hospitalité ouverte et joyeuse, respect pour le dialogue comme moyen pour clarifier des différences et pour partager des perceptions, spontanéité et joie de vivre exprimées dans le langage poétique, le chant et la danse » (Discours au Président du Ghana 8 mai 1980, dans ORf n. 21 du 20 mai 1980, p. 11).
+
+2. Cette vue essentiellement spirituelle de l'homme et de son existence dans le monde est une base solide sur laquelle les peuples d'Afrique, et en particulier les gens de votre pays ont à élaborer des valeurs dont la famille et la vie sociale peuvent bénéficier pour le bien être de tous.
+
+Dans les circonstances du changement politique et économique et des perturba­tions qui, aujourd'hui, affectent la vie des nations, il est extrêmement important que cette vision spirituelle qui imprègne la culture africaine ne se perde ni ne soit exclusivement subordonnée à des conceptions matérielles. La valeur, la dignité et les droits de la personne humaine devraient toujours constituer la force motrice et l'inspiration des activités politiques et sociales.
+
+3. Dans ce contexte, vous êtes rattachés à l'engagement et à la contribution de l'Église envers le développement social, économique, culturel du Ghana. Par ces tentatives l'Église cherche vraiment à être au service de la famille humaine. En effet, l'Église est particulièrement concernée par la défense et le soutien de la dignité humaine des plus nécessiteux : les pauvres, les malades, les jeunes et les personnes âgées, les travailleurs et les immigres. Dans ces domaines de service il y a beaucoup à faire pour une collaboration étroite et fructueuse entre l'Église et les autorités publiques. C'est mon désir ardent qu'au Ghana, une telle contribution continue et augmente dans un climat de confiance mutuelle et de compréhension.
+
+4. De nouveau, dans le contexte de la défense de la dignité humaine, vous avez également fait référence au déplorable système de l'apartheid qui continue d'ignorer des droits humains fondamentaux dans certaines parties de l'Afrique. En différentes occasions, j'ai répété la répudiation totale et ferme de l'Église concernant toute forme de discrimination raciale (cf. Audience Générale, 7 août 1985, dans ORf n. 33 du 13 août 1985, p. 12). Tandis que nous condamnons fermement l'inhumanité de l’apartheid et exprimons notre solidarité avec les victimes de la violence qu'elle engendre, il est également impératif pour l'Église et le monde de supporter et d'encourager 1es initiatives entreprises par les parties concernées pour mener à bien une solution rapide, juste et on violente à ces vexations en question.
+
+Excellence, votre mission en tant qu'Ambassadeur près le Saint-Siège comporte une prise de conscience d'un caractère particulier que le Saint-Siège donne à son rôle diplomatique comme un service à la cause de la collaboration et de la concorde parmi les nations et les peuples. C'est essentiellement un service pour la cause de la paix et du développement humain. Je vous assure de ma bonne volonté personnelle et de celle de mes collaborateurs dans l'accomplissement de votre noble mission. J'invoque de Dieu Tout-Puissant la bénédiction de santé et de bonheur sur vous et je prie pour l’unité la paix et le bien-être du peuple du Ghana que vous représentez.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.14 p.9.
+
+© Copyright 1986 - Libreria Editrice Vaticana

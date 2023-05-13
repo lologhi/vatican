@@ -1,0 +1,21 @@
+**PAPE FRANÇOIS**
+
+MÉDITATION MATINALE EN LA CHAPELLE DE LA
+
+MAISON SAINTE-MARTHE
+
+***Avec le levain de l’Esprit***
+
+*Vendredi 19 octobre 2018*
+
+( *L'Osservatore Romano*, *Édition hebdomadaire n°046 du 13 novembre 2018*)
+
+Prêts à se corriger quand on se trompe, à se relever quand on tombe, à se repentir quand on pêche, mais toujours en allant de l’avant avec « le levain de l’Esprit Saint », toujours joyeux parce que « un bonheur très grand a été promis »: voilà le profil du chrétien — très éloigné de la triste hypocrisie de qui pense uniquement à faire bonne figure — tracé par le Pape François. « La liturgie d’aujourd’hui nous fait voir deux personnes différentes, qui grandissent de façon diverse : de façon opposée l’une à l’autre (Luc 12, 1-7). François a expliqué que « dans l’Evangile, Jésus parle du levain “qui fait croître”: il a utilisé ce terme dans un autre passage de l’Evangile, quand il expliquait le royaume de Dieu ». En effet, a rappelé le Pape en se référant au passage liturgique, « le levain fait lever la pâte, la farine pour faire le pain, mais ici, on parle d’un mauvais levain, un levain qui au lieu de faire croître, détruit. Il fait croître, mais vers l’intérieur ».
+
+A ce propos, le Pape a suggéré de penser, en se référant toujours à l’Evangile, «à l’homme qui avait été blessé et laissé pour mort par les brigands, sur le chemin », et ces personnes « détournaient le regard ». La même attitude qu’ils ont « quand ils voient un lépreux : ils s’éloignent vite pour ne pas devenir impurs ». Et ce faisant, « ils protègent ce qu’ils ont à l’intérieur, et grandissent vers l’intérieur, parce qu’ils font des lois internes — tout cela — et dehors toujours l’apparence ». « Ce levain — dit Jésus — est dangereux. Faites attention. C’est l’hypocrisie ». En effet, le Seigneur « ne tolère pas l’hypocrisie : ce fait de faire bonne figure, avec de belles formes d’éducation pure, mais avec de mauvaises habitudes à l’intérieur ». Et « Jésus lui-même dit : “à l’extérieur vous êtes beaux, comme les sépulcres, mais à l’intérieur, il y a la putréfaction ou il y a la destruction, il y a les ruines”». Donc, « ce levain qui fait croître vers l’intérieur est un levain qui fait croître sans avenir, parce que dans l’égoïsme, en se repliant sur soi, il n’y a pas d’avenir, il n’y a pas d’avenir ».
+
+« En revanche, un autre type de personne est celle que nous voyons avec un autre levain, qui est le contraire : qui fait croître vers l’extérieur ». « Ces gens ont un levain — nous ne savons pas encore lequel — qui les fait croître vers l’extérieur. Et même si « parfois ils se trompent, ils se corrigent ; parfois ils tombent, mais ils se relèvent ; parfois ils pêchent, mais ils se repentissent ». Mais « toujours vers l’extérieur, vers cet héritage, parce qu’il a été promis ». De plus, « ces gens sont des gens joyeux, parce qu’il leur a été promis un bonheur beaucoup plus grand : qu’ils seront la gloire, la louange de Dieu ».
+
+Selon Paul, « le levain de ces gens est l’Esprit Saint, qui nous pousse à être louange de sa gloire, de la gloire de Dieu : “Vous avez reçu le sceau de l’Esprit Saint, qui avait été promis, qui est l’acompte de notre héritage”». Cela signifie que « nous avons l’acompte, à présent, nous allons vers la totalité dans l’attente de la rédemption complète ». Et c’est ainsi que le Seigneur « veut que soient les chrétiens : des gens qui vont toujours de l’avant, avec difficulté, avec souffrance, avec des problèmes, avec des chutes, mais toujours de l’avant dans l’espérance de trouver l’héritage, parce qu’il a le levain qui est un acompte, qui est l’Esprit Saint ».
+
+« Faites attention au levain des pharisiens ». Pour cette raison, « dans leur cœur, ces gens, qui ont l’Esprit Saint comme levain, sont joyeux, même dans les problèmes et dans les difficultés ». Au contraire, « les hypocrites ont oublié ce que cela signifie d’être joyeux ». « Que le Seigneur nous donne la grâce d’aller toujours de l’avant avec le levain de l’Esprit Saint, qui nous pousse vers cet héritage que le Seigneur a préparé à tous ».

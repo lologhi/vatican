@@ -1,0 +1,25 @@
+***DISCOURS DU PAPE BENOÎT XVI*** ***AUX*** ***SUPÉRIEURS GÉNÉRAUX DES***
+
+***SOCIÉTÉS MISSIONNAIRES DE VIE APOSTOLIQUE***
+
+*Salle du Consistoire*
+
+*Vendredi 16 novembre 2007*
+
+*Eminence,*
+
+*Excellences,*
+
+*Chers Pères,*
+
+C'est une joie particulière pour moi de vous saluer, vous qui êtes les Supérieurs généraux des Sociétés missionnaires de vie apostolique, à l'occasion de la Rencontre organisée par la Congrégation pour l'Evangélisation des Peuples. Votre assemblée, qui réunit les Supérieurs de quinze Sociétés missionnaires de droit pontifical et six de droit diocésain, rend un témoignage éloquent à la vitalité permanente de l'élan missionnaire dans l'Eglise et de l'esprit de communion qui unit vos membres et leurs multiples activités au Successeur de Pierre et à son ministère apostolique universel.
+
+Votre rencontre est aussi un signe concret du rapport historique entre les diverses Sociétés missionnaires de vie apostolique et la Congrégation pour l'Evangélisation des Peuples. Ces jours-ci, vous avez cherché comment élaborer de nouvelles façons de consolider et de renforcer ce rapport privilégié. Comme l'a observé le Concile Vatican II, le mandat du Christ de prêcher l'Evangile à toute la création concerne avant tout et directement le Collège épiscopal, cum et sub Petro (cf. *[Ad gentes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651207_ad-gentes_fr.html)*, n. 38). Au sein de l'unité hiérarchique du Corps du Christ, enrichie d'une variété de dons et de charismes répandus par l'Esprit, la communion avec les Successeurs des Apôtres demeure le critère et la garantie de la fécondité spirituelle de l'activité missionnaire. De fait, la communion de l'Eglise dans la foi, l'espérance et la charité, est en soi le signe et l'anticipation de cette unité et de cette paix qui forment le dessein de Dieu dans le Christ pour toute la famille humaine.
+
+Ces dernières décennies, un signe prometteur du renouveau de la conscience missionnaire de l'Eglise a été le désir croissant de nombreux laïcs, hommes et femmes, mariés ou non, de coopérer généreusement à la *missio ad gentes*. Comme l'a souligné le Concile, l'œuvre de l'évangélisation est une tâche fondamentale de tout le peuple de Dieu et tous les baptisés sont appelés à la « *vive conscience de leur responsabilité pour l'œuvre de l'évangélisation* » (Cf. *[Ad gentes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19651207_ad-gentes_fr.html)*, n. 36). Bien que certaines Sociétés missionnaires aient eu une longue histoire d'étroite collaboration avec les laïcs, d'autres n'ont développé que récemment des formes d'association laïque pour leur apostolat. Etant donné l'ampleur et l'importance de la contribution apportée par ces associés au travail des diverses Sociétés, les formes spécifiques de leur collaboration devraient naturellement être gouvernées par des statuts spécifiques et des directives claires dans le respect de l'identité canonique propre à chaque institut.
+
+Chers amis, notre rencontre d'aujourd'hui m'offre la belle opportunité de vous exprimer ma gratitude, ainsi qu'à tous les membres de vos Sociétés, passés et actuels, pour les efforts durables accomplis au service de la mission de l'Eglise. Aujourd'hui comme par le passé, les missionnaires continuent de quitter leur famille et leur maison, souvent au prix d'un grand sacrifice, dans le seul but de proclamer la Bonne Nouvelle du Christ et de le servir dans leurs frères et sœurs. Beaucoup, même à notre époque, ont héroïquement confirmé leur prédication en versant leur sang et ont contribué à l'implantation de l'Eglise dans des terres lointaines. Aujourd'hui, des circonstances difficiles ont conduit dans de nombreux cas à la diminution du nombre de jeunes attirés par les sociétés missionnaires, accompagnée d'un déclin de l'influence missionnaire. Malgré cela, comme l'a affirmé avec insistance le Pape Jean-Paul II, la mission ad gentes n'en est encore qu'à ses débuts et le Seigneur nous exhorte tous à nous engager généreusement à son service (cf. *[Redemptoris missio](http://www.vatican.va/edocs/FRA0205/_INDEX.HTM)*, n. 1). « *La moisson est abondante* » ( *Mt* 9, 37). Conscient des défis que vous devez affronter, je vous encourage à suivre fidèlement les traces de vos fondateurs et à raviver les charismes et le zèle apostolique que vous avez hérité d'eux, sûrs que le Christ continuera à agir avec vous et à confirmer votre prédication par des signes de sa présence et de sa force (cf. *Mc* 16, 20).
+
+Avec une grande affection, je vous confie, ainsi que les membres et les associés de vos diverses Sociétés, à l'intercession aimante de Marie, Mère de l'Eglise. Je vous accorde volontiers à tous ma Bénédiction apostolique comme gage de sagesse, de force et de paix dans le Seigneur.
+
+© Copyright 2007 - Libreria Editrice Vaticana

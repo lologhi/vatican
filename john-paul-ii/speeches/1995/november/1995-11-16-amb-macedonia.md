@@ -1,0 +1,29 @@
+ADDRESS OF HIS HOLINESS JOHN PAUL II
+
+TO H.E. Mr DIMITAR MIRČEV, FIRST AMBASSADOR OF
+
+THE FORMER YUGOSLAV REPUBLIC OF MACEDONIA
+
+TO THE HOLY SEE*
+
+*Thursday, 16 November 1995*
+
+Monsieur l’Ambassadeur,
+
+1. Je suis très heureux de vous accueillir au Vatican aujourd'hui pour la présentation des Lettres qui vous accréditent comme premier Ambassadeur extraordinaire et plénipotentiaire de l'ancienne République yougoslave de Macédoine près le Saint-Siège. J'accepte également avec plaisir les vœux que vous m'avez transmis au nom de S.E. M. le Président Kiro Gligorov. Je vous prie d'assurer le Président, actuellement en convalescence à la suite du récent attentat perpétré contre sa vie, de mes prières pour qu'il recouvre bientôt sa santé et ses forces.
+
+2. Au sein de la Communauté internationale, le Saint-Siège défend et rappelle constamment les idéaux d'harmonie et de solidarité, idéaux fondés sur la réalité de notre appartenance à une unique famille humaine. Malheureusement, aujourd'hui, l'accomplissement de ces idéaux rencontre de nombreux obstacles : ils sont entravés par les préjugés raciaux ou l'intolérance religieuse, par des idéologies et des systèmes qui entraînent la méfiance, la rivalité et le conflit. Il est donc d'autant plus important que les politiques, les initiatives et les programmes développés au niveau international, national et régional respectent tous les groupes et tous les secteurs de la population sans exception, défendant la dignité et les droits de tous, particulièrement des minorités. Il suffit de voir les événements tragiques qui ont frappé certains de vos pays voisins des Balkans pour comprendre qu'aucun effort ne doit être épargné afin d'assurer que les peuples du monde vivent dans l'amitié et développent la confiance et la coopération nécessaires pour consolider la paix à laquelle aspirent et que demandent comme un droit, tous les hommes et les femmes de bonne volonté, partout dans le monde. Les relations diplomatiques existant entre votre pays et le Saint-Siège expriment la conviction partagée que la compréhension, le dialogue, la coopération et la paix doivent l'emporter sur toutes les formes de division, de violence et de contrainte. Je suis certain que nous partageons l'espoir que les négociations ayant lieu actuellement entre les parties engagées apportent une solution rapide et durable à la terrible violence qui s'est abattue sur les Balkans depuis quatre ans.
+
+3. En effet, la tâche qui revient à la Communauté internationale d'assurer la paix consiste essentiellement à promouvoir la personne humaine, tous les hommes et toutes les femmes, dans la plénitude de leur dignité, de leurs droits et de leurs responsabilités. L'Église considère cela comme une partie intégrante de sa mission religieuse et humanitaire. Ainsi que l'a exprimé le Deuxième Concile du Vatican, elle remplit cette tâche « en guérissant et en élevant la dignité de la personne humaine en affermissant la cohésion de la société et en procurant à l'activité quotidienne des hommes un sens plus profond, la pénétrant d'une signification plus haute » (Gaudium et spes, n. 40).
+
+Il y a un mois, j'ai eu l'occasion de m'adresser à l'Assemblée générale de l'Organisation des Nations unies à New York. Je suis allé là-bas « non comme quelqu'un qui a une puissance temporelle [...] ni comme un chef religieux qui demande des privilèges particuliers pour sa communauté» mais comme « un témoin, témoin de la dignité de l'homme témoin de l'espérance, témoin de la conviction que le destin de toutes les nations se trouve dans les mains d'une Providence miséricordieuse » (Discours à la 50ème Assemblée générale de l'Organisation des Nations unies, n. 17). C'est précisément la même croyance qui caractérise l'activité du Saint-Siège dans le domaine de la diplomatie internationale. En conformité avec la mission de l'Église, le Saint-Siège est présent dans ce forum de dialogue, non pas pour des raisons politiques, mais comme un témoin des principes et des valeurs qui sont à la base du bien commun de toute la famille humaine. Comme je l'ai dit au Président, M. Gligorov et aux autres représentants qui sont venus à Rome pour célébrer la fête des saints Cyrille et Méthode cette année, la société civile et la communauté ecclésiale sont appelées à s'engager à ce travail avec courage et persévérance à deux niveaux différents mais avec une même responsabilité (cf. Discours au Président Gligorov, 26 mai 1995, n. 2).
+
+Ainsi que Votre Excellence l'a fait remarquer, le christianisme possède une longue et vénérable histoire dans votre pays, et, bien que le nombre de catholiques soit faible, il est très satisfaisant de noter que règne un climat de compréhension qui favorise la coopération œcuménique et l'échange entre les différentes Églises. Je souhaite ardemment que cette forme de solidarité religieuse continue de croître et aide les besoins spirituels urgents de notre temps. Je suis également certain que les relations diplomatiques qui ont été établies entre nous depuis peu renforceront ce climat de coopération.
+
+M. l'Ambassadeur, l'engagement d'œuvrer pour un monde plus juste, humain et pacifique, est à la base des bonnes relations qui existent entre votre pays et le Saint-Siège. Alors que commence votre mission, je vous assure de la pleine coopération du Saint-Siège dans l'accomplissement de vos responsabilités. Puisse Dieu tout-puissant vous assister et accorder au noble peuple de votre pays une abondance de bénédictions.
+
+* * *
+
+* *L’Osservatore Romano. Edition hebdomadaire en langue française* n.48 p.4.
+
+© Copyright 1995 - Libreria Editrice Vaticana

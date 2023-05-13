@@ -1,0 +1,29 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***À LA COMMUNAUTÉ DE L'INSTITUT PONTIFICAL ECCLÉSIASTIQUE***
+
+***POLONAIS DE ROME, À L'OCCASION DU 100e ANNIVERSAIRE DE SA FONDATION***
+
+*Salle Clémentine*
+
+*Lundi 17 janvier 2011*
+
+*Messieurs les cardinaux,*
+
+*Vénérés frères dans l'épiscopat et dans le sacerdoce,*
+
+*Chers frères et sœurs !*
+
+C'est avec une grande joie que je vous accueille au Palais apostolique et que je vous souhaite la plus cordiale bienvenue. Je salue tout d'abord Mgr le Recteur, et toute la communauté de l'Institut pontifical ecclésiastique polonais, ainsi que les invités. Je remercie en particulier le cardinal Zenon Grocholewski des paroles significatives qu'il m'a adressées au nom de toutes les personnes présentes.
+
+Ce qui a vous a conduits ici, pour rencontrer le Successeur de Pierre et être confirmés dans la foi et dans votre appartenance à l'Eglise, est une heureuse circonstance qui vous tient, à juste titre, très à cœur : le centenaire de la fondation de cette institution de grand mérite. Née de l'intuition éclairée et de l’admirable initiative de saint Józef Sebastian Pelczar, alors évêque de Przemyśl, son histoire débuta sous le pontificat de saint Pie X, auquel fut présenté le projet de fondation. Le 13 mai 1909, le Pape approuva personnellement la requête des évêques polonais et le 19 mars 1910, avec le décret *Religioso Polonae gentis*, fut érigé l'Hospice polonais. Il fut inauguré solennellement le 13 novembre 1910 par Mgr Sapieha, devenu par la suite cardinal-archevêque de Cracovie. L'institut a ainsi pu jouir, au fil des années, de la sollicitude et de l'affection des différents Papes, au nombre desquels nous nous souvenons, plus proches de nous, du serviteur de Dieu Paul vi et, naturellement, du futur bienheureux, le vénérable serviteur de Dieu Jean-Paul ii, qui lui rendit visite en 1980 et eut l'occasion de souligner sa profonde signification pour l'Eglise et pour le peuple polonais.
+
+Célébrer le premier centenaire de cette importante institution constitue un rappel précieux du souvenir et de la reconnaissance que l’on doit à ceux qui ont donné naissance à celle-ci, avec foi, avec courage et avec difficulté; un rappel, dans le même temps, à la responsabilité de porter de l'avant aujourd'hui les finalités originelles, en les adaptant opportunément aux nouvelles situations. Il faut placer au-dessus de tout l’engagement à conserver vivante l'âme de cette institution : son âme religieuse et ecclésiale, qui répond au dessein divin providentiel d'offrir à des prêtres polonais un lieu adapté pour l'étude et la fraternité, pendant leur période de formation à Rome.
+
+De cet Institut pontifical, qui a été le témoin de tant d'événements significatifs pour l'Eglise en Pologne, vous faites à présent partie vous aussi, chers prêtres étudiants qui, venus au cœur de la chrétienté, souhaitez approfondir sérieusement votre préparation intellectuelle et spirituelle, pour assumer au mieux toutes les tâches de responsabilité qui vous seront progressivement confiées par vos évêques pour le service du peuple de Dieu. Sentez-vous des « pierres vivantes », une partie importante de cette histoire qui, aujourd'hui, demande aussi votre réponse personnelle et incisive, en offrant votre contribution généreuse, comme l'offrit, au cours du Concile Vatican II, l'inoubliable Primat de Pologne, le cardinal Stefan Wyszyński, qui eut précisément à l'Institut polonais l'opportunité de préparer la célébration du Millénaire du Baptême de la Pologne et le message historique de réconciliation que les évêques polonais adressèrent aux prélats allemands, contenant les célèbres paroles : « Nous pardonnons et nous demandons pardon ».
+
+L'Eglise a besoin de prêtres bien préparés, riches de cette sagesse que l'on acquiert dans l'amitié avec le Seigneur Jésus, en puisant constamment à la Table eucharistique et à la source inépuisable de son Evangile. De ces deux sources irremplaçables, sachez tirer un soutien continuel et l'inspiration nécessaire pour votre vie et votre ministère, pour un amour sincère de la Vérité, que vous êtes aujourd'hui appelés à approfondir également à travers l'étude et la recherche scientifique et que vous pourrez demain partager avec un grand nombre. La recherche de la Vérité, pour vous qui, en tant que prêtres, vivez cette expérience romaine particulière, est stimulée et enrichie par la proximité du Siège apostolique, qui doit assurer un service spécifique et universel à la communion catholique dans la vérité et dans la charité. Demeurer liés à Pierre, au cœur de l'Eglise, signifie reconnaître, avec beaucoup de gratitude, se trouver à l'intérieur d'une histoire de salut féconde, longue de plusieurs siècles qui, par une grâce multiforme, vous a touchés et à laquelle vous êtes appelés à participer activement afin que, comme un arbre florissant, elle porte toujours de précieux fruits. L’amour et la dévotion à la figure de Pierre vous poussent à servir avec générosité la communion de toute l'Eglise catholique et de vos Eglises particulières pour que, comme une seule et grande famille, tous puissent apprendre et reconnaître en Jésus, chemin, vérité et vie, le visage du Père miséricordieux, qui veut qu'aucun de ses fils ne soit perdu.
+
+Vénérés et chers frères, je vous confie tous à la Vierge Marie, tant aimée par le peuple polonais. Invoquez-la toujours en tant que Mère de votre sacerdoce, pour qu'elle vous accompagne sur le chemin de la vie et attire sur votre ministère présent et futur l’abondance des dons de l'Esprit saint. Que Marie vous aide à persévérer avec une joyeuse fidélité dans la grâce et dans l'engagement à suivre Jésus, et à nourrir constamment un dévouement fructueux à votre travail quotidien et à ceux que le Seigneur place à vos côtés.
+
+Je vous donne de tout cœur à tous, ainsi qu'aux membres de votre famille et à ceux qui vous sont chers, une Bénédiction apostolique particulière. Loué soit Jésus Christ.

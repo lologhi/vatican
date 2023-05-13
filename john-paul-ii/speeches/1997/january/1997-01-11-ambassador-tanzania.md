@@ -1,0 +1,21 @@
+***ADDRESS OF******HIS HOLINESS******POPE JOHN PAUL II***
+
+***TO H.E. Mr Andrew Mhando Daraja,***
+
+***AMBASSADOR OF TANZANIA TO THE HOLY SEE****
+
+*Saturday, 11 January 1997*
+
+1. En parlant de l'engagement de votre pays a œuvrer pour la cause de la paix, vous avez également mentionné les efforts du Saint-Siège dans ce domaine. En effet, l'Église a reçu de son Divin Fondateur une mission religieuse et humanitaire, dont la nature est différente de celle de la communauté politique mais qui est toutefois ouverte a de nombreuses formes de coopération et de soutien mutuel. En accord avec cette mission, la présence du Saint-Siège dans la Communauté internationale vise uniquement au bien de la famille humaine : œuvrer pour la cause de la paix, pour la défense de la dignité humaine et des droits humains, pour le développement intégral des peuples. C'est une tache qui dérive nécessairement et constamment de l'Évangile de Jésus-Christ, et c'est une responsabilité qui revient a tous les chrétiens.
+
+2. Tandis que les peuples et les nations coopèrent à la tâche de promouvoir la compréhension et de faire progresser la cause de la paix et de la justice, un problème demeure qui, en dépit de ses proportions mondiales, ne revêt qu'une importance relativement faible pour l'opinion publique mondiale : la situation tragique de millions de réfugiés et de personnes en déplacement. Certaines de ces personnes sont les victimes de catastrophes naturelles, mais un grand nombre d'entre elles souffre des conséquences des conflits ethniques et des luttes pour le pouvoir, ou des effets d'un développement social et économique inadéquat. Il ne fait aucun doute que beaucoup a été fait, en particulier par les organismes d'assistance et la Communauté internationale, mais il reste encore beaucoup à faire. Votre pays a donné l'exemple en accueillant des réfugiés et en s’efforçant de leur fournir une assistance, même au prix de ses propres ressources dont il a tant besoin. L’activité de la Tanzanie à cet égard est digne de louange et il est à espérer qu'elle sera accompagnée d'une réponse tout aussi généreuse et rapide de la part des autres nations.
+
+3. Dans le cas de l'Afrique, un engagement concret en vue de la démocratisation constante de la société doit être encouragé. Le défi consiste à accroître la participation de tous les groupes d'une organisation de la vie publique qui soit représentative et protégée juridiquement. Cela exige une amélioration constante de la qualité de l’éducation à tous les niveaux, ce qui permettra à un nombre croissant de personnes de jouer un rôle responsable dans le développement économique, social et culturel de leur pays. Cela exige également de promouvoir une conscience plus claire des droits humains et de la dignité humaine. Le dialogue et la négociation doivent remplacer les conflits dans la résolution des tensions. Ce besoin est particulièrement urgent dans la région des Grands Lacs, où la violence et l'effusion de sang continuent de provoquer des souffrances indescriptibles et un nombre incalculable de victimes : ni l'Afrique, ni la famille des nations ne peuvent rester sourdes aux cris des hommes, des femmes et des enfants, dont les vies sont détruites par ces conflits fratricides. A cet égard, il est à souhaiter que le Secrétariat pour la Coopération en Afrique orientale, qui vient d’être inauguré, se révèle efficace pour résoudre les difficultés et les problèmes auxquels votre région doit faire face, et qu'en même temps, il fournira les bases pour une collaboration et une assistance mutuelles plus efficaces dans tous les domaines du développement social.
+
+Naturellement, l'Église catholique sera toujours un partenaire prêt et actif dans la recherche d'un développement humain intégral, et elle continuera d'apporter sa contribution a l’édification de la société tanzanienne. A cet égard, la garantie de la liberté religieuse dans votre pays, qui est la pierre angulaire de l'harmonie et de la stabilité de tout système démocratique de gouvernement, permet aux catholiques d’œuvrer pour le progrès spirituel et matériel de la société.
+
+* * *
+
+* *L'Osservatore Romano. Edition hebdomadaire en langue française* n.8 p.6.
+
+© Copyright 1997 - Libreria Editrice Vaticana

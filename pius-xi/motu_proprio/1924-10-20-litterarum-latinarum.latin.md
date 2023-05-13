@@ -1,0 +1,35 @@
+**PIUS PP. XI**
+
+MOTU PROPRIO
+
+***LATINARUM LITTERARUM****
+
+DE PECULIARI LITTERARUM LATINARUM SCHOLA
+
+IN ATHENAEO GREGORIANO CONSTITUENDA.
+
+Latinarum litterarum quae quantaque sit dignitas ac praestantia, nulli obscurum putamus, qui antiqua earum monunumenta non ignoret atque in humanitatis optimarumque artium studiis aliquem sensum habeat. Romani enim scriptores - quos perperam dixeris, exscribendo imitando que, meros Graecorum pedisequos fuisse, cum horum, contra, sapientiam atque inventa ad patrium accommodaverint ingenium suaque ipsorum industria elaboraverint - tali commentaria et volumina sua rerum sententiarumque gravitate ornavere, eamque in amplo apteque composito verborum circuitu praeferunt maiestatem cum concinnitate elegantiaque coniunctam, ut latinam linguam, quae, in omnes gentes pervagatissima, Imperii universitati servierat, Romanus Pontificatus delegent habueritque dignam, qua tamquam magnifica caelestis doctrinae sanctissimarumque legum veste uteretur. Nec facile quisquam infitiabitur, complures e Patribus, Doctoribus et christianae fidei defensoribus latine ita scripsisse, ut optimis ethnicorum non multum vi ac venustate orationis cedere videantur, idque praeterea Ecclesiae esse honori tribuendum, quod non modo vetustissimos latinos codices iniuriae temporis eripuit incolumesque posteritati servavit, sed etiam quod, hac latinitatis laude si qui saeculorum decursu floruerunt, ii plerumque aut in utroque clero numerabantur aut Urbis plausum ac praemia assecuti sunt. E qua quidem operosae artis quasi palaestra alium percipi licere fructum, eundemque sane laetissimum, est apud intellegentes communiter receptum : scilicet, quo plus studii laborisque in latinas insumitur litteras, eo maiorem inde efficientiam aptioremque verborum structuram ad usum patrii sermonis traduci. Quo in genere memoriae proditum est, Iacobum Bossuet et Paulum Segneri, qui inter oratores suae quisque gentis principem locum obtinent, solitos fuisse dicere, si quid dignitatis ac virtutis in suis orationibus esset, id se in primis Marci Tullii studio acceptum referre.
+
+Cum igitur non tam humani civilisque cultus quam religionis ipsius Ecclesiaeque catholicae interesset, latini sermonis plenissimam in clero scientiam provehi ac propagari, eandemque non praeceptis et arte circumscriptam, sed etiam ad usum exercitationemque polite ornateque scribendi translatam, nihil mirum si decessores Nostri, nunquam, pro rerum temporumque condicione, sibi temperaverunt, quin latinitatis rationibus prospicerent : quod eo studiosius egerunt, quo deteriorem in statum latinae litterae decidissent. Quem quidem suum purioris latinitatis amorem iidem Romani Pontifices vel hoc ipso ostendere visi sunt, quod, quotiescumque sibi licuit - atque non uni quidem eorum licuit - adiutoribus usi sunt latinae scriptionis haud mediocriter peritis. Commemorare autem vix refert, cum in re versemur notissima, quam impense imm. mem. decessor Noster Leo XIII litterarum disciplinam, praesertim latinarum, in clericis provehere studuerit. Ad Nos vero quod attinet, quae hac in re esset mens Nostra, haud semel - datis videlicet Epistolis Apostolicis *[Officiorum omnium](/content/pius-xi/la/apost_letters/documents/hf_p-xi_apl_19220801_officiorum-omnium.html)* et *[Unigenitus Dei Filius](/content/pius-xi/la/apost_letters/documents/hf_p-xi_apl_19240319_unigenitus-dei.html)*, altera die i mensis augusti anno MDCCCCXXII, altera XIX mensis martii hoc anno - aperte significavimus : sive enim de Seminariis et de studiis clericorum promovendis, sive de alumnis Ordinum regularium aliarumque Sodalitatum religiosarum rite instituendis loquebantur, non tam peremptorium, ut aiunt, Codicis praescriptum invocavimus, quam, addita argumentorum copia, velle Nos diximus, praecipuaque quadam voluntate, ut linguam latinam uterque clerus haberet scientia et usu perceptam. Qua in re etsi non dubitamus quin adfutura Nobis sit moderatorum diligentia, in quos cura et periculum recidit aptae suorum institutionis, in spem sacri ordinis succrescentium, nullum tamen non experiri consilium volumus, ut laus illa, quae antehac in utroque clero eluxit, perfectioris latinitatis, ne omnino depereat, immo etiam, quoad fieri poterit, feliciter augescat. Consentaneum enim est, ut Romanae Curiae, Cancellariis episcopalibus, religiosis Sodalitatibus adiutores seu officiales non desint, qui in decretis sententiisque conficiendis, in epistolarum, quod vocant, commercio, tam decore latinum tractent sermonem, ut eorum scripta Ecclesiam, optimarum artium altricem, nullo pacto dedeceant.
+
+Itaque haec, quae sequuntur, Motu proprio, apostolica Nostra auctoritate decernimus :
+
+I. Apud Athenaeum Gregorianum, Societati Iesu iterum centesimo ante anno ab Apostolica Sede concreditum, a proximo mense peculiaris esto Schola litteris latinis tradendis.
+
+II . Quemcumque Societatis vel Athenaei moderatores ad tale munus, de Nostro consensu, delegerint, is sibi religiose proponat, ut auditores, seu praestantissimorum latinitatis exemplarium commentatione, seu crebris latine scribendi exercitationibus, ad exquisitiorem orationis formam excolat atque evehat.
+
+III. Eiusmodi litterarum latinarum curriculum, in praesens atque interim, biennio contineatur. Auditoribus, qui, post completum biennium, se, periculo facto, delectis iudicibus probaverint, testimonium, seu diploma, curriculi egregie peracti tradatur. Quod quidem testimonium, seu diploma, quicumque impetrarint, iidem in certaminibus ad quaevis officia apud Sacras Congregationes, Curias dioecesanas et Seminariorum ludos consequenda propositis, ceteris paribus, praeferantur.
+
+IV. Qui, dato post biennium latinae scriptionis experimento, non modo reliquis condiscipulis praestiterit, sed iudicibus peculiari dignus praemio communiter visus erit, eundem nomismate aureo donabimus.
+
+V. Schola omnibus pateat, ne laicis quidem hominibus exceptis. Eandem celebrari cupimus ab iis etiam Seminariorum religiosarumque Sodalitatum alumnis, qui aut domi aut apud alia Athenaea docentur, immo - quod certe emolumento vacuum non foret - vel a sacerdotibus iunioribus, qui Romanae Curiae operam suam navant. Episcopi autem Italiae atque exterarum gentium rem dioecesibus suis utilissimam Nobisque pergratam facturi sunt, si quos habent clericos heic disciplinis sacris imbuendos, eorum aliquem, prae ceteris ad latinitatis studia propensum, Scholam propediem aperiendam frequentare iusserint.
+
+Quae quidem supra constituimus, ea rata firmaque sunto, contrariis quibuslibet non obstantibus. Interea, Dei praesidio in primis, praetereaque operae dilectorum filiorum Praepositi Generalis Societatis Iesu et Athenaei Gregoriani moderatorum, quorum erga Nos pietas atque observantia est Nobis exploratissima et probata alias haud semel voluntas rerumque agendarum sollertia, ut res ita bene vertat quemadmodum velimus, vehementer confidimus.
+
+*Datum Romae apud Sanctum Petrum, die XX mensis octobris anno MCMXXIV, Pontificatus Nostri tertio.*
+
+**PIUS PP. XI**
+
+* * *
+
+*A.A.S., vol. XVI (1924), n. 17, pp. 417-420

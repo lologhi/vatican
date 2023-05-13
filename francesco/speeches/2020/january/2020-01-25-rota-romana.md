@@ -1,0 +1,41 @@
+***DISCOURS DU PAPE FRANÇOIS*** ***AUX PARTICIPANTS AU COURS DE FORMATION***
+
+***ORGANISÉ PAR LE TRIBUNAL APOSTOLIQUE DE LA ROTE ROMAINE,***
+
+***POUR LA PROTECTION DU MARIAGE ET LE SOIN PASTORAL DES COUPLES BLESSÉS***
+
+*Salle Clémentine**Samedi 25**janvier* *2020*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2020/1/25/rota-romana.html)]**
+
+* * *
+
+*Chers frères et sœurs !*
+
+Je suis heureux de vous recevoir à la fin de ce cours, qui, je l’espère, sera fructueux pour votre préparation et votre compétence. Je remercie Mgr Pinto et je remercie les orateurs qui vous ont transmis les contenus théologiques et les procédures canoniques importants pour les époux et pour la vie de l’Eglise aujourd’hui.
+
+Le sujet du cours a uni deux thèmes cruciaux : *la protection du mariage et le soin pastoral des couples blessés.*
+
+Inconsciemment, nous sommes immédiatement attirés par ce second aspect, car c’est avant tout ici que se manifeste la sollicitude attentionnée et maternelle de l’Eglise, d’hier et d’aujourd’hui, face aux diverses situations douloureuses qu’un couple marié peut rencontrer sur son parcours. Les typologies qui vous ont été présentées ne peuvent pas être traitées par une approche uniquement bureaucratique, presque mécanique. Il s’agit plutôt d’entrer dans le vécu des personnes qui souffrent et qui ont soif de sérénité et de bonheur personnel et de couple.
+
+Les blessures du mariage proviennent aujourd’hui — nous le savons — de plusieurs causes : psychologiques, physiques, environnementales, culturelles…; elles sont parfois provoquées par la fermeture du cœur humain à l’amour, par le péché qui touche tout le monde. Je ne m’attarderais pas là-dessus. Je voudrais juste dire que ces causes creusent des sillons profonds et amers dans le cœur des personnes concernées, des plaies qui saignent, devant lesquelles l’Eglise ne pourra jamais passer en détournant son regard.
+
+C’est pourquoi l’Eglise, quand elle rencontre ces réalités de couples blessés, pleure et souffre tout d’abord avec eux ; elle s’approche avec l’huile de la consolation, pour apaiser et guérir ; elle veut prendre sur elle la douleur qu’elle rencontre. Et si, ensuite, elle essaye d’être impartiale et objective dans la recherche de la vérité sur un mariage brisé, l’Eglise n’est jamais étrangère, ni spirituellement ni humainement, à ceux qui souffrent. Elle ne réussit jamais à être impersonnelle ou froide face aux histoires de ces vie tristes et bouleversées. C’est pourquoi, même dans ses procédures canoniques et législatives, l’Eglise ne cherche toujours que le bien des personnes blessées, elle cherche la vérité de leur amour ; elle n’a à cœur que de soutenir leur bonheur juste et désiré, qui, avant d’être un bien personnel auquel nous aspirons tous humainement, est un cadeau que Dieu réserve à ses enfants et qui vient de lui.
+
+C’est pourquoi, toute cause ecclésiastique qui affronte un mariage blessé, et donc les agents, les juges, les parties impliquées, les témoins, doivent toujours se confier avant tout à l’Esprit Saint, afin que, guidés par Lui, ils puissent écouter avec un critère juste et sachent examiner, discerner et juger. Cela est très important ! Un procès n’est pas une opération mathématique, pour voir simplement quelle raison pèse plus que l’autre. Non. Il y a l’Esprit Saint qui doit guider le procès, toujours. S’il n’y a pas l’Esprit Saint, ce que nous faisons n’est pas ecclésial.
+
+Le cours auquel vous avez participé a également et surtout considéré le soin attentif et vigilant de l’Eglise, pour que le mariage des époux chrétiens soit ce que le Seigneur Jésus voulait qu’il soit. Saint Paul l’a résumé en le comparant à l’union du Christ avec l’Eglise, son corps, qu’Il aime comme une épouse, d’un amour indéfectible jusqu’à se sacrifier sur la croix (cf. Ep 5, 21-33), afin que se réalise la volonté du Père de faire de toute l’humanité la famille de Dieu.
+
+Par conséquent, même si le mariage peut remplir les époux chrétiens de joie et de plénitude humaine et spirituelle, ils ne doivent jamais oublier qu’ils sont appelés, en tant que personnes et en tant que couples, à marcher toujours dans la foi, à marcher dans l’Eglise et avec l’Eglise, à toujours cheminer ensemble sur la voie de la sainteté. En effet, dans le Nouveau Testament, le mariage chrétien est vécu comme un chemin de foi, comme l’union intime des époux qui sont les « piliers » de l’Eglise domestique (Cf. Conc. Vat. II, Const. past. *[Gaudium et spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651207_gaudium-et-spes_fr.html)*, nn. 48-50 ; Jean-Paul II, Exhort. ap. *[Familiaris consortio](http://www.vatican.va/content/john-paul-ii/fr/apost_exhortations/documents/hf_jp-ii_exh_19811122_familiaris-consortio.html)*, n. 39 ; Exhort. ap. post-syn. *[Amoris laetitia](http://www.vatican.va/content/francesco/fr/apost_exhortations/documents/papa-francesco_esortazione-ap_20160319_amoris-laetitia.html)*, n. 311).
+
+C’est de ce voyage dans l’Esprit, de sa lumière qui réchauffe et satisfait le cœur humain, que naît ce ministère précieux et indispensable des époux dans l’Eglise, dont le besoin se fait toujours plus ressentir aujourd’hui dans nos communautés paroissiales et diocésaines. Un ministère provenant du sacrement ; un ministère missionnaire qui annonce que le Christ est vivant et actif ; un ministère qui appelle généreusement à la vie de nouvelles créatures, de nouveaux enfants de Dieu.
+
+Ce sacrement ne s’improvise pas. Il est nécessaire de se préparer en tant que fiancés. Il n’est pas suffisant que les fiancés chrétiens se préparent au mariage en atteignant une bonne intégration psychologique, affective, relationnelle et programmatrice, bien que cela soit également nécessaire pour la stabilité de leur union future. Ils doivent également nourrir et accroître progressivement en eux-mêmes cet appel spécifique à se façonner comme des époux chrétiens. Cela signifie cultiver, au sein de la vocation chrétienne, la vocation particulière à devenir des disciples missionnaires en tant qu’époux, des témoins de l’Evangile dans la vie familiale, le travail et la vie sociale, là où le Seigneur les appelle ; la vocation de Lui manifester la beauté de leur appartenance et de rendre raison de ce « plus » de vie et d’amour, qu’est l’épiphanie dans le monde de l’espérance chrétienne offerte par le Christ. C’est le Concile Vatican II, le Magistère de l’Eglise, mais avant tout la Parole de Dieu qui indique cet objectif apostolique et missionnaire élevé inhérent au sacrement du mariage. Et c’est en regardant vers cet horizon que les couples de fiancés peuvent grandir, se nourrissant de la prière, de l’Eucharistie et de la Réconciliation, avec une attention sincère l’un pour l’autre et de dévouement à l’égard des frères qu’ils rencontrent.
+
+Les deux saints époux Aquila et Priscille, amis et collaborateurs de Paul, sont un très bel exemple de cette vocation à l’apostolat conjugal. C’est précisément à eux que j’ai consacré la catéchèse de l’audience générale du 13 novembre dernier.
+
+L’apôtre Paul a trouvé dans les disciples Aquila et Priscille de précieux collaborateurs, choisis et appelés non par lui, mais par le Seigneur. Ainsi, l’évêque, le curé de la paroisse, le diacre permanent et son épouse, qui préparent les couples fiancés, doivent les aider à être des cellules vivantes et apostoliques des communautés paroissiales.
+
+L’Eglise, dans sa structure paroissiale, est concrètement une communauté de familles appelées à devenir, comme Aquila et Priscille, des témoins de l’Evangile sur ce territoire. Et là aussi, c’est l’Esprit Saint qui opère cette synergie, c’est pourquoi l’Esprit doit être invoqué, également pour ce processus apostolique, qui n’est pas facile, mais pas impossible. J’encourage les pasteurs, les évêques et les prêtres, à promouvoir, soutenir et accompagner ce processus, afin que l’Eglise se renouvelle, en devenant toujours davantage un réseau ramifié de communautés de familles témoins et missionnaires de l’Evangile.
+
+Chers frères et sœurs, je bénis de tout cœur chacun de vous, ainsi que votre service ecclésial et social. Je prie pour vous ; et vous aussi, s’il vous plaît, priez pour moi. Merci !

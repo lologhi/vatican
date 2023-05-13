@@ -1,0 +1,23 @@
+MESSE AVEC LES PERSONNES ÂGÉES
+
+***HOMÉLIE DU PAPE FRANÇOIS***
+
+*Place Saint-Pierre*
+
+*Dimanche 28 septembre 2014*
+
+Nous accueillons aujourd’hui l’Évangile que nous avons écouté comme l’Evangile de la rencontre entre les jeunes et les personnes âgées : une rencontre pleine de joie, pleine de foi et pleine d’espérance.
+
+Marie est jeune, très jeune. Élisabeth est âgée, mais en elle s’est manifestée la miséricorde de Dieu et, depuis six mois, avec son mari Zacharie, elle attend un enfant.
+
+Marie, dans cette circonstance aussi, nous montre la voie : aller à la rencontre de sa parente âgée, rester avec elle, certes pour l’aider, mais aussi et surtout pour apprendre d’elle, qui est âgée, une sagesse de vie.
+
+La première lecture, avec une variété d’expressions, fait écho au quatrième commandement : « Honore ton père et ta mère, afin que se prolongent tes jours sur la terre que te donne Yahvé ton Dieu » ( *Ex* 20, 12). Il n’y a pas d’avenir pour le peuple sans cette rencontre entre les générations, sans que les enfants reçoivent avec reconnaissance le témoin de la vie des mains de leurs parents. Et dans cette reconnaissance envers celui qui nous a transmis la vie, il y a aussi la reconnaissance pour le Père qui est aux cieux.
+
+Il y a parfois des générations de jeunes qui, pour des raisons historiques et culturelles complexes, vivent plus fortement le besoin de devenir autonomes vis-à-vis des parents, de se « libérer », pour ainsi dire, de l’héritage de la génération précédente. C’est comme un moment d’adolescence rebelle. Mais, si la rencontre n’est pas ensuite rétablie, si on ne retrouve pas un équilibre nouveau et fécond entre les générations, il en découle un grave appauvrissement pour le peuple, et la liberté qui prédomine dans la société est une fausse liberté qui se transforme presque toujours en autoritarisme.
+
+Le même message nous vient de l’exhortation de l’apôtre Paul adressée à Timothée et, à travers lui, à la communauté chrétienne. Jésus n’a pas aboli la loi de la famille et du passage entre générations, mais il l’a portée à son accomplissement. Le Seigneur a formé une famille nouvelle, dans laquelle la relation avec lui et l’accomplissement de la volonté de Dieu le Père prévalent sur les liens du sang. Mais l’amour pour Jésus et pour le Père mène à son accomplissement l’amour pour les parents, pour les frères, pour les grands-parents, il renouvelle les relations familiales avec la sève de l’Évangile et de l’Esprit Saint. Et ainsi, saint Paul recommande à Timothée, qui est Pasteur et donc père de la communauté, d’avoir du respect pour les personnes âgées et les membres de la famille, et il l’exhorte à le faire avec une attitude filiale : l’homme âgé « comme un père », « les femmes âgées comme des mères » (cf. 1 *Tm* 5, 1). Le chef de la communauté n’est pas dispensé de cette volonté de Dieu, au contraire, la charité du Christ le pousse à le faire avec un amour plus grand. Comme la Vierge Marie, qui, tout en étant devenue la Mère du Messie, se sent poussée par l’amour de Dieu qui s’est incarné en elle, à accourir vers sa parente âgée.
+
+Retournons alors à cette « icône » pleine de joie et d’espérance, pleine de foi, pleine de charité. Nous pouvons penser que la Vierge Marie, en étant dans la maison d’Elisabeth, l’aura entendue, avec son mari Zacharie, prier avec les paroles du Psaume responsorial d’aujourd’hui : « C’est toi mon espoir, Seigneur, Yahvé, ma foi dès ma jeunesse... Ne me rejette pas au temps de ma vieillesse, quand décline ma vigueur, ne m’abandonne pas... vieilli, chargé d’années, ô Dieu, ne m’abandonne pas, que j’annonce ton bras aux âges à venir, ta puissance » ( *Ps* 71, 5.9.18). La jeune Marie écoutait, et gardait tout cela dans son cœur. La sagesse d’Élisabeth et de Zacharie a enrichi son jeune esprit ; ils n’étaient pas experts en maternité et en paternité, parce que pour eux aussi, c’était la première grossesse, mais ils étaient experts de la foi, experts de Dieu, experts de cette espérance qui vient de Lui : c’est de cela dont le monde a besoin, de tout temps. Marie a su écouter ces parents âgés et pleins d’émerveillement, elle a mis à profit leur sagesse, et celle-ci a été précieuse pour elle, sur son chemin de femme, d’épouse et de maman.
+
+C’est ainsi que la Vierge Marie nous montre la voie : la voie de la rencontre entre les jeunes et les personnes âgées. L’avenir d’un peuple présume nécessairement cette rencontre : les jeunes donnent la force de faire marcher le peuple et les personnes âgées renforcent cette force par la mémoire et la sagesse populaire.

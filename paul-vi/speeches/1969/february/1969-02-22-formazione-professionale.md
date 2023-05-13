@@ -1,0 +1,17 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***AUX MEMBRES DU PREMIER CONGRÈS INTERNATIONAL***
+
+***POUR LA FORMATION PROFESSIONNELLE EN EUROPE***
+
+*Samedi 22 février 1969*
+
+Nous accueillons avec plaisir les membres du Premier Congrès International pour la Formation professionnelle en Europe, et Nous vous souhaitons à tous, Messieurs, la plus cordiale bienvenue. Toute activité se déroulant au plan international a pour Nous un vif intérêt, et la vôtre, qui pourra se révéler si bienfaisante pour l’avenir des populations laborieuses de vos Pays, retient toute Notre attention.
+
+Organisée par la méritante *Unione Nazionale dell’Istruzione Tecnica e Professionale* - active en Italie depuis plus de dix ans - et par la Présidence de la Communauté Economique Européenne, votre rencontre se signale avant tout par l’autorité des personnalités hautement qualifiées qu’elle rassemble, par l’actualité des sujets qu’elle étudie, et par l’importance que ceux-ci revêtent actuellement pour des millions de jeunes des six pays du « Marché Commun ». L’existence même de cette communauté pose en effet des problèmes et impose des devoirs nouveaux. Il faut élaborer une politique commune de la formation professionnelle dans le cadre des intérêts culturels, économiques et sociaux de ce groupe ethnique ; il faut assurer, dans ce même cadre, une certaine liberté de circulation pour ceux qui veulent exercer leur profession dans l’un ou l’autre des pays intéressés ; cela suppose des échanges d’expériences pédagogiques, une relative égalisation dans les niveaux respectifs de la formation professionnelle, avec une certaine reconnaissance réciproque des titres qui la sanctionnent : autant de problèmes - pour n’en citer que quelques-uns - qui intéressent grandement l’équilibre humain et social de la Communauté Européenne.
+
+Problèmes qui peuvent sembler d’abord d’ordre matériel et technique : et ils le sont, certes, pour une grande part. Mais votre présence ici, votre souci d’interrompre un instant vos travaux pour rendre visite à une autorité spirituelle, prouvent bien qu’à vos yeux ces problèmes revêtent une autre dimension, moins facile sans doute à exprimer en lettres et en chiffres, mais qui va bien au-delà de la pure technique : ces problèmes engagent l’homme et son destin sur cette terre ; ils ont une résonance immédiate aux niveaux culturel et social ; ils ne peuvent faire abstraction du plan moral. Et c’est pourquoi, Messieurs, vous le comprenez, Nous y portons un si vif intérêt.
+
+Notre désir est que, grâce à votre effort commun, les incertitudes qui pèsent sur l’avenir de tant de jeunes européens se dissipent ; que la qualité croissante et coordonnée de la formation qu’ils reçoivent leur donne confiance en eux-mêmes, confiance dans l’avenir ; qu’elle contribue à l’épanouissement de leurs âmes en même temps qu’au perfectionnement de leurs capacités ; qu’elle se résolve en un profit non seulement professionnel, mais humain, moral, spirituel.
+
+Tel est le vœu que Nous avons plaisir à formuler devant vous, Messieurs. Et tandis que Nous vous remercions de votre aimable visite, c’est de grand cœur que Nous invoquons l’assistance divine sur vos personnes, sur vos activités, vos familles et vos Pays respectifs, et sur l’heureuse conclusion des travaux de votre Congrès.

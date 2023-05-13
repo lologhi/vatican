@@ -1,0 +1,23 @@
+***SALUT DU PAPE BENOÎT XVI***
+
+***À LA DÉLÉGATION DU PATRIARCAT ŒCUMÉNIQUE***
+
+***DE CONSTANTINOPLE***
+
+*Jeudi 28 juin 2012*
+
+*« Magnifiez avec moi le Seigneur,*
+
+*exaltons tous ensemble son nom »*( *Ps* 34, 4 *)*
+
+*Chers frères dans le Christ,*
+
+En cette joyeuse circonstance de la Fête des saints Pierre et Paul, patrons de la Ville et de l’Église de Rome, je suis particulièrement heureux de vous accueillir avec les paroles du psaume qui seront chantées au cours de la liturgie eucharistique solennelle en l’honneur de ces deux grands Apôtres et Martyrs. En vous adressant une chaleureuse bienvenue, je vous demande de porter à Sa Sainteté Bartholomée Ier et au Saint Synode mes sentiments d’affection fraternelle et de vive gratitude pour avoir voulu envoyer cette année aussi de dignes représentants pour participer à notre célébration, et de transmettre un salut cordial au clergé, aux moines et à tous les fidèles du Patriarcat œcuménique.
+
+Votre présence ici à Rome à l’occasion de la fête liturgique des saints Pierre et Paul nous offre une opportunité particulière d’élever notre chant de louange pour les merveilles que la grâce divine, dont provient tout bien, a accomplies dans la vie des deux Apôtres, les rendant dignes d’entrer triomphants dans la gloire céleste après être passés par le bain régénérateur du martyre. La fête des saints Pierre et Paul, nous donne, en outre, la possibilité de remercier ensemble le Seigneur pour les œuvres extraordinaires qu’il a accomplies et continue d’accomplir à travers les Apôtres dans la vie de l’Église. C’est leur prédication, scellée par le témoignage du martyr, qui est le fondement solide et pérenne sur lequel s’édifie l’Église, et c’est dans la fidélité au dépôt de la foi transmis par eux, que nous trouvons les racines de la communion dont nous faisons déjà l’expérience entre nous.
+
+Vénérés frères, en notre rencontre d’aujourd’hui, tandis que nous confions à l’intercession des glorieux apôtres et martyrs Pierre et Paul notre supplication pour que le Seigneur, riche en miséricorde, nous accorde de parvenir bientôt au jour béni où nous pourrons partager la table eucharistique, nous élevons nos voix dans l’hymne à Dieu pour le chemin de paix et de réconciliation qu’il nous donne de parcourir ensemble. Cette année marque le cinquantième anniversaire de l’ouverture du [Concile œcuménique Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm), qui sera célébré solennellement le 11 octobre prochain. Et c’est en concomitance avec ce Concile, auquel, comme vous le savez bien, étaient présents certains représentants du Patriarcat œcuménique en qualité de Délégués fraternels, que commença une nouvelle phase importante des relations entre nos Églises. Nous voulons louer le Seigneur avant tout pour la redécouverte de la profonde fraternité qui nous lie, et aussi pour le chemin parcouru en ces années par la Commission Mixte Internationale pour le Dialogue théologique entre l’Église catholique et l’Église orthodoxe dans son ensemble, avec le souhait que des progrès puissent se réaliser aussi dans la phase actuelle.
+
+Rappelant l’anniversaire du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm), il me semble juste de faire mémoire de la figure et de l’activité de l’inoubliable Patriarche œcuménique Athénagoras, dont ce sera, dans quelques jours, le quarantième anniversaire de la disparition. Le Patriarche Athénagoras, avec le Bienheureux Pape [Jean XXIII](/content/john-xxiii/fr.html) et le Serviteur de Dieu le Pape [Paul VI](/content/paul-vi/fr.html), animés par cette passion pour l’unité de l’Église qui jaillit de la foi au Christ Seigneur, se firent les promoteurs d’initiatives courageuses qui ont ouvert la voie à des relations renouvelées entre le Patriarcat œcuménique et l’Église catholique. C’est pour moi un motif de joie particulière de constater comment Sa Sainteté Bartholomée Ier suit, avec une fidélité renouvelée et une créativité féconde, le chemin tracé par ses prédécesseurs les Patriarches Athénagoras et Dimitrios, se distinguant au niveau international pour son ouverture au dialogue entre les chrétiens et pour l’engagement au service de l’annonce de l’Évangile dans le monde contemporain.
+
+Éminence, chers membres de la délégation, vous remerciant encore une fois pour votre présence ici au milieu de nous, je vous assure de ma prière pour que le Seigneur accorde santé et force à Sa Sainteté Bartholomée Ier et donne prospérité et paix au Patriarcat œcuménique. Que Dieu tout-puissant nous fasse le don d’une communion toujours plus pleine selon sa volonté, pour que « d’un seul cœur et d’une seule âme » ( *Ac* 4, 32), nous puissions toujours exalter son nom.

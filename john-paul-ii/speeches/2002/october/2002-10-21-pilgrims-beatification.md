@@ -1,0 +1,35 @@
+***DISCOURS DU PAPE JEAN-PAUL II***
+
+***AUX PÈLERINS RÉUNIS POUR LA B*** ***ÉATIFICATION DE*** ***SIX SERVITEURS DE DIEU***
+
+*Lundi 21 octobre 2002*
+
+*Très chers frères et soeurs !*
+
+1. Je suis très heureux de vous accueillir à nouveau ce matin. Je vous salue tous avec affection. Je salue en particulier les Cardinaux, mes confrères dans l'Episcopat et dans le sacerdoce, les religieux et les religieuses.
+
+Nous sommes au mois d'octobre, un mois consacré de manière particulière à la récitation du Rosaire, « *une prière aimée de nombreux saints* » (Lett. ap. *[Rosarium Virginis Mariae](/content/john-paul-ii/fr/apost_letters/documents/hf_jp-ii_apl_20021016_rosarium-virginis-mariae.html),* n. 1). Dans ce contexte, nous voulons réfléchir encore une fois sur les « *grandes choses* » accomplies par Dieu à travers les nouveaux bienheureux, que l'Eglise nous présente comme des modèles à imiter et qui sont nos puissants intercesseurs auprès de Dieu.
+
+2. Je suis heureux d'accueillir les pèlerins qui sont venus d'Ouganda, accompagnés par le Cardinal Emmanuel Wamala, ainsi que d'autres lieux d'Afrique et d'autres régions du monde pour célébrer la béatification du bienheureux *Daudi Okelo* et du bienheureux *Jildo Irwa*. Comme nous l'observions hier, ces deux jeunes catéchistes sont un exemple lumineux de fidélité au Christ, d'engagement dans la vie chrétienne et de dévouement généreux au service du prochain. Avec une solide espérance en Dieu et une foi profonde dans la promesse de Jésus d'être toujours avec eux, ils décidèrent d'apporter la Bonne Nouvelle du salut à leur concitoyens, en acceptant pleinement les difficultés et les dangers qu'ils savaient devoir affronter. Puisse leur témoignage servir à vous affermir dans le témoignage véritablement chrétien que vous cherchez à apporter, dans tous les aspects de votre vie. A travers leur intercession, puisse l'Eglise être un instrument toujours plus efficace de bonté et de paix en Afrique et dans le monde. Que Dieu bénisse l'Ouganda !
+
+3. Je m'adresse à présent aux pèlerins du diocèse de Trévise, accompagnés par leur Evêque, Mgr Paolo Magnani, qui se réjouissent de l'élévation à la gloire des autels d'un de leurs pasteurs zélé et éclairé, *[Andrea Giacinto Longhin](http://localhost/news_services/liturgy/saints/ns_lit_doc_20021020_longhin_fr.html)*. A leurs côtés, je salue également avec affection les bien-aimés Frères mineurs capucins.
+
+Mgr Longhin consacra une grande attention à la formation du clergé. Dans son testament spirituel, il voulut réserver une pensée particulière à ses prêtres, en les exhortant ainsi : « *Faites-vous, faites-vous saints !* ». Il se montra toujours pour eux un père attentif et prévenant, comme il le fut pour tous ses fidèles, en particulier les humbles et les pauvres.
+
+La fécondité du ministère épiscopal du bienheureux Longhin s'exprima notamment à travers les trois visites pastorales accomplies dans le diocèse, la célébration du Congrès eucharistique et du Congrès catéchétique, la réalisation de ce qui peut véritablement être considéré comme son chef d'oeuvre : le Synode diocésain. Ainsi continue-t-il à être un exemple très actuel de véritable évangélisation.
+
+4. Une profonde ardeur missionnaire distingue également la vie et la spiritualité du bienheureux *Marcantonio Durando*. Je suis heureux de saluer le Cardinal Severino Poletto, Archevêque de Turin, ainsi que les pères de la Congrégation de la Mission et tous ceux qui appartiennent à la grande famille religieuse de saint Vincent qui se réjouit que l'un de ses membres les plus illustres soit inscrit dans l'Album des bienheureux.
+
+Il fut défini par l'un de ses confrères « *le saint Vincent d'Italie* », et il resplendit d'une extraordinaire charité, qu'il sut insuffler à toutes les oeuvres auxquelles il prit part : de l'activité de guide de la communauté, aux missions populaires ; de l'animation des Filles de la Charité, à l'initiative des « *Miséricordes* », une véritable anticipation des centres modernes d'écoute et d'assistance pour les pauvres ; jusqu'à la fondation des « *Soeurs nazaréennes* », avec pour tâche l'assistance permanente des malades à domicile.
+
+Combien avons-nous besoin encore aujourd'hui de ce rappel profond des racines de la charité et de l'évangélisation ! A l'exemple du bienheureux Marcantonio, sachons nous mettre au service des pauvres et des plus démunis qui, malheureusement, ne manquent pas non plus dans la société actuelle du bien-être.
+
+5. Chers pèlerins venus célébrer la la béatification de *[Marie de la Passion](http://localhost/news_services/liturgy/saints/ns_lit_doc_20021020_marie-passion_fr.html)*, je suis heureux de vous accueillir. Je salue la Supérieure générale des Franciscaines Missionnaires de Marie, ainsi que la nouvelle équipe de conseillères. Chères soeurs, je rends grâce pour votre vocation qui unit contemplation et mission et pour le témoignage précieux de vos communautés internationales, signe de fraternité et de réconciliation pour les peuples. Je vous encourage à y faire grandir toujours plus l'amour fraternel, dans un climat empreint de joie et de simplicité franciscaines. Je vous invite à poursuivre, avec charité et dans la vérité, le dialogue entrepris avec les cultures. Puissiez-vous, en approfondissant la riche spiritualité de votre fondatrice, faire découvrir aux jeunes la joie de se donner tout entier au Christ ! Aux fidèles présents, aux Franciscaines Missionnaires de Marie, aux personnes qui oeuvrent avec elles et à celles qui bénéficient de leur apostolat, j'accorde de tout coeur la Bénédiction apostolique.
+
+6. Je salue enfin les pèlerins venus à Rome, avec leur Evêque, Mgr Antonio Mattiazzo, pour la béatification de *Liduina Meneguzzi*, en particulier les chères Soeurs de saint François de Sales, plus connues sous le nom de Soeurs salésiennes. La dimension la plus vivante et la plus concrète qui transparaît de l'existence de Soeur Liduina, est une âme profondément missionnaire. En Afrique, elle se fit « *toute pour tous* » dans la charité, en assistant les blessés, en encourageant les affligés et en réconfortant les mourants.
+
+Soeur Liduina nous encourage à aimer la vie de son premier bourgeon à son crépuscule naturel ; à respecter chaque personne humaine, en trouvant dans le don généreux et désintéressé de soi la réponse à l'amour de Dieu. Tel est le message chargé de joie et d'optimisme par lequel la nouvelle bienheureuse nous invite à nous ouvrir généreusement à l'action de la grâce de Dieu.
+
+7. Très chers frères et soeurs ! Que les nouveaux bienheureux entraînent et soutiennent notre chemin vers le Seigneur. Que nous accompagne également la protection maternelle de la Très Sainte Vierge Marie que, en particulier en ce mois d'octobre, nous invoquons avec la récitation du Rosaire.
+
+Tout en confiant vos personnes et toutes vos activités à l'intercession céleste de la Vierge et des nouveaux bienheureux, je vous bénis de tout coeur, ainsi que ceux qui vous sont chers et ceux que vous rencontrez dans votre service missionnaire et caritatif.

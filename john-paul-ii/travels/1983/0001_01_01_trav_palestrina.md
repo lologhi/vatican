@@ -1,6 +1,0 @@
-|     |
-| --- |
-|  |
-| ***Visite Pastorale à Palestrina (Italie)***<br>***(18 août 1983)***<br>- **Salut au peuple de Palestrina (18 août 1983)**\[ [Italien](/content/john-paul-ii/it/speeches/1983/august/documents/hf_jp-ii_spe_19830818_popolazione-palestrina.html), [Portugais](/content/john-paul-ii/pt/speeches/1983/august/documents/hf_jp-ii_spe_19830818_popolazione-palestrina.html)\]<br>  <br>- **Rencontre avec les religieuses dans la Cathédrale Saint Agapet à Palestrina (18 août 1983)**\[ [Italien](/content/john-paul-ii/it/speeches/1983/august/documents/hf_jp-ii_spe_19830818_suore-cattedrale.html), [Portugais](/content/john-paul-ii/pt/speeches/1983/august/documents/hf_jp-ii_spe_19830818_suore-cattedrale.html)\]<br>  <br>- **Sainte Messe sur la place près de la Cathédrale de Palestrina (18 août 1983)**\[ [Italien](/content/john-paul-ii/it/homilies/1983/documents/hf_jp-ii_hom_19830818_palestrina.html), [Portugais](/content/john-paul-ii/pt/homilies/1983/documents/hf_jp-ii_hom_19830818_palestrina.html)\] |
-|  |
-|  |

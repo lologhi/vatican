@@ -1,0 +1,19 @@
+**IOANNES PP. XXIII**
+
+**LITTERAE APOSTOLICAE**
+
+***IGNEM VENI***
+
+TITULO AC PRIVILEGIIS BASILICAE MINORIS
+
+ECCLESIA SS.MO CORDI IESU DICATA,
+
+IN URBE CRACOVIA, DITATUR
+
+Ad perpetuam rei memoriam. — « Ignem veni mittere in terram » (Luc. XII, 49) : haec verba Servatoris queunt referri ad ardorem pietatis, qua fideles Poloni, sive in patria degentes sive extorres, opera praesertim Sodalium Ignatianorum, in Sacratissimum Cor Iesu accensi sunt. Qui communi studio impulsi effecerunt, ut Cracoviae templum eidem Sacratissimo Cordi dicatum excitaretur, quod sedes esset ac domicilium probatissimae huius religionis formae. Itaque, ante annos quinquaginta moles amplissima ibi surrexit, « Romanico » structurae genere ad recentioris artis rationem conformato insignis, quae quinque milia hominum capere potest. Qua ex parte iuvat memorare Polonos, intra vel extra fines patriae vitam agentes, stipem ad egregium hoc opus exsequendum contulisse, ita ut omnis fere laterculus, tegula omnis quasi signum sit pietatis animique grati gentis eiusdem. Quod templum cum sollemni Ecclesiae ritu dedicaretur, universa natio Polonica Sacratissimo Cordi Iesu, miserationis et gratiae fonti uberrimo, sese devovit, qui cultus exinde permagnis est auctus incrementis ; iamvero, diebus praesertim, quibus amantissimum Cor Iesu peculiari modo excolitur, non solum cives Cracovienses sed etiam peregrini quam plurimi eo accedere solent ut ad sedem praecipuam eximiae huius pietatis rationis. Quodsi hae laudes sunt merito celebrandae, est etiam animadvertendum templum vario genere ornamentorum commendari, veluti marmoribus, columnis e lapide granite, operibus musivis, e quibus imago, « adorationem Poloniae co ram Sacratissimo Corde Iesu » singulari exprimens venustate, omnium ad se animos convertit. Neque praetermittenda novem altaria faberrime sculpta, organum musicum, supellex pretiosa, quibus huic aulae Dei non modicum decus accrescit. Quoniam igitur quinquagesimus annus ab hoc templo extructo sollemnibus celebratur, dilectns filius Praepo situs Generalis Societatis Iesu, cuius Sodales in eiusdem ecclesiae mini steriis impigri versantur, Nos submisse rogavit, ut eam Basilicae Mino ris nomine ac iure donaremus. Quibus precibus, Venerabilis Fratris Cracoviensis Ordinarii commendatione suffultis, libenti animo statuimus obsecundare, ac fore confidimus, nt filii Nostri Poloni hac oblata occa sione permoveantur, ut in fide a maioribus accepta fortes persistant, atque difficilibus hisce ac perturbatis temporibus in christianam spem erigantur. Quae cum ita sint, Nos e Sacrae Rituum Congregationis consulto, certa scientia ac matura deliberatione Nostra deque Aposto licae potestatis plenitudine, harum Litterarum vi perpetuumque in modum ecclesiam Sacratissimo Cordi Iesu Cracoviae dicatam a,d digni tatem *Basilicae Minoris* evehimus, omnibus adiectis iuribus ac privile giis, quae templis eodem nomine honestatis rite competunt. Contrariis quibusvis nihil obstantibus. Haec edicimus, statuimus, decernentes praesentes Litteras firmas, validas atque efficaces iugiter exstare ac per manere ; suosque plenos atque integros effectus sortiri et obtinere illisque, ad quos spectant seu spectare poterunt, nunc et in posterum plenissime suffragari ; sicque rite iudicandum esse ac definiendum ; irri tumque ex nunc et inane fieri, si quidquam secus, super his, a quovis auctoritate qualibet, scienter sive ignoranter attentari contigerit.
+
+*Datum Romae, apud Sanctum Petrum, sub anulo Piscatoris, die I mensis Iulii anno MCMLX, Pontificatus Nostri secundo.*
+
+D. Card. TARDINI
+
+*a publicis Ecclesiae negotiis*

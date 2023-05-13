@@ -1,0 +1,19 @@
+***DISCOURS DU PAPE BENOÎT XVI***
+
+***AUX EVÊQUES DU RWANDA***
+
+***EN VISITE « AD LIMINA APOSTOLORUM »***
+
+*Samedi 21 mai 2005*
+
+*Chers Frères dans l'épiscopat,*
+
+Au moment où vous accomplissez votre pèlerinage au tombeau des Apôtres Pierre et Paul, je suis heureux de vous accueillir, vous à qui le Seigneur a confié la charge de guider son Eglise au Rwanda. Je remercie Monseigneur Alexis Habiyambere, Evêque de Nyundo, Président de votre Conférence épiscopale, pour ses paroles fraternelles. A travers vous, j'adresse un salut affectueux à vos communautés, exhortant prêtres et fidèles, durement éprouvés par le génocide de 1994 et par ses conséquences, à demeurer fermes dans la foi, à persévérer dans l'espérance que donne le Christ ressuscité, en surmontant toute tentation de découragement. Puisse l'Esprit de Pentecôte, répandu sur tout l'univers, féconder les efforts de ceux qui s'attachent à édifier la fraternité entre tous les Rwandais, dans un esprit de vérité et de justice !
+
+Vos rapports quinquennaux font écho à l'oeuvre de l'Esprit, qui construit l'Eglise au Rwanda dans les vicissitudes de son histoire. Pour travailler activement à la paix et à la réconciliation, vous privilégiez notamment une pastorale de proximité, fondée sur l'engagement de petites communautés de laïcs dans la pastorale missionnaire de l'Eglise, en harmonie avec les pasteurs. Je vous encourage à soutenir ces communautés, pour que les fidèles accueillent les vérités de foi et ses exigences, développant ainsi une vie ecclésiale et spirituelle plus forte, sans se laisser détourner de l'Evangile du Christ, notamment par les nombreuses sectes présentes dans le pays. Travaillez sans relâche pour que l'Evangile pénètre toujours plus en profondeur le coeur   et  l'existence   des croyants, invitant les fidèles à assumer toujours davantage leur responsabilité dans la société, en particulier dans le champ de l'économie et de la politique, avec un sens moral nourri par l'Evangile et par la doctrine sociale de l'Eglise.
+
+Je salue les prêtres de vos diocèses, et les jeunes qui, avec générosité, se préparent à le devenir. Leur nombre est un vrai signe d'espérance pour l'avenir. Alors que le clergé devient autochtone, je voudrais honorer le travail patient accompli par les missionnaires pour annoncer le Christ et son Evangile, et pour faire naître les communautés chrétiennes dont vous avez la charge aujourd'hui. Je vous invite à être proches de vos prêtres, soucieux de leur formation permanente au niveau théologique et spirituel, attentifs à leurs conditions de vie et d'exercice de leur mission, afin qu'ils soient des témoins véritables de la Parole qu'ils annoncent et des sacrements dont ils sont les ministres. Puissent-ils, dans le don d'eux-mêmes au Christ et au peuple dont ils sont les pasteurs, demeurer fidèles aux exigences de leur état et vivre leur sacerdoce comme un vrai chemin de sainteté!
+
+Au terme de notre rencontre, chers Frères dans l'épiscopat, je voudrais me faire proche du peuple qui vous est confié, exhortant les fidèles et les pasteurs à construire des communautés animées par un amour mutuel sincère et habitées par le désir impérieux de travailler à une authentique réconciliation ! Que sur toutes les collines résonne le chant des messagers de la Bonne Nouvelle du Christ vainqueur de la mort (cf. *Is* 52, 7)! Confiant les espoirs et les souffrances du peuple rwandais à l'intercession de la Reine des Apôtres, je vous accorde une affectueuse Bénédiction apostolique, que j'étends bien volontiers aux prêtres, aux religieux, aux religieuses, aux catéchistes et à tous les fidèles de vos diocèses.
+
+Copyright © Libreria Editrice Vaticana

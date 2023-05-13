@@ -1,0 +1,41 @@
+**IOANNES PAULUS PP. II**
+
+**LITTERAE APOSTOLICAE**
+
+***MEMENTOTE PRAEPOSITORUM****
+
+VENERABILI SERVO DEI IOANNI PP. XXIII
+
+BEATORUM HONORES TRIBUUNTUR.
+
+Ad perpetuam rei memoriam. — « Mementote praepositorum vestrorum, qui vobis locuti sunt verbum Dei, quorum intuentes exitum conversationis imitamini fidem » ( *Heb* 13, 7).
+
+Ecclesiae et mundo difficile non est Summi Pontificis Ioannis XXIII (Angeli Iosephi Roncalli) memoriam tenere, qui bonitate, lenitudine atque sanctitate, aetate sua paternitatis Dei clarum fuit signum. Universe dilectus in vita, obiit magnum sui excitans desiderium sibique incredibilem benevolentiam concilians.
+
+Ex tredecim filiis quarto loco natus, Senvus Dei in lucem editus est die vicesimo quinto mensis Novembris anno 1881 in vico dioecesis Bergomensis Italice « Sotto il Monte » denominato. In ecclesia Sanctae Mariae in caelum assumptae dicata est baptizatus. Eius familia, ex partiariis colonis constans, in paupertate vivebat, sed laeta et illi Domini timori inhaerens, qui domesticas tuetur virtutes atque sedulam parit concordiam. Angelus Iosephus est seminarium ingressus undecim annos natus. Quattuordecim annorum puer tonsuram accepit et inter Tertiarios Franciscanos est receptus. Viginti annorum aetatem habens in studia theologica incumbere perrexit apud seminarium Romanum ; quae ei per duodecirn menses interrumpenda fuerunt propter militiamo Sacrae theologiae lauream meritus, presbyter est ordinatus in tempio Sanctae Mariae in Monte Sancto die decimo mensis Augusti anno 1904. Postero anno novi episcopi Bergomensis Iacobi Mariae Radini Tedeschi secretarius nominatus est, apud quem decennium mansit, simul variis fungens muneribus, nempe : seminarii professoris, fautoris Actionis Catholicae, diurnarii, Visitationis pastoralis ac Synodi dioecesanae secretarii. Annis 1915-1918 est in exercitu conscriptus. Bello confecto « Domum scholastici » instituit et magister spiritus Seminarii est nominatus. Anno 1920 Papa Benedictus XV Romam eum arcessivit, ut in ministerio esset Congregationis Propagandae Fidei atque cooperationis missionalis motum excitaret. Animo cum apostolico plus dimidium Italicarum dioecesium visit ipse et cum Institutis missionalibus Europaeis est congressus. Anno 1925 Papa Pius XI ad episcopatum illum evexit, titulo ornatum archiepiscopali Arepolitano visitatoremque in Bulgariam misit ubi deinceps anno 1931, primus fuit Delegatus apostolicus. Die 27 mensis Novembris anno 1934 est ad delegationem apostolicam Constantinopolitanam translatus, cum titulo archiepiscopali Mesembriano administrator apostolicus Latinorum Constantinopolitanorum ; munus insuper sumpsit delegati pro Graecia. In Medio Oriente viginti annos praesens, varietatem cognovit rituum ac traditionum Ecclesiae Catholicae necnon Ecclesiarum Orthodoxarum, atque liberales coniunxit rationes cum moderatoribus rei publicae cumque regia domo Bulgara.
+
+Constantinopoli humanam explicavit actionem praesertim quod ad difficilem Populi Hebraici condicionem pertinebat et ad afflictum Graeciae statum. Anno 1944 exeunte a Pio XII Nuntius apostolicus Lutetiae Parisiorum est factus, eique postea munus est additum observatoris Sanctae Sedis apud UNESCO. Die 12 mensis Ianuarii anno 1953 est Cardinalis creatus ac triduo post Patriarcha Venetiarum : quam urbem ingressus est die 15 mensis Martii anno 1953, ibique mansit quoad Summus Pontifex est electus die 28 mensis Octobris anno 1958, cum nomen cepit Ioannem XXIII.
+
+Temporis, quo Venetiis fuit, memorandae sunt celebrationes in honorem Pii X et Laurentii Giustiniani, Annus Marialis 1954, Synodus dioecesana (anno 1957), sacrae in Libanum et Lapurdum peregrinationes. Pontificatus sui quinquennium sub signo egit sibi admodum congruenti, « fidelitatis », videlicet, et « renovationis ». Presbyter Romanus. in integerrima et dynamica traditione catholica penitus defixus, iter suum percucurrit secundum « Opera misericordiae », curam assiduam sanctificationis cleri et laicatus, pacis socialis et inter nationes, populorum libertatis, quominus fidem suam profiterentur impeditorum. Cum patientia atque prudentia aetatis concordiae ac dialogi initium fecit. Litteras encyclicas « *[Mater et Magistra](/content/john-xxiii/la/encyclicals/documents/hf_j-xxiii_enc_15051961_mater.html)*» promulgavit (anno 1961) atque « *[Pacem in terris](/content/john-xxiii/la/encyclicals/documents/hf_j-xxiii_enc_11041963_pacem.html)*» (anno 1963). Die vicesimo quinto mensis Ianuarii anno 1959 *[Concilium Oecumenicum Vaticanum II](http://www.vatican.va/latin/latin_council.html)* nuntiavit. Synodum dioecesanam, *[Codicis Iuris Canonici](http://www.vatican.va/latin/latin_codex.html)* accommodationem. Quamquam in difficultatibus, Concilium lentum et sollemne est iter ingressum die undecimo mensis Octobris anno 1962, ac feliciter est ad exitum adductum die octavo mensis Decembris anno 1965 a Paulo Papa VI.
+
+Papae Ioannis omnes memoria vultum hilarem atque laetum tenent necnon brachia ad mundum universum amplectendum aperta. Quot personae eius animi simplicitate illectae sunt, magnae hominum rerumque experientiae coniuncta ! Novitatis ardor quam is attulit certo ad doctrinam non attinebat, sed potius ad modum eam exponendi ; novum erat dicendi atque agendi genus, novum studium. quo personas communes terraeque potentes admittebat. Hoc cum spiritu *[Concilium Oecumenicum Vaticanum II](http://www.vatican.va/latin/latin_council.html)* indixit, per quod novam in Ecclesiae historia paginam conscripsit. Extremis vitae vestigiis temporis suum Ecclesiae concredidit testamentum : *Quod in vita maximi est momenti Iesus Christus est benedictus, Ecclesia eius sancta, veritas et bonitas*. Vesperi diei tertii mensis Iunii anno 1963, in area Sancti Petri Missa a Cardinali Aloisio Traglia celebrata, Urbis pro-vicario multitudine verbis *Deo gratias* respondente diaconi verbis *Ite, Missa est*, Ioannes XXIII in sua Aedium apostolicarum diaeta, terrenum iter conclusit in oblationis actu, ita ut Joannis evangelistae verborum commoneret : *Cum dilexisset, in finem dilexit* ( *Io* 13, 11).
+
+Ob amplissimam solidamque sanctitatis famam qua Servus Dei claruerat. Causa beatificationis a Paulo VI nuntiata est in aula Concilii Vaticani II die duodevicesimo mensis Decembris anno 1965. Longum accuratumque iter conclusum est anno 1999 per promulgationem decreti super heroicitate virtutum et. die vicesimo septimo mensis Ianuarii anno 2000, decreti quo mirum agnitum est eius intercessioni ascriptum. Deinde statuimus ut beatificationis ritus Romae celebraretur die tertio subsequentis mensis Septembris, una cum ritu beatificationis Papae Pii IX aliorumque Venerabilium Servorum Dei.
+
+Hodie igitur, in foro ad Basilicam Sancti Petri in Vaticano vergente, inter Missae sollemnia hanc sumus formulam elocuti : Nos, vota Fratrum Nostrorum Camilli Cardinalis Ruini, Vicarii Nostri pro Romana dioecesi, Dionysii Cardinalis Tettamanzi, Archiepiscopi Ianuensis, Petri Cardinalis Eyt, Archiepiscopi Burdigalensis, et Andreae Mutiani Léonard, Episcopi Namurcensis, necnon plurimorum aliorum Fratrum in episcopatu multorumque christifidelium explentes, de Congregationis de Causis Sanctorum consulto, Auctoritate Nostra Apostolica facultatem facimus ut Venerabiles Servi Dei Pius IX, Ioannes XXIII, Thomas Reggio, Gulielmus-Iosephus Chaminade et Columba Marmion Beatorum nomine in posterum appellentur, eorumque festum : Pii IX die septima Februarii, Ioannis XXIII die undecima Octobris, Thomae Reggio die nona Ianuarii, Gulielmi-Iosephi Chaminade die ,vicesima secunda Ianuarii et Columbae Marmion die tertia Octobris in locis et modis iure statutis quotannis celebrari possit.
+
+In nomine Patris et Filii et Spiritus Sancti.
+
+Quae autem decrevimus, nunc et in posterum firma et rata esse volumus, rebus contrariis minime obstantibus.
+
+*Datum Romae, apud Sanctum Petrum, sub anulo Piscatoris, die III mensis Septembris, anno MM, Pontificatus Nostri vicesimo secundo.*
+
+*De mandato Summi Pontificis*
+
+ANGELUS card. SODANO
+
+* * *
+
+*A.A.S., vol. XCIII (2001), n. 11, pp. 746-749
+
+© Copyright 2000 - Libreria Editrice Vaticana

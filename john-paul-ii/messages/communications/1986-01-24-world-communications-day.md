@@ -1,0 +1,59 @@
+***MESSAGE DU SAINT PÈRE JEAN-PAUL II***
+
+***POUR LA*** ***XXe JOURNÉE MONDIALE***
+
+***DES COMMUNICATIONS SOCIALES***
+
+**« Les communications sociales et formation chrétienne de l'opinion publique »**
+
+[Dimanche 11 mai 1986]
+
+*Chers Frères et Sœurs,*
+
+1. Le récent Synode extraordinaire des Evêques, à l'occasion du vingtième anniversaire de la conclusion du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm), n'a pas eu seulement comme but de commémorer solennellement l'événement destiné à marquer si profondément la vie de l'Eglise en ce siècle, mais bien plus, il nous a permis d'en revivre l'esprit et nous en a rappelé les enseignements et les décisions. Ainsi, le Synode est une reprise et une relance du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm) dans la vie de l'Eglise.
+
+*Une réponse à Vatican II*
+
+Parmi les initiatives suscitées par les directives conciliaires, il faut sans aucun doute, mettre en relief particulier l'institution de la « Journée Mondiale des Communications Sociales » afin de « renforcer plus efficacement l'apostolat multiforme de l'Eglise à travers les instruments de communications sociales, dans tous les diocèses du monde » ( *[Inter mirifica](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19631204_inter-mirifica_fr.html)* n. 18). Cette décision, qui manifeste le grand prix que les Pères conciliaires attribuaient aux Communications sociales, apparaît encore plus importante aujourd'hui où l'on enregistre un développement toujours croissant de leur influence.
+
+Fidèle au désir du [Concile Vatican II](http://www.vatican.va/archive/hist_councils/ii_vatican_council/index_fr.htm), l'Eglise, en ces vingt ans, n'a jamais manqué de célébrer la « Journée des Communications sociales » lui assignant à chaque fois un thème particulier. Cette année, la « Journée » est invitée à considérer et à approfondir la contribution que les Communications sociales peuvent donner à la formation chrétienne de l'opinion publique.
+
+Ce n'est pas la première fois que l'Eglise s'intéresse à ce thème. « Le dialogue de l'Eglise — a rappelé en 1971 l'Instruction pastorale *[Communio et progressio](http://www.vatican.va/roman_curia/pontifical_councils/pccs/documents/rc_pc_pccs_doc_23051971_communio_fr.html)*— ne concerne pas seulement les fidèles, mais s'étend au monde entier. Tant le droit à l'information, reconnu à tous les hommes, dont elle partage le destin, que l'explicite mandat divin (cf. *Mat* 28, 19) exigent que la doctrine et les œuvres de l'Eglise soient portées à la connaissance de tous » (n. 122). [Paul VI](/content/paul-vi/fr.html), de son côté, a indiqué dans l'Exhortation apostolique *[Evangelii nuntiandi](/content/paul-vi/fr/apost_exhortations/documents/hf_p-vi_exh_19751208_evangelii-nuntiandi.html)*: « Dans notre siècle marqué par les mass media ou moyens de communication sociale, la première annonce, la catéchèse ou l'approfondissement ultérieur de la foi, ne peuvent pas se passer de ces moyens. Mis au service de l'Evangile, ils sont capables d'étendre presque à l'infini le champ d'écoute de la Parole de Dieu et ils font arriver la Bonne Nouvelle à des millions de personnes. L'Eglise se sentirait coupable devant son Seigneur si elle ne mettait pas en œuvre ces puissants moyens que l'intelligence humaine rend chaque jour plus perfectionnés. C'est par eux qu'elle « *proclame sur les toits* » le message dont elle est dépositaire. En eux elle trouve une version moderne et efficace de la chaire. Grâce à eux elle réussit à parler aux masses » (n. 45).
+
+*Signification et formation de l'opinion publique*
+
+2. L'« opinion publique » consiste dans une manière courante et collective de penser et de sentir de la part d'un groupe social plus ou moins important dans des circonstances déterminées de lieu et de temps. Elle indique ce que les personnes pensent communément sur un sujet, un fait, un problème d'un certain relief. L'opinion publique se forme par le fait qu'un grand nombre de personnes fait sien, le retenant vrai et juste, quand quelques uns ou quelques groupes qui jouissent d'une particulière autorité culturelle, scientifique ou morale le pensent et le disent. Ceci démontre la grave responsabilité de ceux qui, par leur culture et leur prestige, forment l'opinion publique ou influencent de quelque manière sa formation. Les personnes, pourtant, ont le droit de penser et sentir conformément à ce qui est vrai et juste, parce que du mode de penser et de sentir dépend l'agir moral. Sera juste le mode de pensée conforme à la vérité.
+
+On doit relever, à ce sujet, que l'opinion publique a une grande influence sur le mode de penser, de sentir et d'agir sur ceux qui — soit en raison de leur jeune âge ou soit du fait d'un manque de culture — sont dans l'incapacité d'un jugement critique. Ainsi sont beaucoup de ceux qui pensent et agissent selon l'opinion générale, sans être en mesure de se soustraire à sa pression. On se doit aussi de souligner que l'opinion publique influe fortement sur l'établissement des lois. Il ne fait aucun doute, en effet, que l'introduction dans quelques pays de lois injustes, comme, par exemple, celle qui légalise l'avortement, doit être attribuée à la pression exercée par une opinion publique favorable.
+
+*Les valeurs fondamentales à mettre en relief*
+
+3. En tout ceci apparaît l'importance de la formation d'une opinion publique moralement saine sur les problèmes qui touchent de plus près le bien de l'humanité de notre temps. Parmi ces biens, se trouvent les valeurs de la vie, de la famille, de la paix, de la justice et de la solidarité entre les peuples.
+
+Il est nécessaire que se forme une opinion publique sensible à la valeur absolue de la vie humaine, en sorte qu'elle soit reconnue comme telle à tous ses stades, de la conception à la mort, et sous toutes ses formes, y compris celles marquées par la maladie et les handicaps physiques et spirituels. On voit en effet se diffuser une mentalité matérialiste et hédoniste, selon laquelle la vie est digne d'être vécue seulement quand elle est saine, jeune et belle.
+
+Il est nécessaire qu'il se forme, sur la famille, une opinion publique droite qui aide à dépasser certains modes de penser et de sentir non conformes au dessein de Dieu qui l'a établie indissoluble et féconde. Malheureusement, va en se développant une opinion publique favorable à l'union libre, au divorce et à une réduction drastique de la natalité par n'importe quel moyen ; elle doit être rectifiée parce qu'elle est nocive au vrai bien de l'humanité qui sera d'autant plus heureuse que la famille sera saine et unie.
+
+Puis il convient de créer une opinion publique toujours plus forte en faveur de la paix et de ce qui la construit et la maintient, comme la réciproque appréciation et la mutuelle concorde entre les peuples ; le refus de chaque forme de discrimination raciale et de nationalisme exacerbé; la reconnaissance des droits et des justes aspirations des peuples ; le désarmement, d'abord des esprits et puis des instruments de destruction ; l'effort pour résoudre pacifiquement les conflits. Il est clair que seule une forte opinion publique favorable à la paix puisse arrêter ceux qui seraient tentés de voir dans la guerre le chemin pour résoudre tensions et conflits. « Car les chefs d' Etat, affirme la Constitution pastorale *[Gaudium et Spes](http://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_const_19651207_gaudium-et-spes_fr.html)*, sont très dépendants des opinions et des sentiments de la multitude. Il leur est inutile de chercher à faire la paix tant que les sentiments d'hostilité, de mépris et de défiance, tant que les haines raciales et les partis pris idéologiques divisent les hommes et les opposent. D'où l'urgence et l'extrême nécessité d'un renouveau dans la formation des mentalités et d'un changement de ton dans l'opinion publique » (n 82 par. 3).
+
+Enfin, la formation d'une forte opinion publique est nécessaire en faveur de la solution des angoissants problèmes de la justice sociale, de la faim et du sous-développement. C'est pourquoi il faut que ces problèmes soient toujours mieux connus aujourd'hui dans leur effrayante réalité et gravité, que se crée une forte et vaste opinion publique en leur faveur, parce que c'est seulement sous sa vigoureuse pression que les responsables politiques et économiques des Pays riches seront conduits à aider les Pays en voie de développement.
+
+*Le champ moral et religieux*
+
+4. La formation d'une saine opinion publique est particulièrement urgente dans le champ moral et religieux. Afin de dresser un barrage à la diffusion d'une mentalité favorable au permissivisme moral et à l'indifférence religieuse, il faut former une opinion publique qui respecte et apprécie les valeurs morales et religieuses, grâce auxquelles l'homme est rendu pleinement « humain » et sa vie pleine de sens. Le péril du nihilisme, c'est-à-dire de la perte des valeurs les plus proprement humaines, morales et religieuses, pèse comme une grave menace sur l'humanité d'aujourd'hui.
+
+Une correcte opinion publique doit être formée quant à la nature, la mission et l'œuvre de l'Eglise, vue trop souvent aujourd'hui comme une structure simplement humaine et non pour ce qu'elle est réellement, comme une réalité mystérieuse qui incarne dans l'histoire l'amour de Dieu et porte aux hommes la parole et la grâce du Christ.
+
+*Appel aux responsables des Communications Sociales*
+
+5. Dans le monde actuel, les moyens de communication sociale, dans leur multiple variété — presse cinéma, radio, télévision — sont les principaux facteurs de l'opinion publique. De ce fait, est grande la responsabilité de tous ceux qui se servent de tels moyens ou en sont les inspirateurs. Ces moyens doivent être mis au service de l'homme et, par suite, de la vérité et du bien qui, pour l'homme, sont les valeurs les plus importantes et les plus nécessaires. C'est pourquoi ceux qui travaillent professionnellement dans le champ de la communication sociale doivent se sentir engagés à former et à diffuser les opinions publiques conformes a la vérité et au bien.
+
+Dans un tel engagement, les chrétiens doivent se distinguer, bien conscients que, contribuant al former une opinion publique favorable à la justice, à la paix, à la fraternité, aux valeurs religieuses et morales, ils participent largement à la diffusion du Règne de Dieu, qui est le règne de la justice, de la vérité et de la paix. Du message chrétien qui est le droit au bien et au salut de l'homme, ils peuvent tirer inspiration pour aider leurs frères à se former des opinions correctes et justes, parce que conformes au plan d'amour et de salut pour l'homme que Dieu a révélé et réalisé en Jésus-Christ. En effet, la foi chrétienne et l'enseignement de l'Eglise, parce qu'ils sont justement fondés sur le Christ, voie ; vérité et vie, sont lumière et force pour les hommes dans leur cheminement historique.
+
+*Conclusion*
+
+Je termine ce Message par une spéciale Bénédiction à tous ceux qui travaillent dans le champ des Communications sociales dans un esprit chrétien de service de la vérité et de promotion des valeurs morales et religieuses. Les assurant de ma prière, je désire les encourager dans leur travail qui requiert courage et cohérence et qui est un service pour la vérité et la liberté. En effet, c'est la vérité qui rend les hommes libres (cf. *Jn* 8, 32). C'est pourquoi, travailler pour la formation d'une opinion publique conforme à la vérité c'est travailler pour la croissance de la liberté.
+
+*Du Vatican, 24 janvier 1986, fête de Saint François de Sales.*
+
+**IOANNES PAULUS PP. II**

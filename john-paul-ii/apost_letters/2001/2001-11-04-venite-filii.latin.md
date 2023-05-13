@@ -1,0 +1,29 @@
+**IOANNES PAULUS PP. II**
+
+**LITTERAE** **APOSTOLICAE**
+
+***VENITE FILII****
+
+VENERABILI DEI SERVO IOANNI ANTONIO FARINA
+
+BEATORUM HONORES DECERNUNTUR
+
+Ad perpetuam rei memoriam. — « Venite filii, audite me : timorem Domini docebo vos » ( *Ps* 34, 12). Psalmistae verba, quae Venerabilis Servus Dei Ioannes Antonius Farina uti sententiam episcopalem sibi sumpsit, luculenter adimplentur in eius vita et actione, qui tres et viginti annos in presbyterali et octo et triginta in episcopali ministerio transegit apud dioeceses Tarvisinam et Vicentinam. Natus in Vicentino pago vulgo *Gambellara* die XI mensis Ianuarii anno MDCCCIII, Ioannes Antonius litterarum rudimenta didicit a coniuncto quodam, pio sacerdote. Quindecim annos natus episcopale seminarium Vicentinum ingressus est, ubi ita pietate mentisque dotibus eminuit, ut unum et viginti annos agenti munus docendi sacrorum alumnos concrederetur. Die XIV mensis Ianuarii anno MDCCCXXVII sacerdotali ordinatione auctus est ac deinde magistri ludi diplomate est exornatus. In exordiis sui ministerii docere perrexit in Seminario, Vicentiae in ecclesia Sancto Petro dicata decem per annos alter a parocho exstitit, postea scholae publicae rector. Anno MDCCCXXXI eadem in urbe primam scholam popularem feminarum constituit, et anno MDCCCXXXVI condidit Institutum Sororum Magistrarum a Sancta Dorothea Filiarum a Sacris Cordibus, ad egenas, surdas mutasque et caecas puellas educandas, nec non ad infirmos senesque iuvandos. Anno MDCCCL, Episcopus nominatus est Ecclesiae Tarvisinae, ubi decem permansit annos ; die XVIII mensis Iunii anno MDCCCLX in Vicentinam translatus est dioecesim quam usque ad obitum rexit. In utraque dioecesi fructiferum explevit ministerium, culturalem et spiritalem institutionem clero et fidelibus tradidit, studiorum rationem et disciplinam seminarii renovavit, innumeras beneficentiae associationes instituit, cultum fovit Sacri Cordis Iesu et Mariae Virginis. Utramque dioecesim pastorali itinere perlustravit et Vicentiae dioecesanam Synodum celebravit. Assidua ac paterna sedulitate Institutum suum est prosecutus, curam adhibens de spiritali et technica sororum formatione, ut proprio charismati heroum quoque in modum respondere possent. Iter spiritale Ioannis Antonii Farina misericordiae exstitit tractus, qui a timore Dei ad perfectionem caritatis duxit eum. Studiosus pastor solam habuit curam, id est gloriam Dei quaerere. Caritatis operibus iugiter intentus, propriam requiem minuebat, immo cibum sibi necessarium neglegebat. omnibus omnia factus sine intermissione. Dilexit Sacram Scripturam, frequentem communionem eucharisticam promovit ; artam cum Deo consortionem vixit, qua actuositatem suam apostolicam perfudit. Episcopus semet ipsum libenter se obtulit ad infirmos valetudinarii corpore et spiritu curandos, suo exemplo attrahens sacerdotes sibi commissos. Caritas eius intellegens fuit et prophetica. Antesignanus evasit ad paedagogicas methodos creandas et ad iuventutem ducendam. Cogitavit educationem quae integram amplecteretur humanam formationem, prout ipse dicere solebat : « Vera scientia in sapientia cordis consistit » (cfr *Ps* 90, 12). Piissime obiit die IV mensis Martii anno MDCCCLXXXVIII, sanctitatis circumdatus fama, quae magis in dies increbruit. Causam beatificationis et canonizationis incepit Episcopus Vicentinus anno MCMLXXXI. Nosmet Ipsi, die XXIV mensis Aprilis anno MMI, declaravimus hunc illustrem Ecclesiae Pastorem virtutes theologales, cardinales eisque adnexas heroum in modum exercuisse. Deinde die VII mensis Iulii eiusdem anni Nobis coram Decretum prodiit super mira sanatione, Tarvisii patrata anno MCMLXXVIII et intercessioni eiusdem Servi Dei adscripta. Quapropter statuimus ut ritus beatificationis Romae perageretur die IV mensis Novembris anno MMI.
+
+Hodie igitur in foro Basilicam Sancti Petri Apostoli Vaticanam prospiciente, inter sacra hanc ediximus formulam :
+
+« Nos, vota Fratrum Nostrorum Ioannis Hirka, Episcopi Prešoviensis, Petri Iacobi Nonis, Episcopi Vicentini, Georgii Ferreira da Costa Ortiga, Archiepiscopi Bracarensis, Ioannis Aloisii Cardinalis Cipriani Thorne, Archiepiscopi Limani, Michaelis Cardinalis Giordano, Archiepiscopi Neapolitani, et Ioannis Mariae Uriarte Goiricelaya, Episcopi Sancti Sebastiani, nec non plurimorum aliorum Fratrum in episcopatu multorumque christifidelium explentes, de Congregationis de Causis Sanctorum consulto, Auctoritate Nostra Apostolica facultatem facimus ut Venerabiles Servi Dei Paulus Petrus Gojdič, Methodius Dominicus Trčka, Ioannes Antonius Farina, Bartholomaeus Fernandes dos Mártires, Aloisius Tezza, Paulus Manna, Caietana Sterni et Maria Pilar Izquierdo Albero Beatorum nomine in posterum appellentur eorumque festum : Pauli Petri Gojdič die decima septima Iulii ; Methodii Dominici Trčka die vicesima quinta Augusti ; Ioannis Antonii Farina die decima quarta Ianuarii ; Bartholomaei Fernandes dos Mártires die decima octava Iulii ; Aloisii Tezza die vicesima sexta Septembris ; Pauli Manna die decima sexta Ianuarii ; Caietanae Sterni die vicesima sexta Novembris et Mariae Pilar Izquierdo Albero die vicesima septima Iulii in locis et modis iure statutis quotannis celebrari possit. In nomine Patris et Filii et Spiritus Sancti ».
+
+Quae autem decrevimus, volumus et nunc et in posterum tempus vim sortiri, contrariis rebus minime quibuslibet obstantibus.
+
+*Datum Romae, apud Sanctum Petrum, sub anulo Piscatoris, die IV mensis Novembris anno MMI, Pontificatus Nostri quarto et vicesimo*.
+
+*De mandato Summi Pontificis*
+
+ANGELUS card. SODANO
+
+* * *
+
+*A.A.S., vol. XCV (2003), n. 3, pp. 171-173
+
+© Copyright 2001 - Libreria Editrice Vaticana

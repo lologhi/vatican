@@ -1,0 +1,21 @@
+***DISCOURS DU PAPE FRANÇOIS*** ***AUX MEMBRES DE LA FÉDÉRATION ITALIENNE DES CHEVALIERS DU TRAVAIL***
+
+*Salle Clémentine* *Samedi 20 juin 2015*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2015/6/20/cavalierilavoro.html)]**
+
+* * *
+
+*Mesdames, Messieurs,*
+
+Je suis heureux de vous accueillir au cours de cette audience spéciale, qui m’offre l’opportunité de rencontrer certains représentants qualifiés du monde du travail en Italie. Je salue et remercie en particulier votre président pour ses aimables paroles.
+
+La remise de l’Ordre « du Mérite du Travail » constitue depuis plus de cent ans une reconnaissance importante de la part des plus hautes autorités de l’État à l’égard de ceux qui, comme vous, se sont distingués dans le monde des entreprises et économique, contribuant à créer du travail et à faire croître la valeur des produits italiens dans le monde. Cette œuvre, pour laquelle vous avez été honoré par une haute distinction, est plus que jamais précieuse à une époque — qui est la nôtre — qui, suite à la crise économique et financière, a connu une lourde stagnation et également une véritable récession, dans un contexte social déjà marqué par les inégalités et par le chômage, en particulier celui des jeunes.
+
+Ce dernier surtout est une véritable plaie sociale, en ce sens qu’il prive les jeunes d’un élément essentiel pour leur réalisation et le monde économique de l’apport de ses forces les plus fraîches, qui sont les jeunes. Le monde du travail devrait être en attente de jeunes préparés et désireux de s’engager et d’émerger. Au contraire, le message qu’ils ont souvent reçu ces dernières années est que l’on a pas besoin d’eux. Et cela est le symptôme d’un grave dysfonctionnement, que l’on ne peut attribuer uniquement à des causes de niveau mondial et international.
+
+À présent, le bien commun, but ultime du vivre ensemble, ne peut être atteint par une simple augmentation des gains ou de la production, mais il a comme présupposé indispensable l'implication active de tous les sujets qui composent le corps social. L'enseignement social de l’Eglise rappelle continuellement ce critère fondamental : que l'être humain est le centre du développement, et tant que les hommes et les femmes demeurent passifs ou marginalisés, le bien commun ne peut se considérer pleinement atteint. Vous vous êtes distingués parce que vous avez osé et risqué, vous avez investi en idées, énergies et capitaux, en les faisant fructifier, en confiant des tâches, en réclamant des résultats et en contribuant à rendre les autres plus entreprenants et collaboratifs. Telle est la portée sociale du travail : la capacité d'impliquer les personnes et de confier des responsabilités, de manière à stimuler l'entreprise, la créativité, l'engagement. Cela a des effets positifs sur les nouvelles générations et fait en sorte qu'une société recommence à regarder de l'avant, offrant des perspectives et des opportunités, et ainsi des espérances pour le futur.
+
+La proposition de votre Fédération nationale de faire que ses membres mettent en évidence, outre le rôle social du travail, sa portée éthique, est louable. En fait, l'économie ne concourt à un authentique développement que si elle s’enracine dans la justice et dans le respect de la loi, si elle ne marginalise pas les individus et les peuples, si elle se tient loin de la corruption et de la malhonnêteté, et ne s’exonère pas de préserver l'environnement naturel. La pratique de la justice — les textes bibliques nous l'enseignent avec sagesse — ne se limite pas à éviter l'iniquité ou à observer des lois (bien que ce soit déjà beaucoup !), mais elle va même plus loin. Celui qui, en plus de respecter les règles, agit avec conscience et intérêt pour le bien de tous plutôt que pour lui-même, est juste. Celui qui prend à cœur le sort des moins avantagés et des plus pauvres, qui ne se lasse pas d'agir et qui est prêt à inventer des chemins toujours nouveaux, est juste. L'usage de la justice, au sens plénier du terme, est celui que nous souhaitons pour tous les agents économiques et pour tous les citoyens.
+
+Avec ces souhaits, j'invoque sur vous, vos familles et vos activités, l'intercession de saint Benoît de Nursie, patron des chevaliers du travail, et je vous bénis de tout cœur. S'il vous plaît n'oubliez pas de prier pour moi.

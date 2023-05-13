@@ -1,6 +1,0 @@
-|     |
-| --- |
-|  |
-| ***Visite Pastorale***<br>***à Lecce***<br>***(17-18 septembre 1994)***<br>- **A la population di Lecce (17 septembre 1994)**\[ [Italien](/content/john-paul-ii/it/speeches/1994/september/documents/hf_jp-ii_spe_19940917_arrivo-lecce.html)\]<br>- **Aux jeunes rassemblés Place Dôme (17 septembre 1994)** \[ [Italien](/content/john-paul-ii/it/speeches/1994/september/documents/hf_jp-ii_spe_19940917_giovani-lecce.html)\]<br>- **Concélébration eucharistique au stade de la ville de Lecce(18 septembre 1994 *)***<br>  <br>  \[ [Italien](/content/john-paul-ii/it/homilies/1994/documents/hf_jp-ii_hom_19940917_messa-lecce.html)\]<br>- **Angelus (18 septembre 1994)**<br>  <br>   \[ [Espagnol](/content/john-paul-ii/es/angelus/1994/documents/hf_jp-ii_ang_19940918.html), [Italien](/content/john-paul-ii/it/angelus/1994/documents/hf_jp-ii_ang_19940918.html)\]<br>- **Ouverture du Synode diocésaine et inauguration du Séminaire de Lecce (18 septembre 1994)**\[ [Italien](/content/john-paul-ii/it/speeches/1994/september/documents/hf_jp-ii_spe_19940918_inauguraz-seminario-lecce.html)\]<br>- **Aux jeunes de l'Archidiocèse de Lecce (18 septembre 1994)**\[ [Italien](/content/john-paul-ii/it/speeches/1994/september/documents/hf_jp-ii_spe_19940918_arcidiocesi-lecce.html)\] |
-|  |
-|  |

@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE PAUL VI***
+
+***À L’OCCASION DU QUATRIÈME CONGRÈS***
+
+***DES DIRECTEURS NATIONAUX***
+
+***POUR LES VOCATIONS ECCLÉSIASTIQUES***
+
+*Jeudi 13 mai 1971*
+
+*Cher Monsieur le Cardinal,*
+
+*Frères et Fils bien aimés,*
+
+C’est de tout cœur que Nous accueillons ce matin votre délégation, à l’occasion du quatrième Congrès des Directeurs nationaux pour les vocations ecclésiastiques.
+
+Nous n’avons certes pas besoin de souligner devant vous l’importance capitale de l’œuvre qui vous est confiée, comme Nous l’avons fait récemment dans Notre message pour la huitième Journée mondiale des vocations. Vous en avez une conscience aiguë qui polarise toute votre action sacerdotale : comment contribuer, avec tous les moyens dont nous disposons, à ce que demain le sacerdoce du Christ soit exercé par des pasteurs assez nombreux, assez compétents, assez saints pour répondre aux besoins spirituels de tout le Peuple de Dieu ? N’est-ce pas rejoindre le souci du Christ lui-même, ému de compassion à la vue des « gens las et prostrés comme des brebis qui n’ont point de berger »? ( *Matth*. 9, 36) Nous savons tout ce que vous mettez en œuvre pour que les vocations sacerdotales soient largement estimées chez les fidèles, éveillées et soutenues chez ceux, jeunes ou plus âgés, que le Seigneur appelle à ce plus haut service.
+
+Toute l’Eglise se penche sur ce problème qui revêt, en certaines régions surtout, une gravité exceptionnelle. A vous il revient d’abord d’étudier cette situation en profondeur et objectivement pour susciter les remèdes spirituels et pédagogiques adéquats. Il ne suffit pas de dire ou d’écrire que les temps sont changés, qu’ils appellent une autre forme de ministère, un autre mode d’insertion du clergé dans la société, un autre style de formation des candidats au sacerdoce. Le prochain Synode d’évêques, vous les savez, examinera ces graves questions. Les conditions de la vie sacerdotale ont certes une grande importance ; mais l’appel à vouer toute sa vie au service du Christ, avec la disponibilité des apôtres, transcende toutes ces conditions : ne trouve-t-il pas son meilleur enracinement et sa plus grande possibilité de déploiement dans un climat de foi profonde au Seigneur, un sens authentique de l’Eglise, et le désir passionné de servir les âmes, jusqu’à la générosité de la croix, vécue dans l’espérance pascale ?
+
+Dès lors, la première urgence est sans nul doute de sensibiliser le peuple chrétien, les familles, à la grandeur et à la nécessité de ces vocations, à l’estime du sacerdoce spécifique, exigé par l’épanouissement du « sacerdoce baptismal » des laïcs eux-mêmes. On suscitera en même temps une ardente prière pour ces vocations, « pour que le Maître de la moisson envoie des ouvriers à sa moisson » (Cfr. *Matth*. 9, 38). N’est-ce pas la première recommandation, - la seule semble-t-il -, que le Seigneur ait laissée à ses disciples en pareille circonstance ? Jamais l’Esprit Saint ne refusera à un peuple chrétien, généreux et assidu dans une telle prière, les pasteurs dont il a un réel besoin : ce doit être pour nous une conviction profonde.
+
+Le même Esprit Saint nous fait par ailleurs le devoir de mettre en oeuvre toutes les ressources pastorales capables d’éveiller les jeunes à la vocation sacerdotale, de les aider à reconnaître l’appel du Seigneur et les besoins de l’Eglise, de les guider et de les soutenir au milieu des difficultés : apprenons-leur à surmonter ces dernières avec esprit de foi, dans l’espérance et un plus grand amour. Beaucoup d’offices nationaux et diocésains des vocations ont déjà organisé avec succès des rencontres, des récollections, des sessions, bref de multiples occasions de dialogue, de réflexion, de prière, où les jeunes, sous une direction pédagogique appropriée, approfondissent leur lien avec le Christ et avec son Eglise, et s’ouvrent ainsi à l’engagement auquel l’Esprit Saint peut les appeler. Cet effort ne peut porter tous ses fruits que si, parallèlement, parents, éducateurs et mouvements d’action catholique mettent cet objectif au cœur de leurs préoccupations.
+
+Enfin, est-il besoin de le souligner, n’est-ce pas aux prêtres eux-mêmes qu’il appartient de faire briller le sacerdoce d’une lumière qui le rende désirable ? Là où le prêtre mène une vie vraiment évangélique, puisant amour, courage et joie dans un ministère exercé en union profonde avec le Christ, ce témoignage ne saurait rester longtemps infécond pour les vocations. Qui ne le voit, par contre ? Tout affaiblissement de l’idéal sacerdotal, toute hésitation à son sujet, comme toute médiocrité de vie et toute dissension à l’intérieur du clergé, en tarit inévitablement la source. Ne serait-ce pas là l’un des drames de la crise actuelle, à laquelle tant de laïcs chrétiens assistent avec douleur ? Mais Nous en avons la ferme conviction : avec l’aide de Dieu, avec le soutien de tant de prêtres généreux et avec la prière de tant de fidèles et d’âmes consacrées, cette crise sera surmontée. Aidez-Nous à faire prendre tout particulièrement conscience aux prêtres de leur responsabilité capitale en ce domaine.
+
+De tout cœur, avec toute la ferveur de votre zèle, poursuivez votre action au service du sacerdoce, à tous les niveaux de l’Eglise, sans jamais vous laisser décourager, toujours confiants dans la force et la lumière de l’Esprit Saint. Et Nous, en appelant sur votre apostolat l’abondance des divines grâces, Nous vous donnons Notre paternelle Bénédiction Apostolique.

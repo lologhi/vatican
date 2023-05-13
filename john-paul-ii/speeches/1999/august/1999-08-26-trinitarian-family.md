@@ -1,0 +1,33 @@
+***DISCOURS DU PAPE JEAN PAUL II***
+
+***À L'ASSEMBLÉE INTERNATIONALE***
+
+***DE L'ORDRE DE LA TRÈS SAINTE TRINITÉ***
+
+*Jeudi 26 août 1999*
+
+*Très chers frères et soeurs !*
+
+1. Je suis heureux de vous rencontrer en une circonstance aussi significative que celle-ci :  vous célébrez cette année le VIIIème centenaire de la fondation de l'Ordre de la Très Sainte Trinité et le IVème centenaire de sa réforme. C'est pourquoi la Famille trinitaire qui plonge ses racines dans le projet de son Fondateur saint Jean de Matha et qui vit du même charisme, a pensé se rassembler de façon opportune en « *Assemblée générale* » pour réfléchir ensemble sur les problèmes communs et sur les solutions possibles au seuil du nouveau millénaire.
+
+Je salue le Ministre général de l'Ordre et je le remercie des paroles courtoises qu'il m'a adressées. Je salue également les responsables, hommes et femmes, des divers Instituts qui appartiennent à la Famille trinitaire, ainsi que les religieux, les religieuses et les laïcs venus de toutes les parties du monde pour cette Assemblée. Elle constitue un moment particulièrement propice pour intensifier le chemin de fidélité au don de l'Esprit reçu par le Fondateur, et pour vous insérer plus profondément dans le renouveau voulu par le Concile Vatican II, de façon à pouvoir répondre aux exigences et aux défis du monde d'aujourd'hui.
+
+2. Au cours de huit siècles, à travers de multiples événements historiques, la Famille trinitaire, animée et vivifiée par son charisme d'origine, fondé sur la glorification de la Trinité et sur l'attention à la rédemption de l'homme, s'est développée et répandue dans l'Eglise et dans le monde à travers la floraison de divers instituts et de diverses associations laïques. Les divers organismes se reconnaissent dans le nom de la Trinité, à laquelle ils sont consacrés de façon particulière, et en saint Jean de Matha, qu'ils vénèrent comme Père commun. Tous participent au même charisme de glorification de la Trinité et d'engagement pour la rédemption de l'homme, se consacrant à des oeuvres de charité et de libération en faveur des pauvres et des esclaves de notre époque.
+
+Aujourd'hui, la Famille trinitaire, outre les religieux, est également composée de religieuses de vie contemplative et active. Ces dernières s'articulent en diverses Congrégations :  il y a les Soeurs trinitaires de Valence, de Rome, de Valence et de Madrid en Espagne, de Majorque, de Séville. En outre, s'y ajoutent l'Institut séculier des Oblates trinitaires et l'Ordre séculier trinitaire, ainsi que des Confréries et de nombreuses Associations du laïcat trinitaire qui témoignent dans le monde de la dimension séculaire de l'esprit trinitaire.
+
+Je renouvelle à tous l'exhortation à vivre avec une fidélité généreuse le charisme originel, qui conserve une actualité extraordinaire dans le monde d'aujourd'hui. L'homme contemporain a besoin d'entendre annoncer le salut au nom de la Très Sainte Trinité et d'être protégé de chaînes tout aussi dangereuses que celles d'autrefois, même si elles sont moins visibles. C'est pourquoi la Famille trinitaire fera bien de se mettre à l'écoute des implorations qui proviennent des victimes des formes modernes d'esclavage, pour trouver des voies concrètes répondant à leurs attentes angoissées.
+
+Que vous soutiennent dans votre réflexion et dans votre engagement les nombreux frères et soeurs qui vous ont précédés et qui vous ont laissé de lumineux exemples de vertus et de sainteté dans l'accomplissement de ce même charisme :  des religieux, des religieuses et des laïcs dont les noms, souvent tachés de sang, sont inscrits dans l'album des saints et vivent dans le témoignage de la tradition Trinitaire.
+
+3. A la lumière de ce témoignage héroïque, vous voulez préparer des projets concrets avec lesquels entrer dans le nouveau millénaire. En particulier, vous avez pensé à instituer un organisme international de la Famille trinitaire, à travers lequel pouvoir intervenir plus efficacement en défense des personnes persécutées ou discriminées à cause de la foi religieuse et de la fidélité à leur conscience ou aux valeurs de l'Evangile. Vous avez donné à ce nouvel organisme le nom de « *Solidarité internationale trinitaire* », voulant intéresser toute la Famille au service des nombreuses personnes qui souffrent et qui sont malheureuses, et qui dans leur misère aspirent à une « *épiphanie* » du Christ Rédempteur.
+
+Un autre projet très significatif est celui d'une nouvelle fondation au Soudan, que vous avez programmée comme l'expression de la mission rédemp-trice et miséricordieuse propre à l'Ordre. L'initiative se propose, en même temps que l'apostolat missionnaire et de libération, le dialogue interreligieux entre christianisme et islam, selon les indications données par le Concile Vatican II et reprises et développées dans des documents successifs du Magistère.
+
+4. Le grand Jubilé de l'Incarnation constitue pour toute la Famille trinitaire un encouragement ultérieur à approfondir la méditation du Mystère trinitaire, dans lequel elle trouve le coeur de sa propre spiritualité. En puisant à cette Source intarissable, elle ne manquera pas de s'engager dans le développement  de  toutes  les  possibilités  de  la consécration trinitaire, en l'enrichissant d'une nouvelle plénitude. De cette expérience trinitaire profondément vécue naîtra un engagement renouvelé de libération à l'égard de toute forme d'oppression.
+
+Le Chapitre général extraordinaire, qui s'est conclu ces jours derniers, a placé au centre de votre réflexion le thème de la Domus Trinitatis et Captivorum *.* Dans l'esprit original du projet de saint Jean de Matha - qui mérite d'être valorisé également à notre époque - doit régner dans cette Domus, le dynamisme de l'amour, qui a sa source dans le Mystère trinitaire et qui s'étend vers les préférés de Dieu :  les esclaves et les pauvres. Que l'Esprit du Père et du Fils, qui est amour, vous pousse à devenir un don d'amour pour les autres. L'unité et la charité seront le meilleur témoignage de votre vocation trinitaire dans l'Eglise.
+
+Que la Très Sainte Vierge, que vous invoquez depuis des siècles à travers la belle prière : *"Ave, Filia Dei Patris, Ave, Mater Dei Filii, Ave, Sponsa Spiritus Sancti, Sacrarium Sanctissimae Trinitatis*", vous introduise toujours davantage dans la contemplation du Mystère et vous aide à vivre les jours du grand Jubilé comme un temps d'espérance renouvelée et de joie sereine dans l'Esprit.
+
+Avec ces voeux, je vous donne de tout coeur, ainsi qu'à tous les membres de la Famille trinitaire, une Bénédiction apostolique spéciale.

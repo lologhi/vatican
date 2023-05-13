@@ -1,0 +1,23 @@
+***DISCORSO DI PAOLO VI***
+
+***AI DELEGATI DELLE CONFERENZE EPISCOPALI D’EUROPA***
+
+*Giovedì, 25 marzo 1971*
+
+*Venerabiles Fratres,*
+
+Gaudio perfundimur, quod vos hic videmus congregatos circa Nos, quibus supremum mandatum est ministerium apostolicum, vos, qui ab Europae Conferentiis Episcopalibus estis delegati, ut de gregum vestrorum utilitatibus disceptaretis ; scilicet ut id ageretis, quod de singulis eiusmodi coetibus Episcoporum a Concilio Vaticano Secundo sunt dicta : hi enim eo spectant, ut « communicatis prudentiae et experientiae luminibus, collatisque consiliis sancta fiat ad communem Ecclesiarum bonum virium conspiratio » ( *Christus Dominus*, 37).
+
+Quodsi Episcopi omnes, ut membra Collegii Apostolorum, pro totius mundi salute sunt consecrati ( *Ad gentes divinitus*, 30), quanto magis Conferentiae Episcopales Europae, quae traditione, humano cultu, moribus incolarum ampliorem quandam efficit unitatem, id praestabunt. Ad quam quidem unitatem fovendam provehendamque Nosmet ipsi Sanctum Benedictum totius Europae caelestem apud Deum constituimus Patronum (Cfr. *AAS* 56, 1964, p. 966).
+
+Est igitur prorsus laudanda mutua inter Conferentias Episcopales opera, cuius exempla iam in aliis terris continentibus cernimus. Vos de compage seu structura, quam Europaeae eiusmodi cooperationi vestrae tribuatis, sine dubio iam cogitavistis et cogitatis. Quod quidem est magni ponderis negotium, siquidem gravissimae quaestiones pastorales, quae in vestris regionibus solvantur oportet, vobis simul sunt pertractandae ; consilia communia ac quidem positiva sunt suscipienda vobis arcte coniunctis cum Apostolica Sede ; idem dandum evangelicum testimonium fidei, spei, caritatis, iustitiae et pacis inspectis pergrandibus causis, quibus Ecclesia et humana consortio in Europa urgentur ; denique aures praebendae sunt vobis universali Ecclesiae, praesertim « tertii mundi », qui dicitur, ut ea capiat emolumenta ex multiplicibus viribus vestris et ex vestra diuturna experientia, sed etiam ut eadem vobis afferat peculiaria sibi auxilia suasque subsidiarias divitias.
+
+Ecclesia est communio eorum omnium, qui in Christo renati sunt et qui ab eius Spiritu caritatis animantur. Non oportet hic in memoriam revocemus necessitatem compaginis alicuius et formae per gradus distinctae, quae propriae sunt cuiusvis instituti vita praediti ; quae quidem compago postulat, ut quisque suum obtineat locum, sive est Episcopus, sive sacerdos, sive religiosus vel laicus.
+
+Quemadmodum novistis, haud raro hodie haec indoles ad totius corporis temperationem pertinens seu, uti dicunt, « institutionalis », quae est primaria et a Deo originem ducit, defendenda est contra vanam opinionem illorum, qui Ecclesiam tantum charismaticam esse volunt. Verumtamen Ecclesiae instituta non exemplis societatum civilium, oeconomicarum vel politicarum mere simpliciterque sunt conformanda, in quibus officia principalia, quae sunt velut in fastigio, ut delegata quidem a sodalium universitate ex rei norma agunt, sed quae proclivia apparent ad partes sibi subiectas exsorbendas et interdum modo imperioso moderandas. Huiusmodi rationi non solum principium subsidiaritatis, quod appellant, dummodo recte intellegatur, repugnat, sed ipsa etiam natura Ecclesiae adversatur. Pro nobis, Ecclesia localis, circa Episcopum suum constituta, qui toti Ecclesiae obligatur et communione Romano Pontifici iungitur, efficit structuram primariam et cohaerentem Corporis mystici. Officium transmittendi et connexio (Cfr. *Eph*. 4, 16), vel potius mutui commercii ratio, quae est apud vos, non est quaedam foederatio, qua huius mundi instituta inter se consociantur, sed est id, quod hanc communionem primariam et essentialem inducere, iuvare et ad effectum deducere debet ; quod Conferentiae episcopales intra fines alicuius nationis praestare cognoscuntur, iam intra fines terrae continentis faciunt.
+
+Expedit quidem adhiberi structuram valde flexibilem, qua onera praegravia, quae portatis, non augeantur.
+
+Valde probamus vos ut locum huius conventus Vestri sedem Ecclesiae Romanae delegisse, cuius est praesidere universo caritatis coetui (Cfr. S. IGNAT., *Ad Rom*. Pracf., ed. Funk, 1, p. 252 ; *Lumen gentium*, 13). Det nobis Deus, ut eiusmodi caritatis mysterium nos omnes magis frugifere in dies mundo praedicemus, quod hodie Mariae annuntiatum celebramus.
+
+Haec vota facientes et pro hac re preces fundere parati, vobis intimae cum dilectionis affectu Benedictionem Apostolicam impertimus.

@@ -1,0 +1,27 @@
+***DISCOURS DU PAPE FRANÇOIS***
+
+***AUX PARTICIPANTS AU CONGRÈS DU CONSEIL PONTIFICAL***
+
+***POUR LA PROMOTION DE LA NOUVELLE ÉVANGÉLISATION***
+
+***SUR « CATÉCHÈSE ET PERSONNES PORTEUSES DE HANDICAP »***
+
+*Salle Clémentine*
+
+*Samedi 21 octobre 2017*
+
+**[ [Multimédia](http://w2.vatican.va/content/francesco/fr/events/event.dir.html/content/vaticanevents/fr/2017/10/21/convegno-pcpne.html)]**
+
+* * *
+
+*Chers frères et sœurs,*
+
+Je me réjouis de vous rencontrer, surtout parce ces derniers jours, vous avez affronté un thème de grande importance pour la vie de l’Eglise dans son œuvre d’évangélisation et de formation chrétienne : *La catéchèse et les personnes porteuses de handicap.* Je remercie Mgr Fisichella pour son introduction, le dicastère qu’il préside pour son service et vous tous pour votre travail dans ce domaine.
+
+Nous connaissons le grand développement qui a eu lieu au cours de ces dernières décennies à l’égard du handicap. La croissance dans la conscience de la dignité de chaque personne, surtout des personnes plus faibles, a conduit à assumer des positions courageuses pour l’inclusion de ceux qui vivent avec diverses formes de handicap, afin que personne ne se sente étranger dans sa maison. Pourtant, au niveau culturel demeurent encore des expressions qui portent atteinte à la dignité de ces personnes en raison de la prévalence d’une fausse conception de la vie. Une vision souvent narcissique et utilitariste conduit, malheureusement, de nombreuses personnes à considérer les personnes porteuses de handicap comme marginales, sans saisir en elles les multiples richesses humaines et spirituelles. *Une attitude de refus de cette condition* est encore trop forte dans la mentalité commune, comme si elle interdisait d’être heureux et de se réaliser soi-même. C’est ce que prouve la tendance eugénique à supprimer les enfants à naître qui présentent une quelconque forme d’imperfection. En réalité, nous connaissons tous de nombreuses personnes qui, avec leurs fragilités, même graves, ont trouvé, même au prix de difficultés, le chemin d’une vie bonne et riche de signification. Comme d’un autre côté nous connaissons des personnes apparemment parfaites et désespérées ! Par ailleurs, c’est une erreur dangereuse de penser que l’on est invulnérable. Comme le disait une jeune fille que j’ai rencontrée au cours de mon récent voyage en Colombie, *la vulnérabilité appartient à l’essence de l’homme*.
+
+*La réponse est l’amour :* non pas faux, doucereux et empreint de pitié, mais vrai, concret et respectueux. Dans la mesure où l’on est accueillis et aimés, inclus dans la communauté et accompagnés pour regarder l’avenir avec confiance, on développe le véritable parcours de la vie et on fait l’expérience du bonheur durable. Cela — nous le savons — vaut pour tous, mais les personnes les plus fragiles en sont comme la preuve. La foi est une grande compagne de vie quand elle nous permet de toucher du doigt la présence d’un Père qui ne laisse jamais seuls ses créatures, dans aucune des conditions de leur vie. L’Eglise ne peut pas « perdre la voix » ou « sonner faux » dans la défense et la promotion des personnes porteuses de handicap. Sa proximité envers les familles les aide à dépasser la solitude dans laquelle elles risquent souvent de s’enfermer par manque d’attention et de soutien. Cela vaut encore plus pour la responsabilité qu’elle possède *dans la génération et dans la formation à la vie chrétienne.* Les paroles et surtout les gestes ne peuvent manquer dans la communauté pour rencontrer et accueillir les personnes porteuses de handicap. La liturgie dominicale en particulier devra savoir les inclure, pour que la rencontre avec le Seigneur ressuscité et avec la communauté elle-même puisse être une source d’espérance et de courage dans le chemin pas facile de la vie.
+
+La *catéchèse,* de façon particulière, est appelée à découvrir et à expérimenter des formes cohérentes afin que *toute personne,* avec ses dons, ses limites et ses handicaps, même graves, puisse rencontrer Jésus sur son chemin et s’abandonner à Lui avec foi. Aucune limite physique et psychique ne pourra jamais empêcher cette rencontre, parce que le visage du Christ resplendit dans le cœur de toute personne. En outre, soyons attentifs, spécialement nous, ministres de la grâce du Christ, à ne pas tomber dans l’erreur néo-pélagienne de ne pas reconnaître l’exigence de la force de la grâce qui vient des sacrements de l’initiation chrétienne. Apprenons à dépasser la gêne et la peur que l’on peut parfois éprouver à l’égard des personnes porteuses de handicap. Apprenons à chercher et aussi à « inventer » avec intelligence des instruments adéquats afin que le soutien de la grâce ne manque à personne. Formons — avant tout par l’exemple ! — des catéchistes toujours plus capables d’accompagner ces personnes pour qu’elles grandissent dans la foi et apportent leur contribution authentique et originale à la vie de l’Eglise. Enfin, je souhaite que les personnes porteuses de handicap puissent être elles-mêmes toujours plus catéchistes dans la communauté, y compris par leur témoignage, pour transmettre la foi de façon plus efficace.
+
+Je vous remercie pour votre travail de ces journées et pour votre service dans l’Eglise. Que la Vierge vous accompagne. Je vous bénis de tout cœur. Et je vous demande, s’il vous plaît, de ne pas oublier de prier pour moi. Merci !
